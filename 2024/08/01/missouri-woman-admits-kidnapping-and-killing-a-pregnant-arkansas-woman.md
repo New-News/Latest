@@ -1,6 +1,6 @@
 # Missouri woman admits kidnapping and killing a pregnant Arkansas woman
 
-Published :`2024-08-01 21:16:38`
+Published :`2024-08-01 21:36:25`
 
 ---
 

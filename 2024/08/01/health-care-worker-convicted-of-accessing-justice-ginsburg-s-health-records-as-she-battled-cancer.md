@@ -1,6 +1,6 @@
 # Health care worker convicted of accessing Justice Ginsburg’s health records as she battled cancer
 
-Published :`2024-08-01 21:16:40`
+Published :`2024-08-01 21:36:28`
 
 ---
 

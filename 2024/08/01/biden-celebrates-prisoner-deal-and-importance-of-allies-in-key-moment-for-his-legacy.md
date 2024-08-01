@@ -1,6 +1,6 @@
 # Biden celebrates prisoner deal and importance of allies in key moment for his legacy
 
-Published :`2024-08-01 21:16:37`
+Published :`2024-08-01 21:36:22`
 
 ---
 

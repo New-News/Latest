@@ -1,6 +1,6 @@
 # Carrie Underwood joining ‘American Idol’ as judge, replacing Katy Perry
 
-Published :`2024-08-01 21:16:39`
+Published :`2024-08-01 21:36:27`
 
 ---
 

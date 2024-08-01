@@ -1,6 +1,6 @@
 # Look of the Week: Megan Thee Stallion and Kamala Harris serve the power pantsuit two ways
 
-Published :`2024-08-01 21:16:41`
+Published :`2024-08-01 21:36:30`
 
 ---
 
