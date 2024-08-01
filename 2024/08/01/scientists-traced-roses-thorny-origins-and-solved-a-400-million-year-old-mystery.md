@@ -1,6 +1,6 @@
 # Scientists traced roses’ thorny origins and solved a 400 million-year-old mystery
 
-Published :`2024-08-01 22:14:09`
+Published :`2024-08-01 22:36:36`
 
 ---
 
