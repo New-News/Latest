@@ -1,6 +1,6 @@
 # Who was freed in major prisoner swap between Russia and the West?
 
-Published :`2024-08-01 19:11:45`
+Published :`2024-08-01 19:37:00`
 
 ---
 

@@ -1,6 +1,6 @@
 # Trump’s comments about Harris’ race kicks off a new – yet familiar – chapter in the 2024 presidential campaign
 
-Published :`2024-08-01 19:11:45`
+Published :`2024-08-01 19:37:00`
 
 ---
 

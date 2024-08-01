@@ -1,6 +1,6 @@
 # Dow plunges by more than 700 points as investors fear the US economy is faltering
 
-Published :`2024-08-01 19:11:45`
+Published :`2024-08-01 19:36:59`
 
 ---
 
@@ -25,6 +25,10 @@ Investors will get their next look at the state of the economy on Friday morning
 Powell said Wednesday that any significant weakening in the job market would be concerning.
 
 “If we see something that looks like a more significant downturn, that would be something that we would have the intention of responding to,” he said at the Fed’s post-meeting press conference.
+
+It’s been a turbulent few weeks for markets, as some earnings reports have underwhelmed and fear about increased regulation of tech and lackluster AI performance have soured investors’ moods. Companies have reported US consumers have pulled back from restaurants and retailers, and this week some preliminary jobs data looked weak.
+
+But America’s economy remains undeniably strong, and Wall Street seems unfazed by Vice President Kamala Harris’ surprise frontrunner status for the Democratic presidential nomination.
 
 This is a developing story and will be updated.
 
