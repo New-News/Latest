@@ -1,6 +1,6 @@
 # Donald Trump falsely suggests Kamala Harris ‘happened to turn Black’
 
-Published :`2024-08-01 19:37:05`
+Published :`2024-08-01 20:16:43`
 
 ---
 

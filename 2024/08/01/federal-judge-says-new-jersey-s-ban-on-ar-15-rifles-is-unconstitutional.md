@@ -1,6 +1,6 @@
 # Federal judge says New Jersey’s ban on AR-15 rifles is unconstitutional
 
-Published :`2024-08-01 19:37:02`
+Published :`2024-08-01 20:16:43`
 
 ---
 

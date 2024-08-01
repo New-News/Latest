@@ -1,6 +1,6 @@
 # Why the stock market is suddenly freaking out
 
-Published :`2024-08-01 19:36:59`
+Published :`2024-08-01 20:16:42`
 
 ---
 
@@ -14,7 +14,7 @@ But now, fear is starting to take hold, as concerns mount that the Fed may not
 
 Powell warned Wednesday that cracks are starting to form in the labor market.
 
-On Thursday, the stock market underwent a bit of a reset, with the Dow falling 700 points as America may be entering a new phase of the economy — a slowdown in hiring. The broader S&P 500 tumbled 1.7% and the tech-heavy Nasdaq Composite dropped a stunning 2.7%.
+On Thursday, the stock market underwent a bit of a reset, with the Dow falling more than 600 points as America may be entering a new phase of the economy — a slowdown in hiring. The broader S&P 500 tumbled 1.5% and the tech-heavy Nasdaq Composite dropped a stunning 2.5%.
 
 It’s been a turbulent few weeks for markets, as some earnings reports have underwhelmed and fear about increased regulation of tech and lackluster AI performance have soured investors’ moods. Companies have reported US consumers have pulled back from restaurants and retailers, and this week some preliminary jobs data looked weak.
 

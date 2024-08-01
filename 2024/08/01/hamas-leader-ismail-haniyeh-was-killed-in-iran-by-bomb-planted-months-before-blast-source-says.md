@@ -1,6 +1,6 @@
 # Hamas leader Ismail Haniyeh was killed in Iran by bomb planted months before blast, source says
 
-Published :`2024-08-01 19:36:59`
+Published :`2024-08-01 20:16:42`
 
 ---
 
@@ -46,13 +46,31 @@ Nasrallah said Israel’s strike in southern Beirut had prompted a “new phase�
 
 Iran-backed allies in the region include Iraqi proxy militias, the Houthis in Yemen and groups in Syria.
 
-Israel on Thursday then announced it had confirmed it had killed Mohammed Deif, the head of Hamas’ military wing and a key architect of the October 7 attacks, last month.
+### ‘IDF is on high alert’
+
+The chief spokesperson for the Israel Defense Forces (IDF), Rear Admiral Daniel Hagari, said Thursday that Israel was ready to face a range of scenarios amid heightened tension in the region.
+
+“The IDF is on high alert, on both defense and offense. IDF forces are deployed in the air, at sea and on the ground, and are prepared for all scenarios, especially for offensive plans within the immediate timeframe.”
+
+Hagari said at a briefing Thursday: “We have very good defense systems and in addition we have international partners who have reinforced their forces [deployed] in the region, to help us counter the threats.”
+
+But he cautioned that Israel’s defenses were “not hermetically sealed.”
+
+Hagari noted: “Iran has been running over the past few years a terror infrastructure, to smuggle Iranian explosive devices into Israeli territory to perpetrate attacks. We will continue operating against the Iranian terror with determination.”
+
+Several Israeli agencies and services are stepping up readiness, following the Israeli strike that killed Shukr and threats from Iran that it would retaliate following the assassination of Haniyeh in Tehran.
+
+The emergency services – Magen David Adom (MDA) – said it was prepared for every scenario after a three-day exercise “aimed at preparing for a potential war in the north and blackout scenarios.
+
+MDA said one practised scenario involved a simulated rocket strike on a building in a northern kibbutz in which MDA teams worked with the emergency team from Kibbutz Afek and police.
+
+Israel on Thursday also announced it had confirmed it had killed Mohammed Deif, the head of Hamas’ military wing and a key architect of the October 7 attacks, last month.
 
 The Israeli military said it killed Deif on July 13 in a strike on Khan Younis. Those same attacks also killed at least 90 Palestinians in the sprawling tent city of Al-Mawasi, the Gaza health ministry said. CNN reached out to Hamas to confirm Deif’s death but has not heard back.
 
 Haniyeh’s coffin was moved through the streets of Tehran in a procession on Thursday, with thousands lining the streets to watch. He will be buried in Qatar’s capital Doha on Friday.
 
-CNN’s Mostafa Salem, Tamara Qiblawi, Kareem Khadder, Eyad Kourdi, Paul P. Murphy contributed to this report.
+CNN’s Mostafa Salem, Tamara Qiblawi, Kareem Khadder, Tamar Michaelis, Tim Lister, Eyad Kourdi, Paul P. Murphy contributed to this report.
 
 ---
 

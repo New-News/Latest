@@ -1,6 +1,6 @@
 # Pennsylvania county law enforcement officials say Secret Service is presenting a ‘misleading’ picture of Trump shooting scene
 
-Published :`2024-08-01 19:37:07`
+Published :`2024-08-01 20:16:44`
 
 ---
 

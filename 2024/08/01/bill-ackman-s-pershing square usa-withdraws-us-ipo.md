@@ -1,6 +1,6 @@
 # Bill Ackman’s Pershing Square USA withdraws US IPO
 
-Published :`2024-08-01 19:37:08`
+Published :`2024-08-01 20:16:44`
 
 ---
 
