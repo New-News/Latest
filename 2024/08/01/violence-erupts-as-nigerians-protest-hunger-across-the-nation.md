@@ -1,6 +1,6 @@
 # Violence erupts as Nigerians protest hunger across the nation
 
-Published :`2024-08-01 20:16:42`
+Published :`2024-08-01 20:37:07`
 
 ---
 
@@ -16,7 +16,7 @@ Gunshots rang out in the capital Abuja and also in the neighboring Niger state a
 
 The state’s police spokesman Wasiu Abiodun told CNN in a statement that operatives arrested 11 armed “hoodlums” who set fire to a government building after looting it.
 
-Abiodun said police officers also dispersed protesters who had occupied a major highway but did not respond to CNN’s question on the number of deaths.
+Abiodun said police officers also dispersed protesters who had occupied a major highway, adding that “there was no loss of life.”
 
 Another three people were reportedly killed in the northwestern Kaduna state, according to Reuters, citing eyewitnesses. The Kaduna Police Command did not return CNN’s request for comment.
 

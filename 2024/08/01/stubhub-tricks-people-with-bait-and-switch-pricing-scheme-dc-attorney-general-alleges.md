@@ -1,6 +1,6 @@
 # StubHub tricks people with ‘bait-and-switch’ pricing scheme, DC attorney general alleges
 
-Published :`2024-08-01 20:16:44`
+Published :`2024-08-01 20:37:17`
 
 ---
 
