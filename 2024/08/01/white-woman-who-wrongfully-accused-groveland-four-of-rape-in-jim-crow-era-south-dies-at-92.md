@@ -1,6 +1,6 @@
 # White woman who wrongfully accused ‘Groveland Four’ of rape in Jim Crow-era South dies at 92
 
-Published :`2024-08-01 22:36:39`
+Published :`2024-08-01 23:15:34`
 
 ---
 

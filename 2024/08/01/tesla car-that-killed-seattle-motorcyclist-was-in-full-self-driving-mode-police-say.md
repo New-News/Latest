@@ -1,6 +1,6 @@
 # Tesla car that killed Seattle motorcyclist was in ‘Full Self-Driving’ mode, police say
 
-Published :`2024-08-01 22:36:39`
+Published :`2024-08-01 23:15:32`
 
 ---
 

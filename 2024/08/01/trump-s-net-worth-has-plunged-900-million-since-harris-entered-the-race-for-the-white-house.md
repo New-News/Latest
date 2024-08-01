@@ -1,6 +1,6 @@
 # Trump’s net worth has plunged $900 million since Harris entered the race for the White House
 
-Published :`2024-08-01 22:36:37`
+Published :`2024-08-01 23:15:28`
 
 ---
 
