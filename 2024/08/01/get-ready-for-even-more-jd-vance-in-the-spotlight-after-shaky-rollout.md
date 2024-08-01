@@ -1,6 +1,6 @@
 # Get ready for even more JD Vance in the spotlight after shaky rollout
 
-Published :`2024-08-01 21:36:26`
+Published :`2024-08-01 22:14:11`
 
 ---
 

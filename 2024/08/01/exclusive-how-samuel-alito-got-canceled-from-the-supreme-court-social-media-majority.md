@@ -1,6 +1,6 @@
 # Exclusive: How Samuel Alito got canceled from the Supreme Court social media majority
 
-Published :`2024-08-01 21:36:28`
+Published :`2024-08-01 22:14:12`
 
 ---
 

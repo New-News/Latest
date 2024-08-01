@@ -1,6 +1,6 @@
 # Israel not invited to ceremony commemorating 1945 atomic bombing of Nagasaki
 
-Published :`2024-08-01 21:36:26`
+Published :`2024-08-01 22:14:11`
 
 ---
 
