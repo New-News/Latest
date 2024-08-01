@@ -1,6 +1,6 @@
 # What we know about the deputy charged with killing Sonya Massey in her home after she called 911 for help
 
-Published :`2024-08-01 20:37:12`
+Published :`2024-08-01 21:16:39`
 
 ---
 

@@ -1,6 +1,6 @@
 # The Fed has signaled it will cut rates soon. Here’s what to do with your savings (and debt) before then
 
-Published :`2024-08-01 20:37:16`
+Published :`2024-08-01 21:16:41`
 
 ---
 

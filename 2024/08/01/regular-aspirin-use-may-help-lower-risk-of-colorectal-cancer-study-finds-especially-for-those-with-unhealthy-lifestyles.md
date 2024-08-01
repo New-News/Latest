@@ -1,6 +1,6 @@
 # Regular aspirin use may help lower risk of colorectal cancer, study finds, especially for those with unhealthy lifestyles
 
-Published :`2024-08-01 20:37:09`
+Published :`2024-08-01 21:16:37`
 
 ---
 

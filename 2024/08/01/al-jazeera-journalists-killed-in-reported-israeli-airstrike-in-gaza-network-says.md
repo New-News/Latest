@@ -1,6 +1,6 @@
 # Al Jazeera journalists killed in reported Israeli airstrike in Gaza, network says
 
-Published :`2024-08-01 20:37:08`
+Published :`2024-08-01 21:16:37`
 
 ---
 
@@ -22,9 +22,11 @@ The IDF alleged that “as part of his role in the military wing, Al-Ghoul instr
 
 The IDF did not allege that Al-Ghoul had a direct combat role in its statement to CNN, nor did it address the killing of his colleague Rami al Rifi in the same strike.
 
-The Al Jazeera bureau chief for Israel and Palestine, Walid Al Omari, said Thursday the claim Al-Ghoul was a member of Hamas’ military wing was “completely false.”
+Al Jazeera denied what it called “baseless allegations made by the Israeli occupation forces in an attempt to justify its deliberate killing of our colleague, journalist Ismail Al-Ghoul, and his companion, cameraman Rami Al-Rifi.”
 
-Al Omari said that Israeli forces “had previously arrested (Al-Ghoul) in Al-Shifa Hospital in Gaza when they invaded it in mid-March. They detained him for twelve hours, then released him unconditionally.”
+It said the IDF had made accusations against Al-Ghoul “without providing any proof, documentation or video,” and accused Israel of a “long history of fabrications and false evidence used to cover up its heinous crimes.”
+
+Al Jazeera bureau chief for Israel and Palestine, Walid Al Omari, said that Israeli forces “had previously arrested (Al-Ghoul) in Al-Shifa Hospital in Gaza when they invaded it in mid-March. They detained him for twelve hours, then released him unconditionally.”
 
 “If their claim were true, would they have released him? It is clear that the occupation authorities are trying to justify their crime by claiming that he was one of the elite and participated in the October 7 attack.”
 

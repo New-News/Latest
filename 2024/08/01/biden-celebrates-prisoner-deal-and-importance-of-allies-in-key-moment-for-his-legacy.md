@@ -1,6 +1,6 @@
 # Biden celebrates prisoner deal and importance of allies in key moment for his legacy
 
-Published :`2024-08-01 20:37:09`
+Published :`2024-08-01 21:16:37`
 
 ---
 
@@ -15,6 +15,8 @@ Flanked by the families of the prisoners who were released, Biden spoke from the
 Trump questioned the deal and what was given up in the exchange, calling the negotiators an “embarrassment.”
 
 “Are we releasing murderers, killers, or thugs? Just curious because we never make good deals, at anything, but especially hostage swaps,” Trump wrote on Truth Social. “They are extorting the United States of America. They’re calling the trade ‘complex’ – That’s so nobody can figure out how bad it is!”
+
+Trump said in an interview on “The Clay Travis and Buck Sexton Show” later Thursday, “They allowed some really rough people out.”
 
 The prisoner swap with Russia was just one of multiple foreign policy dilemmas that have vexed Biden’s presidency, from a ceasefire deal between Israel and Hamas to helping Ukraine keep up its fight against Russia. As he passed the baton to Harris last month, he said he would spend the last six months in office continuing to try to solve all of these issues.
 
@@ -42,7 +44,7 @@ When Harris attended the Munich Security Conference in February, she asked staff
 
 It was in this private conversation that Harris emphasized that the release of Krasikov would be critical to a deal, a White House official told CNN. Harris pressed Scholz to facilitate the release of Krasikov, whom US officials have said was the “biggest fish” the Russians wanted.
 
-In a statement on Thursday, Harris said: “Today, we celebrate the release of Paul, Evan, Alsu, Vladimir, and others who were unjustly held in Russia. It gives me great comfort to know that their horrible ordeal is over and that they will soon be reunited with their families.”
+“Today, in spite of all of their suffering, it gives me great comfort to know that their horrible ordeal is finally over,” Harris told reporters Thursday. “Over many years, President Biden and I and our team have engaged in complex, diplomatic negotiations to bring wrongfully detained Americans home. We never stopped fighting for their release.”
 
 The prisoner swap required making hard choices for Biden and the other countries involved, in what amounted to a release of dissidents held by Russia in exchange for criminals.
 
@@ -53,6 +55,8 @@ A total of eight people, including Krasikov, were swapped back to Russia in exch
 A senior administration official defended the release of Krasikov as part of the deal.
 
 “He was certainly the biggest fish that the Russians wanted back. Nobody’s turning a blind eye to his crimes and to his connection to Russian intelligence services. But look, in order to secure the release of innocent people overseas and innocent Americans, you have to make some tough decisions,” the official said.
+
+This story has been updated with additional reaction.
 
 CNN’s MJ Lee, Jennifer Hansler, Kylie Atwood, Ivana Kottasova, Alex Marquardt, Betsy Klein, Donald Judd, Sam Fossum, Steve Contorno, Kit Maher and Jeff Zeleny contributed to this report.
 
