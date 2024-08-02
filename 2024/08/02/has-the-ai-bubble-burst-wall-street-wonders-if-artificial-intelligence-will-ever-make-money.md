@@ -1,6 +1,6 @@
 # Has the AI bubble burst? Wall Street wonders if artificial intelligence will ever make money
 
-Published :`2024-08-02 15:35:43`
+Published :`2024-08-02 16:18:54`
 
 ---
 
@@ -10,7 +10,7 @@ In the 18 months since ChatGPT kicked off an AI arms race, tech giants have prom
 
 But Big Tech still has relatively little to show for all their billions spent in terms of significant revenue gains from AI or profitable new products, and investors are starting to get antsy.
 
-Amazon’s (AMZN) lousy earnings and outlook Thursday could be mostly chalked up to concerns that it is spending a ton on AI without much to show for it. That dragged the stock down 9% in premarket trading Friday. Intel’s (INTC) stock plunged 21% in premarket trading after the company said its massive undertaking to adapt to the AI wave will cost it $10 billion and tens of thousands of layoffs.
+Amazon’s (AMZN) less-than-impressive earnings and outlook Thursday could be mostly chalked up to concerns that it is spending a ton on AI without much to show for it, at a time when its core business also faces hurdles. That dragged the stock down nearly 9% Friday. Intel’s (INTC) stock plunged 25% on Friday after the company said Thursday night that after big spending to adapt to the AI wave, it’s now trying to rein things in by cutting $10 billion in costs and laying off tens of thousands of workers.
 
 In short, investors’ fears can be boiled down to: is all of this actually worth anything? Or is it just another shiny object the industry is chasing to bring back its dreams of endless growth, before it abandons it and moves onto the next big thing?
 

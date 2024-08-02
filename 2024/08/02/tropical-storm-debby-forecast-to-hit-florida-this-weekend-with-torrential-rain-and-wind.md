@@ -1,12 +1,12 @@
 # Tropical Storm Debby forecast to hit Florida this weekend with torrential rain and wind
 
-Published :`2024-08-02 15:35:43`
+Published :`2024-08-02 16:18:54`
 
 ---
 
-A tropical storm warning has been issued and a state of emergency declared in parts of Florida in anticipation of Tropical Storm Debby which could unleash multiple days of heavy, flooding rainfall to the state and the southeast United States starting this weekend.
+A tropical storm warning has been issued and a state of emergency declared in parts of Florida in anticipation of Tropical Storm Debby – a storm that hasn’t yet formed but could unleash multiple days of heavy, flooding rainfall to the state and the southeast United States starting this weekend.
 
-The system has 30 mph winds and has been designated Potential Tropical Cyclone Four by the National Hurricane Center as it tries to get organized over parts of Cuba and the southern Bahamas Friday.
+The system has 30 mph winds and has been designated Potential Tropical Cyclone Four by the National Hurricane Center as it comes together over parts of Cuba and the southern Bahamas Friday.
 
 Track the Storm: Spaghetti models and more maps here
 
@@ -17,6 +17,10 @@ A tropical storm warning is in place from East Cape Sable to Bonita Beach and a 
 The storm’s exact track and strength are still uncertain. How much time the system spends over record-warm water in the eastern Gulf of Mexico will determine how strong it becomes.
 
 It will track parallel to Florida’s Gulf Coast for some time this weekend and strengthen as it does so, before curving east and making landfall. The system’s strength would be limited if it moves more quickly over Florida.
+
+“Since the forecast track is almost parallel to the west coast of the Florida Peninsula and the southeast coast of the US, only a small change in the track could lead to large changes in which land areas receive any landfalls and the biggest impacts,” the National Hurricane Center cautioned Friday.
+
+Where and when the storm comes ashore and how strong it is at that time will affect the risk of storm surge. For now, up to 3 feet of storm surge is possible this weekend along the coast from South Florida to north of Tampa Bay.
 
 No matter its strength, torrential, flooding rain will be the most significant impact from the storm, especially if the system were to slow down, a possible scenario.
 
