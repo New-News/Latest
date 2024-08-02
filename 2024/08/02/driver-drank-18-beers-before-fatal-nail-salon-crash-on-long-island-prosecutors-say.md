@@ -1,6 +1,6 @@
 # Driver drank 18 beers before fatal nail salon crash on Long Island, prosecutors say
 
-Published :`2024-08-02 05:37:11`
+Published :`2024-08-02 06:23:13`
 
 ---
 

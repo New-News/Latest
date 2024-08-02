@@ -1,6 +1,6 @@
 # Biden administration proposes new rule banning airlines from charging parents extra fees for their kids to sit next to them
 
-Published :`2024-08-02 05:37:12`
+Published :`2024-08-02 06:23:16`
 
 ---
 
