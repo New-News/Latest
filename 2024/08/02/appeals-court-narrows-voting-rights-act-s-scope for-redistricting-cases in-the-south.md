@@ -1,6 +1,6 @@
 # Appeals court narrows Voting Rights Act’s scope for redistricting cases in the South
 
-Published :`2024-08-02 10:37:58`
+Published :`2024-08-02 11:12:39`
 
 ---
 
