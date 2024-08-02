@@ -1,6 +1,6 @@
 # Dow dives more than 900 points after July jobs report misses expectations
 
-Published :`2024-08-02 15:15:56`
+Published :`2024-08-02 15:35:43`
 
 ---
 
