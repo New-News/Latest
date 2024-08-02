@@ -1,6 +1,6 @@
 # There are cracks forming in the US jobs market
 
-Published :`2024-08-02 06:23:15`
+Published :`2024-08-02 06:43:09`
 
 ---
 

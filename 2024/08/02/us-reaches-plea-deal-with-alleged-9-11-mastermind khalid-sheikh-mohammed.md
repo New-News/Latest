@@ -1,6 +1,6 @@
 # US reaches plea deal with alleged 9/11 mastermind Khalid Sheikh Mohammed
 
-Published :`2024-08-02 06:23:17`
+Published :`2024-08-02 06:43:11`
 
 ---
 
