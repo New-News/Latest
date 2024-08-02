@@ -1,6 +1,6 @@
 # Stocks fall sharply on weak July jobs data
 
-Published :`2024-08-02 18:20:25`
+Published :`2024-08-02 18:39:48`
 
 ---
 

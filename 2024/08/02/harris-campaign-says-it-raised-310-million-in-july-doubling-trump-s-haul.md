@@ -1,6 +1,6 @@
 # Harris campaign says it raised $310 million in July, doubling Trump’s haul
 
-Published :`2024-08-02 18:20:26`
+Published :`2024-08-02 18:39:48`
 
 ---
 

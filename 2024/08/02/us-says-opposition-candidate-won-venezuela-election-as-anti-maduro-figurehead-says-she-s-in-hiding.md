@@ -1,6 +1,6 @@
 # US says opposition candidate won Venezuela election as anti-Maduro figurehead says she’s in hiding
 
-Published :`2024-08-02 18:20:27`
+Published :`2024-08-02 18:39:47`
 
 ---
 
@@ -10,23 +10,25 @@ The United States has said “it is clear” that President Nicolas Maduro lost 
 
 “In addition, the United States rejects Maduro’s unsubstantiated allegations against opposition leaders. Maduro and his representatives’ threats to arrest opposition leaders, including Edmundo González and María Corina Machado, are an undemocratic attempt to repress political participation and retain power,” Blinken added.
 
-Protests broke out across Venezuela after the country’s electoral body, which is stacked with regime allies, announced Maduro as the winner with 51% of the votes.
+Maduro’s government has rejected the US statement as “ridiculous,” with Venezuela’s Foreign Minister Yvan Gil accusing the United States of attempting to orchestrate a coup.
+
+Protests broke out across Venezuela earlier this week after the country’s electoral body, which is stacked with regime allies, announced Maduro as the winner with 51% of the votes.
 
 The election was seen as the most consequential in years, with Venezuela’s stalling democracy and hopes of recovering its shattered economy on the line. Many young opposition supporters said they would leave the country if Maduro was re-elected, pointing to the devastating collapse of Venezuela’s economy and violent repression under his rule.
 
-National Assembly President Jorge Rodriguez, who is a member of Maduro’s inner circle, called for the arrest of opposition figure Machado and presidential candidate Edmundo Gonzalez on Tuesday. The country’s Public Ministry later clarified that no arrest warrant had been issued for either opposition figure.
+An energized opposition movement – which overcame their divisions to form a coalition and coalesce around presidential candidate Edmundo Gonzalez – enjoyed strong polling figures prior to the vote. It had been seen as the ruling establishment’s toughest challenge in 25 years.
 
-An energized opposition movement – which overcame their divisions to form a coalition and coalesce around Gonzalez – enjoyed strong polling figures prior to the vote. It had been seen as the ruling establishment’s toughest challenge in 25 years.
+On Tuesday after the vote, National Assembly President Jorge Rodriguez, who is a member of Maduro’s inner circle, called for the arrest of both Machado and Gonzalez. Though the country’s Public Ministry later clarified that no arrest warrant had been issued for either opposition figure, fears remain that they could be targeted by the state.
 
-A source from Machado’s campaign confirmed to CNN on Thursday that she is currently “sheltered.”
+“I am writing this from hiding, fearing for my life, my freedom,” Machado wrote in an opinion editorial published Thursday by The Wall Street Journal. “I could be captured as I write these words.” A source from Machado’s campaign told CNN that she is currently “sheltered.”
 
-“I am writing this from hiding, fearing for my life, my freedom,” Machado wrote in an opinion editorial published Thursday by The Wall Street Journal. “I could be captured as I write these words.”
+The opposition leader also said “most” of her team were currently in hiding, and that some, including those in the Argentine Embassy fear an “imminent raid.”
+
+### Allegations of foul play
 
 Though Maduro had promised free and fair elections, the process was marred with allegations of foul play – with opposition figures arrested, their key leader Machado banned from running, opposition witnesses allegedly denied access to the centralized vote count, and overseas Venezuelans largely unable to cast ballots.
 
 The Carter Center, one of the few independent institutions allowed to monitor the vote, said Tuesday that “Venezuela’s electoral process did not meet international standards of electoral integrity at any of its stages and violated numerous provisions of its own national laws.”
-
-Venezuela’s opposition and multiple Latin American leaders have refused to recognize Maduro’s victory. The United States had until Thursday been among numerous countries that have called on Venezuelan electoral officials to publish detailed results from the election.
 
 Machado says she can prove that Maduro didn’t win. “He lost in a landslide to Edmundo González, 67% to 30%,” she wrote in the WSJ.
 
@@ -36,15 +38,15 @@ On Tuesday, Machado posted on X a link to what she says are the results from Sun
 
 “We have known for years what tricks the regime uses, and we are well aware that the National Electoral Council (CNE) is entirely under its control. It was unthinkable that Mr. Maduro would concede defeat,” she wrote.
 
-CNN has reached out to Maduro’s government for comment. The CNE has yet to issue final vote tallies.
+Machado also called on the international community to get involved, warning in her op-ed that the world must decide whether it will “tolerate a demonstrably illegitimate government.”
+
+In his statement on Friday, Venezuelan Foreign Minister Gil asserted that Venezuela has one of the “most robust democracies in the world.”
+
+“The Venezuelan people spoke, exercised their right and reiterated their inalienable path of sovereignty, peace and the construction of socialism to guarantee the greatest sum of happiness,” he said.
+
+The CNE has yet to issue final vote tallies.
 
 ### ‘The repression must stop’
-
-The opposition leader said “most” of her team were currently in hiding and some, including those in the Argentine Embassy fear an “imminent raid.”
-
-Machado ended her article by saying it is “now it is up to the international community to decide whether to tolerate a demonstrably illegitimate government.”
-
-“The repression must stop immediately, so that an urgent agreement can take place to facilitate the transition to democracy. I call on those who reject authoritarianism and support democracy to join the Venezuelan people in our noble cause,” she said.
 
 Deadly protests in Venezuela have seen more than 1,000 people detained, according to Venezuelan authorities.
 
