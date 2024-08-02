@@ -1,6 +1,6 @@
 # Mississippi’s Addie Carver wins controversy-hit Miss Teen USA pageant
 
-Published :`2024-08-02 14:36:40`
+Published :`2024-08-02 15:15:57`
 
 ---
 

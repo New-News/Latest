@@ -1,6 +1,6 @@
 # Some Jewish Democrats wonder if America is ready for a Jewish vice president
 
-Published :`2024-08-02 14:36:40`
+Published :`2024-08-02 15:15:56`
 
 ---
 
@@ -22,7 +22,7 @@ Among even many Jewish Democrats who are Shapiro fans, excitement about the pros
 
 “Is the antisemitism going to increase because now you’d have the person who sleeps next to her and the person who would be her closest political ally are both Jewish?” asked one Jewish former Democratic statewide leader outside of Pennsylvania who is a Shapiro fan. “Does it make it more dangerous for those of us in the Jewish community?”
 
-Rep. Greg Landsman – an Ohio congressman whose tattoos include a passage from the Book of Micah in Hebrew on his left shoulder – said it’s a real question of whether the America would be ready for a Jewish vice president, or at least a Jewish running mate.
+Rep. Greg Landsman – an Ohio congressman whose tattoos include a passage from the Book of Micah in Hebrew on his left shoulder – said it’s a real question of whether America would be ready for a Jewish vice president, or at least a Jewish running mate.
 
 “Some folks would be, others no,” Landsman told CNN. “There is a lot of Jew hate out there. I’ve experienced it. We all have. And there are folks on the far right that have made it worse, and folks on the far left that have made it worse. But that’s true for most issues.”
 
@@ -56,7 +56,7 @@ Rendell said he believes things have changed in the last 45 years.
 
 ### Activist Jewish roots all the way back to his bar mitzvah
 
-Shapiro has been keeping a low profile though the vetting process and declined through a spokesperson to be interviewed. But speaking to CNN on his campaign bus riding through western Pennsylvania in late October 2022, days before being elected governor, Shapiro said he was eager for people to know about his connection to Judaism.
+Shapiro has been keeping a low profile through the vetting process and declined through a spokesperson to be interviewed. But speaking to CNN on his campaign bus riding through western Pennsylvania in late October 2022, days before being elected governor, Shapiro said he was eager for people to know about his connection to Judaism.
 
 “That is what motivates me. It really is. I think if you want to be someone’s governor, they’ve got to know who you are as a person, what motivates you,” Shapiro told CNN. “That’s why I always talk about it. I talk about my faith because I want people to know what calls me to service.”
 
