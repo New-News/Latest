@@ -1,6 +1,6 @@
 # Biden celebrates prisoner deal and importance of allies in key moment for his legacy
 
-Published :`2024-08-02 03:37:41`
+Published :`2024-08-02 04:19:23`
 
 ---
 
@@ -8,7 +8,11 @@ Thursday’s massive multi-country prisoner swap with Russia – touted by the U
 
 The prisoner exchange, which included Wall Street Journal reporter Evan Gershkovich and former US Marine Paul Whelan, was Biden’s first major foreign policy action since announcing last month he was ending his reelection bid and endorsing his Vice President Kamala Harris. The agreement involved months of complex negotiations with allies and adversaries alike, involving seven countries and 24 prisoners.
 
-Flanked by the families of the prisoners who were released, Biden spoke from the White House Thursday and praised the US alliances that helped make the deal possible – an implicit knock of Donald Trump’s criticisms of NATO in a moment that injects a new dynamic into the presidential race between the former president and Harris.
+Biden and Harris greeted Whelan, Gershkovich and Russian-American journalist Alsu Kurmasheva at Joint Base Andrews in Maryland late Thursday night after the freed Americans had touched down on US soil. Their families were also waiting on the tarmac to receive them.
+
+“I was absolutely convinced we could get it done,” Biden told reporters after watching the emotional family reunions. “I meant it when I said, ‘Alliances make a difference.’ They stepped up and took a chance for us, and it mattered a lot.”
+
+Flanked earlier in the day by the families of the prisoners who were released, Biden spoke from the White House and praised the US alliances that helped make the deal possible – an implicit knock of Donald Trump’s criticisms of NATO in a moment that injects a new dynamic into the presidential race between the former president and Harris.
 
 “Anyone who questions if allies matter: They do,” Biden said, raising his voice. “They matter. Today is a powerful example of why it’s vital to have friends in this world. Friends you could trust, work with, and depend upon, especially in matters of great consequence and sensitivity like this.”
 
@@ -50,15 +54,13 @@ The prisoner swap required making hard choices for Biden and the other countries
 
 The massive swap was the result of months of complicated behind-the-scenes negotiations involving the US, Russia and Germany and several other countries, ultimately leading Berlin to agree to release Moscow’s key demand of Krasikov. At least seven countries played a role in the expansive deal.
 
-A total of eight people, including Krasikov, were swapped back to Russia in exchange for the release of 16 people who were held in Russian detention, including four Americans. In addition to Whelan and Gershkovich, prominent Putin critic Vladimir Kara-Murza, who is a US permanent resident, and Russian-American journalist Alsu Kurmasheva were also freed.
+A total of eight people, including Krasikov, were swapped back to Russia in exchange for the release of 16 people who were held in Russian detention, including four Americans. In addition to Whelan, Gershkovich and Kurmasheva, prominent Putin critic Vladimir Kara-Murza, who is a US permanent resident, was also freed.
 
 A senior administration official defended the release of Krasikov as part of the deal.
 
 “He was certainly the biggest fish that the Russians wanted back. Nobody’s turning a blind eye to his crimes and to his connection to Russian intelligence services. But look, in order to secure the release of innocent people overseas and innocent Americans, you have to make some tough decisions,” the official said.
 
-This story has been updated with additional reaction.
-
-CNN’s MJ Lee, Jennifer Hansler, Kylie Atwood, Ivana Kottasova, Alex Marquardt, Betsy Klein, Donald Judd, Sam Fossum, Steve Contorno, Kit Maher and Jeff Zeleny contributed to this report.
+This story has been updated with additional developments.
 
 ---
 

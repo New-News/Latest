@@ -1,6 +1,6 @@
 # US Army captain becomes first female nurse to graduate from the Army’s elite Ranger Course
 
-Published :`2024-08-02 03:37:43`
+Published :`2024-08-02 04:19:28`
 
 ---
 

@@ -1,6 +1,6 @@
 # Biden weighs more US defenses for Israel as the region prepares for Iranian retaliation
 
-Published :`2024-08-02 03:37:41`
+Published :`2024-08-02 04:19:23`
 
 ---
 
@@ -13,6 +13,12 @@ The statement did not detail what new deployments would occur ahead of an antici
 The USS Theodore Roosevelt carrier strike group, which includes the aircraft carrier, destroyers and other warships, has been operating in the Gulf of Oman in recent weeks. The strike group could potentially move into the Gulf of Aden or the Red Sea, where Navy warships have intercepted dozens of Houthi launches over the past several months.
 
 The USS Wasp amphibious assault ship and several other Navy vessels are currently operating in the Mediterranean Sea. The group includes a Marine expeditionary unit capable of carrying out an evacuation of American citizens from Lebanon if the US ordered such an evacuation.
+
+Biden said late Thursday night he is “very concerned” about escalating tensions in the Middle East.
+
+“We’re very concerned about it. I had a very direct meeting with (Prime Minister Benjamin Netanyahu) today. And – very direct. We have the basis for a ceasefire. He should move on it, and they should move on it now,” Biden told reporters at Joint Base Andrews.
+
+Asked whether the assassination of Haniyah impacted the chance of a ceasefire, he said it has “not helped.”
 
 Iran’s Islamic Revolutionary Guard Corps (IRGC) promised a “harsh” and “painful” response to the assassination. Israel has not commented on the killing.
 
@@ -33,6 +39,8 @@ Hezbollah leader Hassan Nasrallah hinted that a coordinated attack on Israel cou
 “Because they have picked a fight with everyone, they don’t know where the response will come from … the response will come separately or coordinated,” he said in a speech Thursday.
 
 The US still believes that no one in the region is interested in an all-out war engulfing the Middle East, officials say, but a potential miscalculation risks sparking a broader conflict.
+
+This story has been updated with additional details.
 
 ---
 

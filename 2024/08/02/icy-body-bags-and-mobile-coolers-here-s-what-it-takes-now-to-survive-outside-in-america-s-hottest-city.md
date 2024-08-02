@@ -1,6 +1,6 @@
 # Icy body bags and mobile coolers: Here’s what it takes now to survive outside in America’s hottest city
 
-Published :`2024-08-02 03:37:44`
+Published :`2024-08-02 04:19:29`
 
 ---
 
