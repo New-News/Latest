@@ -1,6 +1,6 @@
 # US says Maduro lost Venezuela election as opposition leader says she’s in hiding
 
-Published :`2024-08-02 22:15:02`
+Published :`2024-08-02 22:36:39`
 
 ---
 
@@ -35,6 +35,14 @@ Machado says she can prove that Maduro didn’t win. “He lost in a landslide t
 “I know this to be true because I can prove it,” she claimed. “I have receipts obtained directly from more than 80% of the nation’s polling stations,” she wrote, claiming to have known Maduro’s government “was going to cheat.”
 
 Venezuela’s National Electoral Council (CNE) is controlled by Maduro. On Friday, the CNE released a bulletin with updated results of Venezuela’s presidential elections, five days after the process ended. With 96.87% of the ballots transmitted, Maduro obtained 51.95% of the votes while opposition candidate Edmundo González reached 43.18%, CNE President Elvis Amoroso claimed.
+
+According to the Organization of American States (OAS), the five-day delay in publishing these electoral records is the longest in the history of the region. The OAS said Friday that the records should have been made public on Sunday night.
+
+The OAS statement also emphasized the need to verify voting records to corroborate the vote results.
+
+Also on Friday afternoon, Venezuela’s Supreme Justice Tribunal (TSJ), the highest court in the country, took control of the electoral process. The tribunal asked all ten presidential candidates and the CNE to hand over “legal documents of judicial relevance” so that it could investigate and certify the election results, in a statement from the court’s President Caryslia Rodríguez.
+
+According to a Venezuelan non-governmental organization, Access to Justice, nearly all members of the TSJ’s board have proven links to Maduro’s governing socialist party.
 
 On Tuesday, Machado posted on X a link to what she says are the results from Sunday’s election. CNN has not independently confirmed the election data posted by Machado.
 

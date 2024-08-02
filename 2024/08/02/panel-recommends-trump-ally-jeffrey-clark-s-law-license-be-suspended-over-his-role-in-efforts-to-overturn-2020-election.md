@@ -1,6 +1,6 @@
 # Panel recommends Trump ally Jeffrey Clark’s law license be suspended over his role in efforts to overturn 2020 election
 
-Published :`2024-08-02 22:15:03`
+Published :`2024-08-02 22:36:41`
 
 ---
 
