@@ -1,6 +1,6 @@
 # Trump’s political operation says it raised nearly $139 million in July
 
-Published :`2024-08-02 08:39:28`
+Published :`2024-08-02 09:16:44`
 
 ---
 
