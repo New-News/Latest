@@ -1,6 +1,6 @@
 # After being traded in the middle of a series, MLB player takes short walk across stadium to new team
 
-Published :`2024-08-02 07:15:12`
+Published :`2024-08-02 07:35:49`
 
 ---
 
