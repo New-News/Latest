@@ -1,6 +1,6 @@
 # How Pete Buttigieg’s 2020 campaign built the base driving his VP buzz
 
-Published :`2024-08-02 17:14:01`
+Published :`2024-08-02 17:35:52`
 
 ---
 
@@ -32,7 +32,9 @@ The call raised about $16,000 for the Harris campaign, according to Joseph Guari
 
 Harris is expected to make her decision by Tuesday, when she and her running mate will hold a rally in Philadelphia. Among the candidates she is considering, Buttigieg is not considered a top contender on the level of Pennsylvania Gov. Josh Shapiro, Arizona Sen. Mark Kelly and Minnesota Gov. Tim Walz, CNN reported this week.
 
-This week, though, he joined the list of vice presidential hopefuls to cancel a planned event with limited explanation. Buttigieg is scheduled to tour manufacturing training labs at a community college in Kokomo, Indiana, on Friday and hold a press availability, but a Department of Transportation spokesperson said he would no longer be hosting a roadway safety roundtable later in the day due to “unforeseen scheduling constraints.”
+This week, though, he joined the list of vice presidential hopefuls to cancel a planned event with limited explanation. Buttigieg toured a manufacturing training labs at a community college in Kokomo, Indiana, on Friday and spoke with reporters, but a Department of Transportation spokesperson said he would no longer be hosting a roadway safety roundtable later in the day due to “unforeseen scheduling constraints.”
+
+Asked Friday if he could explain what those conflicts were, Buttigieg responded, “No.”
 
 Buttigieg is among the contenders expected to meet with Harris over the weekend, either virtually or in person, as she nears a decision, a source familiar with the vetting process told CNN.
 
@@ -59,6 +61,8 @@ Nina Smith, a traveling press secretary for the Buttigieg 2020 campaign, pointed
 And if it doesn’t work out this time, there’s always next time.
 
 “I definitely think in my lifetime he will be on a ticket,” said Brandon Neal, a Democratic strategist and senior adviser to the 2020 campaign. “There’s no doubt about it. It’s just a matter of when.”
+
+This story has been updated with additional reporting.
 
 ---
 
