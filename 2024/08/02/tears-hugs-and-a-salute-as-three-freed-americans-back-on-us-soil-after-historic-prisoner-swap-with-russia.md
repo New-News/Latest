@@ -1,6 +1,6 @@
 # Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia
 
-Published :`2024-08-02 09:35:32`
+Published :`2024-08-02 10:16:08`
 
 ---
 
@@ -32,17 +32,19 @@ In a statement earlier Thursday, Biden hailed the agreement as a “feat of dipl
 
 “Some of these women and men have been unjustly held for years. All have endured unimaginable suffering and uncertainty. Today, their agony is over,” said Biden, who hosted the families of Gershkovich, Whelan, Kurmasheva and Kara-Murza at the White House.
 
-Whelan, Gershkovich and Kurmasheva flew roughly 10 hours from Ankara, Turkey, on top of a three hour and 45 minute flight from Moscow to Ankara.
+Whelan, Gershkovich and Kurmasheva flew roughly 10 hours from Ankara, Turkey, on top of a three-hour-and-45-minute flight from Moscow to Ankara.
 
 They were accompanied on their return plane by multiple medics, a psychologist and US government officials including representatives from the National Security Council and State Department, a US official told CNN.
 
-A little less than two hours after touching down at Joint Base Andrews, the three Americans and some of their family members continued on to San Antonio where they landed early Friday morning.
+A little less than two hours after touching down at Joint Base Andrews, the three Americans and some of their family members continued on to San Antonio where they landed early Friday morning. At Kelly Field, Whelan thanked US authorities for their efforts to bring him home and criticized Putin’s government for their “nonsense narrative” that accused him of espionage. “I’m never going back there again,” Whelan joked, referring to Russa.
 
-There they will be taken to Brooke Army Medical Center to undergo medical evaluation and receive whatever care they need for as long as they need, the US official said.
+The three Americans will be taken to Brooke Army Medical Center to undergo medical evaluation and receive whatever care they need for as long as they need, the US official said.
 
 This is typical protocol for wrongfully detained Americans who return home. WNBA player Brittney Griner also went to the center right after she was released from Russian detention in December 2022.
 
-The returnees will also have the option to participate in a Defense Department program called PISA (Post Isolation Support Activities), which is meant to help them readjust to being back in the United States. Many recently freed US wrongful detainees have undergone this program to help them acclimate back to normal life.
+The returnees will also participate in a Defense Department program called PISA (Post Isolation Support Activities), which is meant to help them readjust to being back in the United States. Many recently freed US wrongful detainees have undergone this program to help them acclimate back to normal life.
+
+This story has been updated with additional developments.
 
 ---
 
