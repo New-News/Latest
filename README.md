@@ -1,14 +1,14 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-02 04:39:49`
+#### Latest Update : `2024-08-02 05:15:26`
 
 ## Latest News Grabbing 
 
 ---
 
-- [House Freedom Caucus chair concedes Virginia primary to Trump-backed foe after recount](https://new-news.github.io/Latest/2024/08/02/house-freedom-caucus-chair-concedes-virginia-primary-to-trump-backed-foe-after-recount 'House Freedom Caucus chair concedes Virginia primary to Trump-backed foe after recount')
-
 - [Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia](https://new-news.github.io/Latest/2024/08/02/tears-hugs-and-a-salute-as-three-freed-americans-back-on-us-soil-after-historic-prisoner-swap-with-russia 'Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia')
+
+- [House Freedom Caucus chair concedes Virginia primary to Trump-backed foe after recount](https://new-news.github.io/Latest/2024/08/02/house-freedom-caucus-chair-concedes-virginia-primary-to-trump-backed-foe-after-recount 'House Freedom Caucus chair concedes Virginia primary to Trump-backed foe after recount')
 
 - [Biden weighs more US defenses for Israel as the region prepares for Iranian retaliation](https://new-news.github.io/Latest/2024/08/02/biden-weighs-more-us-defenses-for-israel-as-the-region-prepares-for-iranian-retaliation 'Biden weighs more US defenses for Israel as the region prepares for Iranian retaliation')
 
