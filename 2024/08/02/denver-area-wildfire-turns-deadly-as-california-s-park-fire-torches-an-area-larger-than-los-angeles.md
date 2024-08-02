@@ -1,6 +1,6 @@
 # Denver-area wildfire turns deadly as California’s Park Fire torches an area larger than Los Angeles
 
-Published :`2024-08-02 10:16:10`
+Published :`2024-08-02 10:38:01`
 
 ---
 

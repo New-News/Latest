@@ -1,6 +1,6 @@
 # ‘Saturday Night Live’ cast member Punkie Johnson will not be returning next season
 
-Published :`2024-08-02 10:16:09`
+Published :`2024-08-02 10:37:58`
 
 ---
 
