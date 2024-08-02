@@ -1,6 +1,6 @@
 # Biden weighs more US defenses for Israel as the region prepares for Iranian retaliation
 
-Published :`2024-08-02 21:15:09`
+Published :`2024-08-02 21:37:12`
 
 ---
 

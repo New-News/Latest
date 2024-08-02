@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says
 
-Published :`2024-08-02 21:15:06`
+Published :`2024-08-02 21:37:11`
 
 ---
 
@@ -8,7 +8,7 @@ D’Vontaye Mitchell, the 43-year-old man who was pinned to the ground in June b
 
 The manner of death is homicide, the report states.
 
-CNN has reached out to the Milwaukee County District Attorney’s Office for comment about whether it will pursue criminal charges in the case.
+When asked by CNN whether the Milwaukee County District Attorney’s Office plans to pursue or file charges in the case, the office said: “Right now, we have no comment.”
 
 Mitchell died June 30 after he was pinned down by hotel security guards in an incident partially captured on video. Hotel employees have been fired since the incident, and police have referred four charges of felony murder in Mitchell’s death, Milwaukee police said in a statement to CNN at the time. A homicide investigation is ongoing.
 

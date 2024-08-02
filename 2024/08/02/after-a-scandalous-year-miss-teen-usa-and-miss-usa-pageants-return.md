@@ -1,6 +1,6 @@
 # After a scandalous year, Miss Teen USA and Miss USA pageants return
 
-Published :`2024-08-02 21:15:12`
+Published :`2024-08-02 21:37:13`
 
 ---
 

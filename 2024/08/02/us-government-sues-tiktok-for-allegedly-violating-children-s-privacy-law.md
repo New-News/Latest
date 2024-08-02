@@ -1,6 +1,6 @@
 # US government sues TikTok for allegedly violating children’s privacy law
 
-Published :`2024-08-02 21:15:07`
+Published :`2024-08-02 21:37:11`
 
 ---
 

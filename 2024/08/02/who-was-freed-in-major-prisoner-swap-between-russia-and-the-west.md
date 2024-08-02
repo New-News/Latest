@@ -1,6 +1,6 @@
 # Who was freed in major prisoner swap between Russia and the West?
 
-Published :`2024-08-02 21:15:06`
+Published :`2024-08-02 21:37:11`
 
 ---
 
@@ -144,9 +144,13 @@ Ilya Yashin, 41
 
 Kremlin critic Ilya Yashin was sentenced to eight years and six months for spreading “false information” about the Russian army in December 2022.
 
-Yashin, a close ally of the late Russian opposition leader Alexey Navalny,  was convicted of spreading “false” statements about the circumstances of the killings of Ukrainian civilians by Russian troops in Bucha, a town north of Kyiv.
+Yashin, a close ally of the late Russian opposition leader Alexey Navalny, was convicted of spreading “false” statements about the circumstances of the killings of Ukrainian civilians by Russian troops in Bucha, a town north of Kyiv.
+
+Yashin understood his imprisonment not only as a protest against Russia’s invasion of Ukraine but as a struggle to “defend my right to say what I wanted.”
 
 Russia criminalized criticism of the military following its full-scale invasion of Ukraine last year. The court said he would serve his sentence “in a strict regime correctional colony.”
+
+Yashin recounted on Friday how he was asked to request a presidential pardon, days before his exchange: “I could not bring myself to acknowledge Putin as President. Putin, whom I considered to be a war criminal, a tyrant and a murderer. I will not petition for mercy from such a man,” he told a journalists in Bonn, Germany.
 
 Alexandra Skochilenko, 33
 
@@ -177,6 +181,8 @@ Andrei Pivovarov, 42
 An opposition activist and human rights defender, Pivovarov served as the head of the since banned Open Russia movement. He was sentenced to four years in a penal colony in July 2022, according to Amnesty International.
 
 Correction: This story has been updated to correct the year when Vadim Konoshchenok was extradited.
+
+CNN’s Duarte Mendonça, Caitlin Danaher, and Avery Schmitz contributed to this report.
 
 ---
 

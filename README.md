@@ -1,10 +1,14 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-02 21:15:14`
+#### Latest Update : `2024-08-02 21:37:14`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Who was freed in major prisoner swap between Russia and the West?](https://new-news.github.io/Latest/2024/08/02/who-was-freed-in-major-prisoner-swap-between-russia-and-the-west 'Who was freed in major prisoner swap between Russia and the West?')
+
+- [D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says](https://new-news.github.io/Latest/2024/08/02/dvontayemitchellwhodiedafterbeingpinnedtothegroundinmilwaukeediedfromasphyxiaanddrugsautopsyreportsays 'D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says')
 
 - [‘Saturday Night Live’ cast member Punkie Johnson will not be returning next season](https://new-news.github.io/Latest/2024/08/02/saturday-night-live-cast-member-punkie-johnson-will-not-be-returning-next-season '‘Saturday Night Live’ cast member Punkie Johnson will not be returning next season')
 
@@ -12,15 +16,11 @@
 
 - [Suspect charged with hate crime, criminal mischief for vandalizing home of Jewish director of Brooklyn Museum, NYPD says](https://new-news.github.io/Latest/2024/08/02/suspect-charged-with hate-crime-criminal-mischief for-vandalizing-home-of-jewish-director-of-brooklyn-museum-nypd-says 'Suspect charged with hate crime, criminal mischief for vandalizing home of Jewish director of Brooklyn Museum, NYPD says')
 
-- [Who was freed in major prisoner swap between Russia and the West?](https://new-news.github.io/Latest/2024/08/02/who-was-freed-in-major-prisoner-swap-between-russia-and-the-west 'Who was freed in major prisoner swap between Russia and the West?')
-
 - [‘SNL’ star Molly Kearney is also leaving the show ahead of Season 50](https://new-news.github.io/Latest/2024/08/02/snl-star-molly-kearney-is-also-leaving-the-show-ahead-of-season-50 '‘SNL’ star Molly Kearney is also leaving the show ahead of Season 50')
 
 - [Dow closes more than 600 points lower after weak July jobs data](https://new-news.github.io/Latest/2024/08/02/dow-closes-more-than-600-points-lower-after-weak-july-jobs-data 'Dow closes more than 600 points lower after weak July jobs data')
 
 - [A critical system of Atlantic Ocean currents could collapse as early as the 2030s, new research suggests](https://new-news.github.io/Latest/2024/08/02/acriticalsystemofatlanticoceancurrentscouldcollapseasearlyasthe2030snewresearchsuggests 'A critical system of Atlantic Ocean currents could collapse as early as the 2030s, new research suggests')
-
-- [D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says](https://new-news.github.io/Latest/2024/08/02/dvontayemitchellwhodiedafterbeingpinnedtothegroundinmilwaukeediedfromasphyxiaanddrugsautopsyreportsays 'D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says')
 
 - [Bird flu cases are going undetected, new study suggests. It’s a problem for all of us.](https://new-news.github.io/Latest/2024/08/02/bird-flu-cases-are-going-undetected-new-study-suggests-it-s-a-problem-for-all-of-us 'Bird flu cases are going undetected, new study suggests. It’s a problem for all of us.')
 

@@ -1,6 +1,6 @@
 # Hamas leader Ismail Haniyeh was killed in Iran by bomb planted months before blast, source says
 
-Published :`2024-08-02 21:15:12`
+Published :`2024-08-02 21:37:13`
 
 ---
 
