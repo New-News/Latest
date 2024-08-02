@@ -1,6 +1,6 @@
 # Violent scenes as far-right protesters ‘hijack’ vigil for 3 girls killed in Southport knife attack
 
-Published :`2024-08-02 07:35:49`
+Published :`2024-08-02 08:19:02`
 
 ---
 

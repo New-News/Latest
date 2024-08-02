@@ -1,6 +1,6 @@
 # Venice limits tour groups to 25 and bans megaphones in fightback against overtourism
 
-Published :`2024-08-02 07:35:49`
+Published :`2024-08-02 08:19:02`
 
 ---
 

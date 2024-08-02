@@ -1,6 +1,6 @@
 # Deputy who killed Sonya Massey was removed from the Army, had DUIs and needed ‘high stress decision’ classes, records show
 
-Published :`2024-08-02 07:35:49`
+Published :`2024-08-02 08:19:00`
 
 ---
 

@@ -1,6 +1,6 @@
 # UK police examining allegations Washington Post publisher purposely deleted emails in phone hacking scandal
 
-Published :`2024-08-02 07:35:50`
+Published :`2024-08-02 08:19:05`
 
 ---
 
