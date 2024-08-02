@@ -1,6 +1,6 @@
 # India searches for survivors after landslides kill more than 150 in Kerala
 
-Published :`2024-08-02 08:19:00`
+Published :`2024-08-02 08:39:28`
 
 ---
 

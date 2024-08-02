@@ -1,6 +1,6 @@
 # Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia
 
-Published :`2024-08-02 08:18:56`
+Published :`2024-08-02 08:39:27`
 
 ---
 
@@ -36,7 +36,7 @@ Whelan, Gershkovich and Kurmasheva flew roughly 10 hours from Ankara, Turkey, on
 
 They were accompanied on their return plane by multiple medics, a psychologist and US government officials including representatives from the National Security Council and State Department, a US official told CNN.
 
-A little less than two hours after touching down at Joint Base Andrews, the three Americans and some of their family members continued on to San Antonio.
+A little less than two hours after touching down at Joint Base Andrews, the three Americans and some of their family members continued on to San Antonio where they landed early Friday morning.
 
 There they will be taken to Brooke Army Medical Center to undergo medical evaluation and receive whatever care they need for as long as they need, the US official said.
 
