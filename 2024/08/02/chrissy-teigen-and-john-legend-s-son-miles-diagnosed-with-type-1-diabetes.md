@@ -1,6 +1,6 @@
 # Chrissy Teigen and John Legend’s son Miles diagnosed with type 1 diabetes
 
-Published :`2024-08-02 09:16:47`
+Published :`2024-08-02 09:35:34`
 
 ---
 

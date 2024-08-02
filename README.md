@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-02 09:16:50`
+#### Latest Update : `2024-08-02 09:35:36`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Who was freed in major prisoner swap between Russia and the West?](https://new-news.github.io/Latest/2024/08/02/who-was-freed-in-major-prisoner-swap-between-russia-and-the-west 'Who was freed in major prisoner swap between Russia and the West?')
 
 - [Overwhelmed by heat? The culprit may be in your medicine cabinet](https://new-news.github.io/Latest/2024/08/02/overwhelmed-by-heat-the-culprit-may-be-in-your-medicine-cabinet 'Overwhelmed by heat? The culprit may be in your medicine cabinet')
 
@@ -77,8 +79,6 @@
 - [Russia releases Evan Gershkovich and Paul Whelan in historic prisoner swap with West](https://new-news.github.io/Latest/2024/08/02/russia-releases-evan-gershkovich-and-paul-whelan-in-historic-prisoner-swap-with-west 'Russia releases Evan Gershkovich and Paul Whelan in historic prisoner swap with West')
 
 - [Violence erupts as Nigerians protest hunger across the nation](https://new-news.github.io/Latest/2024/08/02/violence-erupts-as-nigerians-protest-hunger-across-the-nation 'Violence erupts as Nigerians protest hunger across the nation')
-
-- [Who was freed in major prisoner swap between Russia and the West?](https://new-news.github.io/Latest/2024/08/02/who-was-freed-in-major-prisoner-swap-between-russia-and-the-west 'Who was freed in major prisoner swap between Russia and the West?')
 
 - [Britney Spears memoir ‘The Woman in Me’ headed to the big screen](https://new-news.github.io/Latest/2024/08/02/britney-spears-memoir-the-woman-in-me-headed-to-the-big-screen 'Britney Spears memoir ‘The Woman in Me’ headed to the big screen')
 

@@ -1,6 +1,6 @@
 # Who was freed in major prisoner swap between Russia and the West?
 
-Published :`2024-08-02 09:16:45`
+Published :`2024-08-02 09:35:32`
 
 ---
 
@@ -28,7 +28,7 @@ Earlier this year, a top aide to Alexey Navalny said the Russian opposition lead
 
 Vadim Konoshchenok, 48
 
-Extradited to the US from Estonia earlier this month, Konoshchenok was facing charges of conspiracy over his role in a global procurement and money laundering network on behalf of the Russian government, according to the US Attorney’s Office for the Eastern District of New York.
+Extradited to the US from Estonia in July 2023, Konoshchenok was facing charges of conspiracy over his role in a global procurement and money laundering network on behalf of the Russian government, according to the US Attorney’s Office for the Eastern District of New York.
 
 The US Attorney’s Office said in a statement that Konoshchenok is a Russian citizen with alleged ties to the FSB, the Russian intelligence agency. He is accused of being part of a scheme to provide sensitive, American-made electronics and ammunition to Russia, violating US export controls, economic sanctions and other criminal statutes.
 
@@ -112,7 +112,7 @@ Kevin Lik, 18
 
 Kevin Lik, a dual citizen of Russia and Germany, was convicted of high treason in December 2023, according to the Russian state news agency TASS.
 
-TASS said Lick was accused of photographing and filming military equipment and personnel at the Maikop garrison in Russia. According to the court, he intended to provide the information to German intelligence.
+TASS said Lik was accused of photographing and filming military equipment and personnel at the Maikop garrison in Russia. According to the court, he intended to provide the information to German intelligence.
 
 Demuri (Dieter) Voronin  (age unknown)
 
@@ -169,6 +169,8 @@ Another former staffer in Alexei Navalny’s foundation, Ostanin was sentenced t
 Andrei Pivovarov, 42
 
 An opposition activist and human rights defender, Pivovarov served as the head of the since banned Open Russia movement. He was sentenced to four years in a penal colony in July 2022, according to Amnesty International.
+
+Correction: This story has been updated to correct the year when Vadim Konoshchenok was extradited.
 
 ---
 
