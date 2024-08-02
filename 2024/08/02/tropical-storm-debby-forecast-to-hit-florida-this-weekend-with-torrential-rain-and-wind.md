@@ -1,6 +1,6 @@
 # Tropical Storm Debby forecast to hit Florida this weekend with torrential rain and wind
 
-Published :`2024-08-02 21:37:11`
+Published :`2024-08-02 22:15:02`
 
 ---
 
@@ -12,7 +12,11 @@ Track the Storm: Spaghetti models and more maps here
 
 It’s forecast to become a tropical depression by Saturday morning, once it emerges out over the water between Cuba and Florida, and strengthen into Tropical Storm Debby by Saturday evening.
 
-A tropical storm warning is in place from East Cape Sable to Bonita Beach and a tropical storm watch is in place for parts of the Florida Keys and parts of the Central Florida coast, warning residents there to prepare for tropical storm conditions within the next 48 hours. The watch includes Fort Myers, Cape Coral and Tampa Bay.
+Tropical storm watches and warnings have been extended northward in Florida, according to the 5 p.m. ET advisory from the National Hurricane Center.
+
+The tropical storm warning has been extended along the west coast of the Florida peninsula from Bonita Beach to Boca Grande. Meanwhile, the tropical storm watch has been extended northward from Aripeka to the mouth of the Suwannee River.
+
+Parts of the Florida Keys and parts of the Central Florida coast are also under a tropical storm watch, with officials urging residents there to prepare for tropical storm conditions within the next 48 hours. The watch includes Fort Myers, Cape Coral and Tampa Bay.
 
 The storm’s exact track and strength are still uncertain. How much time the system spends over record-warm water in the eastern Gulf of Mexico will determine how strong it becomes.
 
