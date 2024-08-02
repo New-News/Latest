@@ -1,6 +1,6 @@
 # Inmate sentenced to more than 4 years in prison killing of Boston gangster James ‘Whitey’ Bulger
 
-Published :`2024-08-02 01:08:20`
+Published :`2024-08-02 02:22:09`
 
 ---
 

@@ -1,6 +1,6 @@
 # A third girl has died in the UK after one of the worst attacks on children in decades. Here’s what to know
 
-Published :`2024-08-02 01:08:21`
+Published :`2024-08-02 02:22:11`
 
 ---
 
