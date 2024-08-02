@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says
 
-Published :`2024-08-02 19:37:02`
+Published :`2024-08-02 20:16:24`
 
 ---
 
@@ -15,6 +15,12 @@ Mitchell died June 30 after he was pinned down by hotel security guards in an 
 “This 43-year-old male was restrained by four people after being combative in the hotel lobby,” an investigation report from the medical examiner’s office states. “He reportedly went unresponsive while staff awaited police arrival. Illicit drug paraphernalia was found on his person. The decedent was conveyed to this office for an autopsy.”
 
 The encounter unfolded as the use of force – particularly against people of color – by police and others in authority roles remains under scrutiny nearly four years after protests flared nationwide following the murder of George Floyd by a Minneapolis police officer.
+
+In a statement, civil rights attorney Ben Crump, who represents the Mitchell family, said the findings from the medical examiner’s report “demand immediate charges against the officers involved.”
+
+Mitchell’s mother believes he was suffering from a mental health episode, and cell phone video footage corroborates accounts of witnesses who reported seeing “three to four security guards with their knees on Mitchell’s neck and back and one of them striking him in the head with an object.”
+
+“Mitchell was in the midst of a mental health crisis and, instead of abiding by their duty to protect and serve, the security officers and other Hyatt staff used excessive force that inflicted injury resulting in death,” the statement continued. “We will not rest until we achieve justice for Mitchell and his grieving family.”
 
 ### New details emerge about what happened
 
