@@ -1,6 +1,6 @@
 # Suspect in Arkansas grocery store mass shooting faces additional charges
 
-Published :`2024-08-02 13:18:01`
+Published :`2024-08-02 13:35:36`
 
 ---
 

@@ -1,6 +1,6 @@
 # Israeli military says it killed Hamas chief Mohammed Deif in Gaza last month
 
-Published :`2024-08-02 13:18:03`
+Published :`2024-08-02 13:35:37`
 
 ---
 
