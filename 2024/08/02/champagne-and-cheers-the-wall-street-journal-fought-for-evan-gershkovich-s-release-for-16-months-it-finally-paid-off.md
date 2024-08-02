@@ -1,6 +1,6 @@
 # Champagne and cheers: The Wall Street Journal fought for Evan Gershkovich’s release for 16 months. It finally paid off
 
-Published :`2024-08-02 18:39:49`
+Published :`2024-08-02 19:12:27`
 
 ---
 

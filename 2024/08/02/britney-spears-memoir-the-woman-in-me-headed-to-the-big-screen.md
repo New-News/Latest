@@ -1,6 +1,6 @@
 # Britney Spears memoir ‘The Woman in Me’ headed to the big screen
 
-Published :`2024-08-02 18:39:50`
+Published :`2024-08-02 19:12:28`
 
 ---
 

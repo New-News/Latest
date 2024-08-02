@@ -1,10 +1,18 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-02 18:39:53`
+#### Latest Update : `2024-08-02 19:12:32`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court](https://new-news.github.io/Latest/2024/08/02/judge-chutkan-could-jumpstart-trump-election-interference-case-now-that-it-s-back-in-her-court 'Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court')
+
+- [Scam victims on Zelle rarely get their money back. A new bill could fix that](https://new-news.github.io/Latest/2024/08/02/scam-victims-on-zelle-rarely-get-their-money-back-a-new-bill-could-fix-that 'Scam victims on Zelle rarely get their money back. A new bill could fix that')
+
+- [An Olympian couldn’t pay her rent. Flavor Flav and Alexis Ohanian stepped in to help](https://new-news.github.io/Latest/2024/08/02/an-olympian-couldn-t-pay-her-rent-flavor-flav-and-alexis-ohanian-stepped-in-to-help 'An Olympian couldn’t pay her rent. Flavor Flav and Alexis Ohanian stepped in to help')
+
+- [US government sues TikTok for allegedly violating children’s privacy law](https://new-news.github.io/Latest/2024/08/02/us-government-sues-tiktok-for-allegedly-violating-children-s-privacy-law 'US government sues TikTok for allegedly violating children’s privacy law')
 
 - [Secret Service should have watched roof used by Trump rally shooter, acting director says](https://new-news.github.io/Latest/2024/08/02/secret-service-should-have-watched-roof-used-by-trump-rally-shooter-acting-director-says 'Secret Service should have watched roof used by Trump rally shooter, acting director says')
 
@@ -18,8 +26,6 @@
 
 - [Bird flu cases are going undetected, new study suggests. It’s a problem for all of us.](https://new-news.github.io/Latest/2024/08/02/bird-flu-cases-are-going-undetected-new-study-suggests-it-s-a-problem-for-all-of-us 'Bird flu cases are going undetected, new study suggests. It’s a problem for all of us.')
 
-- [US government sues TikTok for allegedly violating children’s privacy law](https://new-news.github.io/Latest/2024/08/02/us-government-sues-tiktok-for-allegedly-violating-children-s-privacy-law 'US government sues TikTok for allegedly violating children’s privacy law')
-
 - [Kamala Harris has earned enough votes to win the Democratic presidential nomination, party chair announces](https://new-news.github.io/Latest/2024/08/02/kamala-harris-has-earned-enough-votes-to-win-the-democratic-presidential-nomination-party-chair-announces 'Kamala Harris has earned enough votes to win the Democratic presidential nomination, party chair announces')
 
 - [Stocks fall sharply on weak July jobs data](https://new-news.github.io/Latest/2024/08/02/stocks-fall-sharply-on-weak-july-jobs-data 'Stocks fall sharply on weak July jobs data')
@@ -31,8 +37,6 @@
 - [How Pete Buttigieg’s 2020 campaign built the base driving his VP buzz](https://new-news.github.io/Latest/2024/08/02/how-pete-buttigieg-s-2020-campaign-built-the-base-driving-his-vp-buzz 'How Pete Buttigieg’s 2020 campaign built the base driving his VP buzz')
 
 - [Patrick Morrissey didn’t let Parkinson’s disease stop him from rowing across the Pacific Ocean](https://new-news.github.io/Latest/2024/08/02/patrick-morrissey-didn-t-let-parkinson-s-disease-stop-him-from-rowing-across-the-pacific-ocean 'Patrick Morrissey didn’t let Parkinson’s disease stop him from rowing across the Pacific Ocean')
-
-- [An Olympian couldn’t pay her rent. Flavor Flav and Alexis Ohanian stepped in to help](https://new-news.github.io/Latest/2024/08/02/an-olympian-couldn-t-pay-her-rent-flavor-flav-and-alexis-ohanian-stepped-in-to-help 'An Olympian couldn’t pay her rent. Flavor Flav and Alexis Ohanian stepped in to help')
 
 - [The way NFL games start has drastically changed. Here’s everything you need to know](https://new-news.github.io/Latest/2024/08/02/the-way-nfl-games-start-has-drastically-changed-here-s-everything-you-need-to-know 'The way NFL games start has drastically changed. Here’s everything you need to know')
 
@@ -72,8 +76,6 @@
 
 - [Trump’s political operation says it raised nearly $139 million in July](https://new-news.github.io/Latest/2024/08/02/trump-s-political-operation-says-it-raised-nearly-139-million-in-july 'Trump’s political operation says it raised nearly $139 million in July')
 
-- [Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court](https://new-news.github.io/Latest/2024/08/02/judge-chutkan-could-jumpstart-trump-election-interference-case-now-that-it-s-back-in-her-court 'Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court')
-
 - [Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia](https://new-news.github.io/Latest/2024/08/02/tears-hugs-and-a-salute-as-three-freed-americans-back-on-us-soil-after-historic-prisoner-swap-with-russia 'Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia')
 
 - [Mississippi’s Addie Carver wins controversy-hit Miss Teen USA pageant](https://new-news.github.io/Latest/2024/08/02/mississippi-s-addie-carver-wins-controversy-hit-miss-teen-usa-pageant 'Mississippi’s Addie Carver wins controversy-hit Miss Teen USA pageant')
@@ -81,8 +83,6 @@
 - [Man accused of beheading father in their home is competent to stand trial, judge rules](https://new-news.github.io/Latest/2024/08/02/man-accused-of-beheading-father-in-their-home-is-competent-to-stand-trial-judge-rules 'Man accused of beheading father in their home is competent to stand trial, judge rules')
 
 - [Overwhelmed by heat? The culprit may be in your medicine cabinet](https://new-news.github.io/Latest/2024/08/02/overwhelmed-by-heat-the-culprit-may-be-in-your-medicine-cabinet 'Overwhelmed by heat? The culprit may be in your medicine cabinet')
-
-- [Scam victims on Zelle rarely get their money back. A new bill could fix that](https://new-news.github.io/Latest/2024/08/02/scam-victims-on-zelle-rarely-get-their-money-back-a-new-bill-could-fix-that 'Scam victims on Zelle rarely get their money back. A new bill could fix that')
 
 - [Harris campaign says it raised $310 million in July, doubling Trump’s haul](https://new-news.github.io/Latest/2024/08/02/harris-campaign-says-it-raised-310-million-in-july-doubling-trump-s-haul 'Harris campaign says it raised $310 million in July, doubling Trump’s haul')
 

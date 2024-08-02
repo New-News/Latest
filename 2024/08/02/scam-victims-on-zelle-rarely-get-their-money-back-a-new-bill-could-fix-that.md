@@ -1,6 +1,6 @@
 # Scam victims on Zelle rarely get their money back. A new bill could fix that
 
-Published :`2024-08-02 18:39:48`
+Published :`2024-08-02 19:12:24`
 
 ---
 
@@ -52,7 +52,9 @@ The new legislation would seek to close loopholes in the EFTA, protecting consum
 
 The bill would also eliminate an exemption for bank wire transfers and allow the banks of victims to get reimbursed by the banks receiving the fraudulent funds.
 
-CNN has reached out to Zelle for comment.
+In a statement, Zelle spokesperson Eric Blankenbaker told CNN that executives are “reviewing the details” of the proposed legislation and stressed that the payment platform has “provided financial empowerment for millions of Americans” and led the industry in scam reimbursement efforts.
+
+“We are committed to protecting consumers through highly effective fraud and scam countermeasures,” Blankenbaker said. “Criminals who perpetrate the fraud and scams are the ultimate source of the problem and stopping the root cause of financial fraud and scams requires solutions like increased law enforcement resources and criminal penalties, consumer education and preventing criminals from spoofing identities.”
 
 While Zelle doesn’t offer payment protection, some of its rivals do. For instance, both Venmo and PayPal have purchase protection options for when customers send money to sellers they don’t know.
 

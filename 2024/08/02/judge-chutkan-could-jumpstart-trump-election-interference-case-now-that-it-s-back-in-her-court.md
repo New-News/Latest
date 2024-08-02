@@ -1,12 +1,12 @@
 # Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court
 
-Published :`2024-08-02 18:39:48`
+Published :`2024-08-02 19:12:24`
 
 ---
 
-A federal judge in Washington, DC, on Friday should regain control of the criminal case against former President Donald Trump for his attempts to overturn the 2020 election, leaving the historic criminal case’s fate in her hands less than 100 days before the November election.
+A federal judge in Washington, DC, on Friday regained control of the criminal case against former President Donald Trump for his attempts to overturn the 2020 election, leaving the historic case’s fate in her hands less than 100 days before the November election.
 
-The case returns to Judge Tanya Chutkan one month after the Supreme Court issued a game-changing ruling on presidential power.
+The case was returned to Judge Tanya Chutkan one month after the Supreme Court issued a game-changing ruling on presidential power.
 
 Chutkan has long signaled she wanted the case presented to a jury before voters go to the polls in November, initially pushing for a March trial date. But the Supreme Court interceded earlier this year and put the case on pause to consider Trump’s claims of presidential immunity.
 
@@ -67,6 +67,8 @@ But the two have been accused of the same thing: putting their thumbs on the s
 To be sure, the two Trump cases involve vastly different facts and legal issues. And the attorneys are taking different approaches – most notably with the special counsel’s office. In Florida, Trump’s lawyers argued that Smith’s appointment was unconstitutional – and won.
 
 In Washington, Trump’s lawyers have said publicly they don’t plan to lodge such a challenge, so that’s one dispute Chutkan won’t have to decide.
+
+This story has been updated with additional developments.
 
 ---
 

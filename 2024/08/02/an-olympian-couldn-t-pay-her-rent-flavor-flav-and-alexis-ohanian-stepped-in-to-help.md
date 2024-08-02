@@ -1,6 +1,6 @@
 # An Olympian couldn’t pay her rent. Flavor Flav and Alexis Ohanian stepped in to help
 
-Published :`2024-08-02 18:39:48`
+Published :`2024-08-02 19:12:24`
 
 ---
 
@@ -18,8 +18,6 @@ Fraley, a first-time Olympian and a graduate student at Vanderbilt University, s
 
 “My school only sent about 75% of my rent while they pay football players … enough to buy new cars and houses,” she wrote on X, noting that the Vanderbilt Commodores football team “haven’t won anything.” (Last season, the team won two games and lost 10. Vanderbilt doesn’t make its athletes’ earnings through NIL — or name, image and likeness — deals public, but a CBS Sports analysis from May revealed that top college football players could make hundreds of thousands of dollars every year.)
 
-Vanderbilt University did not immediately respond to a CNN request for comment.
-
 Flav found Fraley’s post and pledged his support.
 
 “I gotchu,” he wrote. “DM me and I’ll send payment TODAY so you don’t have to worry bout it TOMORROW.”
@@ -33,6 +31,10 @@ Fraley thanked Flav and Ohanian in a post, writing “​​this makes every dif
 And for curious followers, Fraley confirmed on Friday that she “paid (her) rent this morning” with a bevy of grateful emojis.
 
 Fraley will compete in the discus throw qualifier Friday afternoon. In a post sharing her GoFundMe page, she said she plans to tackle a world championship in 2025 and, eventually, the 2028 Summer Games.
+
+A representative for Vanderbilt University referred CNN to a statement in which the school said it “is committed to supporting our student-athletes as they pursue their full potential.”
+
+“We provided our student-athlete Veronica Fraley with the maximum financial aid consistent with NCAA regulations,” the statement read. “We also help our student-athletes navigate name, image and likeness (NIL) opportunities, acknowledging that these are completely separate and independent of the university by NCAA regulations and state law.”
 
 ### Flavor Flav and Alexis Ohanian are showing up for women’s sports
 

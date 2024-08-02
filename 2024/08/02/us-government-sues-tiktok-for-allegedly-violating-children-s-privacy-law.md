@@ -1,6 +1,6 @@
 # US government sues TikTok for allegedly violating children’s privacy law
 
-Published :`2024-08-02 18:39:48`
+Published :`2024-08-02 19:12:24`
 
 ---
 
@@ -22,7 +22,11 @@ A TikTok spokesperson pushed back on the allegations.
 
 “We disagree with these allegations, many of which relate to past events and practices that are factually inaccurate or have been addressed,” TikTok spokesperson Michael Hughes said in a statement. “We are proud of our efforts to protect children, and we will continue to update and improve the platform. To that end, we offer age-appropriate experiences with stringent safeguards, proactively remove suspected underage users, and have voluntarily launched features such as default screentime limits, Family Pairing, and additional privacy protections for minors.”
 
-This is a developing story and will be updated.
+But TikTok hasn’t done enough to ensure that children under the age of 13 are kept off the app, Friday’s lawsuit claims. Among those claims, the lawsuit alleges that until “at least late 2020,” if a child tried to sign up for an account but was rejected after submitting a birthdate showing they were under 13, TikTok did not prevent them from trying again with a different birthdate “even though by that point (TikTok) knew from the birthday the user had previously provided that the user was a child.”
+
+The suit also alleges that even if a parent discovered their child’s account, TikTok “failed to create a simple process for parents to submit a deletion request” for the child’s data, calling the deletion process “convoluted.” And it claims that even if parents submitted a request, TikTok “often did not honor” it.
+
+With the lawsuit, the DOJ seeks civil penalties and a court order to prevent any future violations of COPPA.
 
 ---
 
