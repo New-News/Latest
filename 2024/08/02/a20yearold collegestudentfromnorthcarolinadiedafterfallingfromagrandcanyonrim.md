@@ -1,6 +1,6 @@
 # A 20-year-old college student from North Carolina died after falling from a Grand Canyon rim
 
-Published :`2024-08-02 13:35:33`
+Published :`2024-08-02 14:14:28`
 
 ---
 
@@ -19,6 +19,8 @@ On Thursday, the park issued a heat warning and advised people against hiking in
 A 69-year-old man from Texas died on June 29 while hiking in the heat.
 
 “In the summer, temperatures on exposed parts of the trail can reach over 120°F (49 °C) in the shade,” the park service said. “Efforts to assist hikers may be delayed during the summer months due to limited staff, the number of rescue calls, employee safety requirements, and limited helicopter flying capability during periods of extreme heat or inclement weather.”
+
+Much of the Southwest experienced its warmest July on record and is having its warmest summer on record so far.
 
 About seven deaths a week are reported at the country’s national parks, the park service says.
 
