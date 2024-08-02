@@ -1,6 +1,6 @@
 # Bank of England cuts interest rate for first time in four years, but it was the closest call
 
-Published :`2024-08-02 19:12:31`
+Published :`2024-08-02 19:37:06`
 
 ---
 

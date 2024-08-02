@@ -1,6 +1,6 @@
 # Secret Service should have watched roof used by Trump rally shooter, acting director says
 
-Published :`2024-08-02 19:12:24`
+Published :`2024-08-02 19:37:02`
 
 ---
 
@@ -15,6 +15,24 @@ Rowe has repeatedly asserted during the press conference that the Secret Service
 “Every single person within the Secret Service feels the weight of what happened” at Trump’s July 13 rally, he added.
 
 “We will earn back your trust,” Rowe said.
+
+Trump has said he wants to continue to holding outdoor events, and Rowe said that whether a presidential candidate is holding an event indoors or outdoors, “it’s on the Secret Service to make sure we create a secure environment.”
+
+“It’s on us to figure out what we need to do to mitigate that,” he said.
+
+### First 2024 Trump campaign event with Secret Service counter-snipers
+
+The rally was the first time that Secret Service counter-snipers were sent to Trump’s rallies during this election season.
+
+“Looking back, it was very fortunate that we did,” send the snipers, Rowe said.
+
+Rowe noted that Trump has has counter-snipers from state and local law enforcement offices before.
+
+Still, Rowe said that Trump will have Secret Service counter-sniper coverage moving forward, “as will the president, the vice president, Senator Vance” and the eventual Democratic nominee for vice president.
+
+Lawmakers and other officials have previously questioned whether there should have been additional resources assigned to protect Trump.
+
+“We are going to put full resources out there to make sure that our campaign cadence now has obviously picked up,” he said, “and we are going to make sure that we have all of the resources out there to address any challenges that we have.”
 
 ### Secret Service didn’t know there was an armed man before shots fired at Trump, Rowe says
 
