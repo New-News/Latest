@@ -1,6 +1,6 @@
 # Al Jazeera journalists killed in Israeli airstrike in Gaza
 
-Published :`2024-08-02 16:18:54`
+Published :`2024-08-02 16:41:22`
 
 ---
 
