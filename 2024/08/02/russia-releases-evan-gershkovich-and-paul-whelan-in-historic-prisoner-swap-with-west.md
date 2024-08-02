@@ -1,6 +1,6 @@
 # Russia releases Evan Gershkovich and Paul Whelan in historic prisoner swap with West
 
-Published :`2024-08-02 12:55:19`
+Published :`2024-08-02 13:17:59`
 
 ---
 
