@@ -1,6 +1,6 @@
 # Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia
 
-Published :`2024-08-02 05:15:20`
+Published :`2024-08-02 05:37:10`
 
 ---
 
@@ -26,7 +26,9 @@ Their release – and that of Washington Post contributor and permanent US resid
 
 Sixteen people were released from Russian custody on Thursday, including five Germans and seven Russian citizens who were political prisoners in their own country. Moscow in return got former high-ranking FSB colonel Vadim Krasikov, as well as several individuals accused of spying or cybercrime.
 
-In a statement earlier Thursday, Biden hailed the agreement as a “feat of diplomacy,” in collaboration with US allies, including Germany, Poland, Norway, and Slovenia.
+The prisoner exchange marks a major diplomatic achievement and legacy-defining moment for Biden less than six months before he leaves office.
+
+In a statement earlier Thursday, Biden hailed the agreement as a “feat of diplomacy,” in collaboration with US allies, including Germany, Poland, Norway, Turkey and Slovenia.
 
 “Some of these women and men have been unjustly held for years. All have endured unimaginable suffering and uncertainty. Today, their agony is over,” said Biden, who hosted the families of Gershkovich, Whelan, Kurmasheva and Kara-Murza at the White House.
 
