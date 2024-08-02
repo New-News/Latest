@@ -1,18 +1,18 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-02 02:22:12`
+#### Latest Update : `2024-08-02 02:47:58`
 
 ## Latest News Grabbing 
 
 ---
+
+- [At least 30 dead after Typhoon Gaemi cut off towns in China’s Hunan province](https://new-news.github.io/Latest/2024/08/02/at-least-30-dead-after-typhoon-gaemi-cut-off-towns-in-china-s-hunan-province 'At least 30 dead after Typhoon Gaemi cut off towns in China’s Hunan province')
 
 - [Bridge collapses in China killing 15 after flash floods](https://new-news.github.io/Latest/2024/08/02/bridge-collapses-in-china-killing-15-after-flash-floods 'Bridge collapses in China killing 15 after flash floods')
 
 - [Hungary’s Orban holds talks with Xi during surprise Beijing visit, days after meeting Putin](https://new-news.github.io/Latest/2024/08/02/hungary-s-orban-holds-talks-with-xi-during-surprise-beijing-visit-days-after-meeting-putin 'Hungary’s Orban holds talks with Xi during surprise Beijing visit, days after meeting Putin')
 
 - [US says opposition candidate won Venezuela election as anti-Maduro figurehead says she’s in hiding](https://new-news.github.io/Latest/2024/08/02/us-says-opposition-candidate-won-venezuela-election-as-anti-maduro-figurehead-says-she-s-in-hiding 'US says opposition candidate won Venezuela election as anti-Maduro figurehead says she’s in hiding')
-
-- [At least 30 dead after Typhoon Gaemi cut off towns in China’s Hunan province](https://new-news.github.io/Latest/2024/08/02/at-least-30-dead-after-typhoon-gaemi-cut-off-towns-in-china-s-hunan-province 'At least 30 dead after Typhoon Gaemi cut off towns in China’s Hunan province')
 
 - [Champagne and cheers: The Wall Street Journal fought for Evan Gershkovich’s release for 16 months. It finally paid off](https://new-news.github.io/Latest/2024/08/02/champagne-and-cheers-the-wall-street-journal-fought-for-evan-gershkovich-s-release-for-16-months-it-finally-paid-off 'Champagne and cheers: The Wall Street Journal fought for Evan Gershkovich’s release for 16 months. It finally paid off')
 

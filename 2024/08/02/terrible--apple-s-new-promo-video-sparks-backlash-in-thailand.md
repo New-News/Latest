@@ -1,6 +1,6 @@
 # ‘Terrible’: Apple’s new promo video sparks backlash in Thailand
 
-Published :`2024-08-02 02:22:11`
+Published :`2024-08-02 02:47:56`
 
 ---
 
