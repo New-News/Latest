@@ -1,6 +1,6 @@
 # Man convicted on lesser charges in stabbings at Wisconsin river
 
-Published :`2024-08-02 03:18:32`
+Published :`2024-08-02 03:37:45`
 
 ---
 
