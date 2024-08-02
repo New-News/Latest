@@ -1,6 +1,6 @@
 # Who was freed in major prisoner swap between Russia and the West?
 
-Published :`2024-08-02 11:36:54`
+Published :`2024-08-02 12:29:09`
 
 ---
 
@@ -48,7 +48,7 @@ In November that year, he was sentenced to 14 years in prison for his role in a 
 
 Artem Dultsev (age unknown)
 
-Artem Dultsev is a Russian spy who was living undercover in Slovenia, posing as an IT businessman named Ludvig Gish.
+Artem Dultsev is a Russian spy who was living undercover in Slovenia, posing as an IT businessman named Ludwig Gisch.
 
 He pleaded guilty to espionage at a court in Ljubljana on Wednesday and was sentenced to more than a year and half in prison, which the court said was equivalent to time spent. According to a statement from the court, he was set to be deported to Russia and was banned from entering Slovenia for five years.
 

@@ -1,6 +1,6 @@
 # UK rocked by far-right riots fueled by online disinformation about Southport stabbings
 
-Published :`2024-08-02 11:36:56`
+Published :`2024-08-02 12:29:17`
 
 ---
 
