@@ -1,18 +1,18 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-02 23:14:37`
+#### Latest Update : `2024-08-02 23:37:05`
 
 ## Latest News Grabbing 
 
 ---
+
+- [US sending aircraft carrier, warships and fighter squadron to Middle East as region braces for Iranian retaliation](https://new-news.github.io/Latest/2024/08/02/us-sending-aircraft-carrier-warships-and-fighter-squadron-to-middle-east-as-region-braces-for-iranian-retaliation 'US sending aircraft carrier, warships and fighter squadron to Middle East as region braces for Iranian retaliation')
 
 - [California inmate on death row for 33 years must either be released or retried due to prosecutorial misconduct](https://new-news.github.io/Latest/2024/08/02/california-inmate-on-death-row-for-33-years-must-either-be-released-or-retried-due-to-prosecutorial-misconduct 'California inmate on death row for 33 years must either be released or retried due to prosecutorial misconduct')
 
 - [Freed American’s family to miss Taylor Swift concert for the very best reason](https://new-news.github.io/Latest/2024/08/02/freed-american-s-family-to-miss-taylor-swift-concert-for-the-very-best-reason 'Freed American’s family to miss Taylor Swift concert for the very best reason')
 
 - [US says Maduro lost Venezuela election as opposition leader says she’s in hiding](https://new-news.github.io/Latest/2024/08/02/us-says-maduro-lost-venezuela-election-as-opposition-leader-says-she-s-in-hiding 'US says Maduro lost Venezuela election as opposition leader says she’s in hiding')
-
-- [US sending aircraft carrier, warships and fighter squadron to Middle East as region braces for Iranian retaliation](https://new-news.github.io/Latest/2024/08/02/us-sending-aircraft-carrier-warships-and-fighter-squadron-to-middle-east-as-region-braces-for-iranian-retaliation 'US sending aircraft carrier, warships and fighter squadron to Middle East as region braces for Iranian retaliation')
 
 - [Rugby Olympic medalist Ilona Maher is taking on BMI and winning](https://new-news.github.io/Latest/2024/08/02/rugby-olympic-medalist-ilona-maher-is-taking-on-bmi-and-winning 'Rugby Olympic medalist Ilona Maher is taking on BMI and winning')
 

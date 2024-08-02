@@ -1,6 +1,6 @@
 # Jamie Lee Curtis issues mea culpa for calling the Marvel Cinematic Universe ‘bad’: ‘I will do better’
 
-Published :`2024-08-02 23:14:34`
+Published :`2024-08-02 23:37:04`
 
 ---
 

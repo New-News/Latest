@@ -1,6 +1,6 @@
 # The way NFL games start has drastically changed. Here’s everything you need to know
 
-Published :`2024-08-02 23:14:31`
+Published :`2024-08-02 23:37:02`
 
 ---
 
