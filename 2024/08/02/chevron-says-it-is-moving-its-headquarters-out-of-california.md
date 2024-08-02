@@ -1,6 +1,6 @@
 # Chevron says it is moving its headquarters out of California
 
-Published :`2024-08-02 22:36:39`
+Published :`2024-08-02 23:14:31`
 
 ---
 
