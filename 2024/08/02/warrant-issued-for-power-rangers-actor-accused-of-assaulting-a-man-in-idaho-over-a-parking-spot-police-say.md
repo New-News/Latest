@@ -1,6 +1,6 @@
 # Warrant issued for ‘Power Rangers’ actor accused of assaulting a man in Idaho over a parking spot, police say
 
-Published :`2024-08-02 02:47:52`
+Published :`2024-08-02 03:18:27`
 
 ---
 

@@ -1,6 +1,6 @@
 # An airline in Asia is removing a popular snack from flights. Turbulence is to blame
 
-Published :`2024-08-02 02:47:55`
+Published :`2024-08-02 03:18:29`
 
 ---
 
