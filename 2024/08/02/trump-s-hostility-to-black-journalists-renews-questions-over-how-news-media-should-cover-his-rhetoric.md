@@ -1,6 +1,6 @@
 # Trump’s hostility to Black journalists renews questions over how news media should cover his rhetoric
 
-Published :`2024-08-02 11:12:41`
+Published :`2024-08-02 11:36:56`
 
 ---
 

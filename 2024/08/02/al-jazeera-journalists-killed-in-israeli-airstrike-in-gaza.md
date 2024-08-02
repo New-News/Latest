@@ -1,6 +1,6 @@
 # Al Jazeera journalists killed in Israeli airstrike in Gaza
 
-Published :`2024-08-02 11:12:38`
+Published :`2024-08-02 11:36:54`
 
 ---
 
@@ -18,7 +18,7 @@ Al Jazeera condemned what it claimed was the “targeted assassination” of its
 
 In a statement to CNN Thursday, the Israel Defense Forces (IDF) and Israeli Security Agency alleged Al-Ghoul was a member of Hamas’ military wing and had “participated” in the attack on Israel on October 7.
 
-The IDF alleged that “as part of his role in the military wing, Al-Ghoul instructed other operatives on how to record operations and was actively involved in recording and publicizing attacks against IDF troops. His activities in the field were a vital part of Hamas’ military activity.”
+The IDF alleged that “as part of his role in the military wing, Al-Ghoul instructed other operatives on how to record operations and was actively involved in recording and publicizing attacks against IDF troops. His activities in the field were a vital part of Hamas’ military activity.” The IDF did not provide CNN with any proof for their allegations.
 
 The IDF did not allege that Al-Ghoul had a direct combat role in its statement to CNN, nor did it address the killing of his colleague Rami al Rifi in the same strike.
 

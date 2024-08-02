@@ -1,22 +1,24 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-02 11:12:43`
+#### Latest Update : `2024-08-02 11:36:57`
 
 ## Latest News Grabbing 
 
 ---
 
-- [Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court](https://new-news.github.io/Latest/2024/08/02/judge-chutkan-could-jumpstart-trump-election-interference-case-now-that-it-s-back-in-her-court 'Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court')
+- [‘There was no excitement. Now, there’s tons’: How Harris’ candidacy has energized plans for the DNC](https://new-news.github.io/Latest/2024/08/02/there-was-no-excitement-now-there-s-tons--how-harris-candidacy-has-energized-plans-for-the-dnc '‘There was no excitement. Now, there’s tons’: How Harris’ candidacy has energized plans for the DNC')
 
 - [Al Jazeera journalists killed in Israeli airstrike in Gaza](https://new-news.github.io/Latest/2024/08/02/al-jazeera-journalists-killed-in-israeli-airstrike-in-gaza 'Al Jazeera journalists killed in Israeli airstrike in Gaza')
+
+- [Trump’s political operation says it raised nearly $139 million in July](https://new-news.github.io/Latest/2024/08/02/trump-s-political-operation-says-it-raised-nearly-139-million-in-july 'Trump’s political operation says it raised nearly $139 million in July')
+
+- [Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court](https://new-news.github.io/Latest/2024/08/02/judge-chutkan-could-jumpstart-trump-election-interference-case-now-that-it-s-back-in-her-court 'Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court')
 
 - [Why the stock market is suddenly freaking out](https://new-news.github.io/Latest/2024/08/02/why-the-stock-market-is-suddenly-freaking-out 'Why the stock market is suddenly freaking out')
 
 - [Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia](https://new-news.github.io/Latest/2024/08/02/tears-hugs-and-a-salute-as-three-freed-americans-back-on-us-soil-after-historic-prisoner-swap-with-russia 'Tears, hugs and a salute as three freed Americans back on US soil after historic prisoner swap with Russia')
 
 - [Wall Street to Big Tech: Is AI ever going to make money?](https://new-news.github.io/Latest/2024/08/02/wall-street-to-big-tech-is-ai-ever-going-to-make-money 'Wall Street to Big Tech: Is AI ever going to make money?')
-
-- [‘There was no excitement. Now, there’s tons’: How Harris’ candidacy has energized plans for the DNC](https://new-news.github.io/Latest/2024/08/02/there-was-no-excitement-now-there-s-tons--how-harris-candidacy-has-energized-plans-for-the-dnc '‘There was no excitement. Now, there’s tons’: How Harris’ candidacy has energized plans for the DNC')
 
 - [Mississippi’s Addie Carver wins controversy-hit Miss Teen USA pageant](https://new-news.github.io/Latest/2024/08/02/mississippi-s-addie-carver-wins-controversy-hit-miss-teen-usa-pageant 'Mississippi’s Addie Carver wins controversy-hit Miss Teen USA pageant')
 
@@ -75,8 +77,6 @@
 - [Trump wants to stop taxing Social Security benefits. Here’s what that could mean for seniors](https://new-news.github.io/Latest/2024/08/02/trump-wants-to-stop-taxing-social-security-benefits-here-s-what-that-could-mean-for-seniors 'Trump wants to stop taxing Social Security benefits. Here’s what that could mean for seniors')
 
 - [Scientists traced roses’ thorny origins and solved a 400 million-year-old mystery](https://new-news.github.io/Latest/2024/08/02/scientists-traced-roses-thorny-origins-and-solved-a-400-million-year-old-mystery 'Scientists traced roses’ thorny origins and solved a 400 million-year-old mystery')
-
-- [Trump’s political operation says it raised nearly $139 million in July](https://new-news.github.io/Latest/2024/08/02/trump-s-political-operation-says-it-raised-nearly-139-million-in-july 'Trump’s political operation says it raised nearly $139 million in July')
 
 - [Suspect charged with hate crime, criminal mischief for vandalizing home of Jewish director of Brooklyn Museum, NYPD says](https://new-news.github.io/Latest/2024/08/02/suspect-charged-with hate-crime-criminal-mischief for-vandalizing-home-of-jewish-director-of-brooklyn-museum-nypd-says 'Suspect charged with hate crime, criminal mischief for vandalizing home of Jewish director of Brooklyn Museum, NYPD says')
 
