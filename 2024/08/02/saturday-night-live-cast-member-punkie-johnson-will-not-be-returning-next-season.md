@@ -1,6 +1,6 @@
 # ‘Saturday Night Live’ cast member Punkie Johnson will not be returning next season
 
-Published :`2024-08-02 20:35:58`
+Published :`2024-08-02 21:15:06`
 
 ---
 
@@ -20,9 +20,11 @@ Johnson, who joined the show in 2020, called “SNL” “a dream I didn’t eve
 
 “I am so grateful for it,” she said in the video. “That’s still my people. I love them.”
 
+Just one day after Johnson made her announcement, her cast mate Molly Kearney also took to social media to share their plans to depart from the show.
+
 CNN has reached out to representatives for “SNL” for comment.
 
-The news of Johnson’s departure comes a few months before “Saturday Night Live’s” milestone Season 50 on NBC.
+The news of Johnson’s and Kearney’s departure comes a few months before “Saturday Night Live’s” milestone Season 50 on NBC.
 
 Earlier this week, Sony Pictures announced its movie about the pilot episode of the historic series, titled “Saturday Night,” will be released in October. It will star Dylan O’Brien, Rachel Sennott, Finn Wolfhard, Jon Batiste, Willem Defoe, J.K. Simmons and Kaia Gerber.
 

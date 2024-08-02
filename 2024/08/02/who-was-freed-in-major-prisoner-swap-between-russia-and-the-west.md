@@ -1,6 +1,6 @@
 # Who was freed in major prisoner swap between Russia and the West?
 
-Published :`2024-08-02 20:35:57`
+Published :`2024-08-02 21:15:06`
 
 ---
 
@@ -94,7 +94,13 @@ He is a permanent resident of the US and a dual citizen of Russia and the United
 
 He was initially detained in 2022, hours after an interview with CNN in which he criticized Russian President Vladimir Putin’s “regime of murderers.”
 
-He was moved a number of times in recent months and was transferred to a prison hospital earlier this month. His lawyers have been repeatedly denied access to him.
+“I was certain I was going to die in Putin’s prison,” Kara-Murza said on Friday at a press conference. I did not believe I’d ever see my wife again. I did not believe I’d ever see my family again. This feels really surreal.”
+
+“None of us knew [that we would be released] until the last moment. I only realized… yesterday morning,” he said.
+
+Kara-Murza was moved a number of times in recent months and was transferred to a prison hospital earlier this month. His lawyers have been repeatedly denied access to him.
+
+“Since arriving to Germany yesterday, we were all held in a quarantine… for medical testing evaluations,” he said. “This is our first venture into the outside world.”
 
 ### German citizens released
 
