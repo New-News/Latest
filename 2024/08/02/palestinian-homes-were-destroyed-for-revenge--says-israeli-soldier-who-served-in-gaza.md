@@ -1,6 +1,6 @@
 # Palestinian homes were destroyed ‘for revenge,’ says Israeli soldier who served in Gaza
 
-Published :`2024-08-02 17:35:57`
+Published :`2024-08-02 18:20:28`
 
 ---
 

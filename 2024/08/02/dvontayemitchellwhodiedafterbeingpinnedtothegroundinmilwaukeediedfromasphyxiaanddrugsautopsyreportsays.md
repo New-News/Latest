@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says
 
-Published :`2024-08-02 17:35:52`
+Published :`2024-08-02 18:20:25`
 
 ---
 
@@ -32,9 +32,17 @@ One of the guards, who appears to be White, can be heard saying, “Stay down,�
 
 When officers arrived, Mitchell was unresponsive and pronounced dead despite lifesaving measures, Milwaukee police have said, without mentioning Mitchell by name.
 
-CNN’s Alisha Ebrahimji contributed to this report.
+### Company says several people were fired
 
-This is a developing story and will be updated.
+Aimbridge Hospitality, the hotel management company that operates the Hyatt Regency in downtown Milwaukee, said “several associates” were fired after the incident.
+
+“The conduct we saw from several associates on June 30 violated our policies and procedures, and does not reflect our values as an organization or the behaviors we expect from our associates,” the company said in a June statement.
+
+“Following review of their actions, their employment has been terminated,” the statement said. “We will continue our independent investigation and do everything we can to support law enforcement with their investigation into this tragic incident.”
+
+CNN’s Alisha Ebrahimji and Rebekah Riess contributed to this report.
+
+This story has been updated with additional information.
 
 ---
 

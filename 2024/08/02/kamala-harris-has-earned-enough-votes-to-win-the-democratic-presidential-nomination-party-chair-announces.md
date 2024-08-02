@@ -1,14 +1,18 @@
 # Kamala Harris has earned enough votes to win the Democratic presidential nomination, party chair announces
 
-Published :`2024-08-02 17:35:52`
+Published :`2024-08-02 18:20:25`
 
 ---
 
-Vice President Kamala Harris has won enough votes from Democratic delegates to win the party’s nomination for president, DNC Chair Jaime Harrison announced Friday,
+Vice President Kamala Harris has won enough votes from Democratic delegates to win the party’s nomination for president, Democratic National Committee Chair Jaime Harrison announced Friday.
 
 Harris will become the first Black woman and first Asian American to lead a major-party ticket.
 
 The announcement came during a virtual event with supporters Friday. Delegates began casting virtual ballots for the nomination Thursday, a process that will continue until Monday evening.
+
+“I am honored to be the presumptive Democratic nominee for president of the United States,” said Harris, who joined the virtual event. “I will officially accept your nomination next week, once the virtual voting period is closed.”
+
+“Later this month, we will gather in Chicago, united as one party, where we’re going to have an opportunity to celebrate this historic moment together,” the vice president added.
 
 It’s been clear since shortly after President Joe Biden ended his reelection campaign and endorsed Harris that the vice president would be the only serious candidate for the nomination. Virtually the entire party, including potential challengers, quickly endorsed her, and it took less than 36 hours for her to secure unofficial endorsements from enough delegates to be the party’s nominee.
 

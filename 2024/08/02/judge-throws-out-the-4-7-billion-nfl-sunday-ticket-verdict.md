@@ -1,6 +1,6 @@
 # Judge throws out the $4.7 billion NFL ‘Sunday Ticket’ verdict
 
-Published :`2024-08-02 17:35:55`
+Published :`2024-08-02 18:20:27`
 
 ---
 

@@ -1,6 +1,6 @@
 # A 20-year-old college student from North Carolina died after falling from a Grand Canyon rim
 
-Published :`2024-08-02 17:35:53`
+Published :`2024-08-02 18:20:26`
 
 ---
 
