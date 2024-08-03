@@ -1,6 +1,6 @@
 # UK police brace for further violent unrest in wake of Southport stabbings
 
-Published :`2024-08-03 10:36:36`
+Published :`2024-08-03 11:12:41`
 
 ---
 
@@ -21,6 +21,10 @@ The charity adds that events will “vary in size and nature” and while some m
 Speaking to BBC Radio 4’s Today program on Friday, Chair of the National Police Chiefs’ Council Gavin Stephens said police chiefs had agreed to “step up resourcing” over the weekend.
 
 “We will have surge capacity in our intelligence, in our briefing, and in the resources that are out in local communities.”
+
+In a statement issued Friday, the Muslim Council of Britain urged mosques to be vigilant and strengthen security measures following “deeply disturbing scenes of mobs targeting mosques in Southport and Hartlepool.”
+
+Secretary-General of the council, Zara Mohammed, said: “Given reports of more planned protests, we encourage communities to be extra vigilant and to enhance security measures.”
 
 Videos circulating on social media from the Sunderland protest show a local police station on fire and large crowds gathered carrying anti-immigrant signs.
 
