@@ -1,6 +1,6 @@
 # 1 deputy killed and 2 injured in ‘ambush’ shooting in Florida, sheriff says
 
-Published :`2024-08-03 19:11:54`
+Published :`2024-08-03 19:35:32`
 
 ---
 
