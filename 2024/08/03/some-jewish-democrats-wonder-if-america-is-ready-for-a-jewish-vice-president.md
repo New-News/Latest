@@ -1,6 +1,6 @@
 # Some Jewish Democrats wonder if America is ready for a Jewish vice president
 
-Published :`2024-08-03 18:20:00`
+Published :`2024-08-03 18:38:33`
 
 ---
 

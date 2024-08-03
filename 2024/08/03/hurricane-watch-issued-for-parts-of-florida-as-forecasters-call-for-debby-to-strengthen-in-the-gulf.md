@@ -1,6 +1,6 @@
 # Hurricane watch issued for parts of Florida as forecasters call for Debby to strengthen in the Gulf
 
-Published :`2024-08-03 18:19:55`
+Published :`2024-08-03 18:38:30`
 
 ---
 
@@ -34,7 +34,7 @@ Emergency management officials in the Big Bend’s Levy County, home to Cedar Ke
 
 Shifts in the storm’s exact track and strength are still possible over the next 48 hours, but a key factor in the increasing chances for a hurricane is how much time the system spends over record-warm water in the eastern Gulf of Mexico.
 
-Warm water is fuel for storms to strengthen and potentially rapidly intensify, a phenomenon becoming more likely as global temperatures rise because of fossil fuel pollution.
+Sea surface temperatures in the Gulf of Mexico are approaching records, currently in the middle to upper 80s. Some water temperatures are even approaching the lower 90s off the coast of Tampa Bay. Warm water is fuel for storms to strengthen and potentially rapidly intensify, a phenomenon becoming more likely as global temperatures rise because of fossil fuel pollution.
 
 Forecasters shifted the storm’s track to the west and believe the storm will spend more time over water now.
 
@@ -70,7 +70,7 @@ Florida Gov. Ron DeSantis has declared a state of emergency for 54 of the state�
 
 “Floridians are encouraged to monitor weather conditions, listen to all orders from local officials, create disaster preparedness plans, and stock disaster supply kits with food, water, and other necessities for their households,” the governor’s office said Friday.
 
-Local governments have started putting out advisories. Pasco County, just above Tampa, on Saturday urged voluntary evacuations for some residents, including those who live in manufactured homes, RVs or in low-lying areas. Levy County issued a mandatory evacuation for those in similar conditions, with a deadline of 8 p.m.
+Local governments have started putting out advisories. Pasco County, just above Tampa, on Saturday urged voluntary evacuations for some residents, including those who live in manufactured homes, RVs or in low-lying areas. Levy County issued a mandatory evacuation for those in similar conditions, with a deadline of 8 p.m. Citrus County north of Tampa and Taylor County nestled in Florida’s Big Bend area also issued voluntary evacuation orders Saturday.
 
 Sandbag distribution began Friday for residents in several communities in the Orlando and Tampa metros. Multiple counties in the state’s panhandle – including Escambia, Okaloosa and Santa Rosa – started distributing sandbags Thursday.
 
