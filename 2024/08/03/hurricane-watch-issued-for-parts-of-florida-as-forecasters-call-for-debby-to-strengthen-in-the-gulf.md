@@ -1,12 +1,12 @@
 # Hurricane watch issued for parts of Florida as forecasters call for Debby to strengthen in the Gulf
 
-Published :`2024-08-03 13:15:20`
+Published :`2024-08-03 13:37:02`
 
 ---
 
-Parts of Florida are now under a hurricane watch as the chance Tropical Storm Debby could be a hurricane when it makes landfall in the state increases.
+Parts of Florida are now under a hurricane watch as the chance is increasing future Tropical Storm Debby could be a hurricane when it makes landfall in the coming days.
 
-The storm, which is now Tropical Depression Four, is also forecast to slow down significantly after making landfall and wring out multiple days of rain in the Southeast, increasing the chances for significant flooding there.
+The storm, which is now Tropical Depression Four, is forecast to slow down significantly after making landfall and wring out multiple days of rain in the Southeast, increasing the chances for significant flooding there.
 
 The hurricane watch was issued for parts of Florida’s Big Bend region, where the National Hurricane Center forecasts a landfall as a strong tropical storm by Monday morning. The area is still recovering from a devastating blow by Category 3 Hurricane Idalia last August.
 
@@ -18,9 +18,11 @@ Track the Storm: Spaghetti models and more maps here
 
 The storm is expected to enter the eastern Gulf of Mexico on Saturday and officially become Tropical Storm Debby, according to the hurricane center. Tropical storm conditions could begin Saturday night in parts of southwest Florida, and rain will start impacting parts of South Florida.
 
-“Very Intense” rainfall is expected in Southwest Florida Saturday and a widespread 3 to 5 inches of rain could fall, according to the Weather Prediction Center. The intense rain will be potent enough to cause flash flooding, even in marshy areas of the state more capable of handling excess water.
+“Very Intense” rainfall is expected in southwest Florida on Saturday and a widespread 3 to 5 inches of rain could fall, according to the Weather Prediction Center. The intense rain will be potent enough to cause flash flooding, even in marshy areas of the state more capable of handling excess water.
 
 The storm is forecast to continue to strengthen through the weekend and up to landfall while tracking through the Gulf of Mexico parallel to the western coast of Florida.
+
+Emergency management officials in the Big Bend’s Levy County, home to Cedar Key, warned Saturday the expected storm surge could merit evacuation orders. Cedar Key was slammed by Idalia in 2023; the storm surge then was 8 to 12 feet in Big Bend.
 
 Shifts in the storm’s exact track and strength are still possible over the next 48 hours, but a key factor in the increasing chances for a hurricane is how much time the system spends over record-warm water in the eastern Gulf of Mexico.
 
@@ -62,7 +64,7 @@ Florida Gov. Ron DeSantis has declared a state of emergency for 54 of the state�
 
 Sandbag distribution began Friday for residents in several communities in the Orlando and Tampa metros. Multiple counties in the state’s panhandle – including Escambia, Okaloosa and Santa Rosa – started distributing sandbags Thursday.
 
-“You still have some time to put your disaster supply kit together,” Hurricane Center Director Michael Brennan said Friday. “Make sure you have multiple days of food, water, prescription medicines. Keep your gas tank full, cash on hand, and keep batteries. Make sure your phone’s charged and make sure you have a battery powered radio.”
+“You still have some time to put your disaster supply kit together,” Hurricane Center Director Michael Brennan said. “Make sure you have multiple days of food, water, prescription medicines. Keep your gas tank full, cash on hand, and keep batteries. Make sure your phone’s charged and make sure you have a battery powered radio.”
 
 ---
 

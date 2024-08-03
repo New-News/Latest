@@ -1,6 +1,6 @@
 # Trump and Vance head to battleground Georgia looking to put recent struggles behind them
 
-Published :`2024-08-03 13:15:20`
+Published :`2024-08-03 13:37:02`
 
 ---
 

@@ -1,6 +1,6 @@
 # Egyptian women’s beach volleyball team slams French hijab ban after Olympic match
 
-Published :`2024-08-03 13:15:22`
+Published :`2024-08-03 13:37:03`
 
 ---
 

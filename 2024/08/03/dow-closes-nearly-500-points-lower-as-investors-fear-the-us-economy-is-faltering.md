@@ -1,6 +1,6 @@
 # Dow closes nearly 500 points lower as investors fear the US economy is faltering
 
-Published :`2024-08-03 13:15:22`
+Published :`2024-08-03 13:37:06`
 
 ---
 
