@@ -1,6 +1,6 @@
 # Tropical Storm Debby forms in the Gulf of Mexico, expected to reach hurricane strength before landfall in Florida
 
-Published :`2024-08-03 21:36:40`
+Published :`2024-08-03 22:13:14`
 
 ---
 
@@ -14,6 +14,8 @@ Hurricane warnings are now in effect for the Florida Gulf Coast from the Suwanne
 
 A hurricane watch was issued earlier Saturday, from Yankeetown, above Crystal River, northward and around the Big Bend region to Indian Pass on the Florida Panhandle.
 
+Track the Storm: Spaghetti models and more maps here
+
 The Big Bend area is still recovering from a devastating blow by Category 3 Hurricane Idalia last August as it prepares for a new threat from Debby.
 
 Other alerts warning of tropical storm conditions over the next 48 hours span the entire western Florida coast south of the Big Bend and include Tampa, Sarasota, Fort Myers and Naples. A storm surge warning stretches from Aripeka, about 45 miles northwest of Tampa, up to the mouth of the Aucilla River.
@@ -21,8 +23,6 @@ Other alerts warning of tropical storm conditions over the next 48 hours span th
 A tropical storm warning remained in effect for the Florida Keys from the Seven Mile Bridge westward, according to the hurricane center’s 5 p.m. ET update.
 
 The hurricane center said the storm system became better organized by late Saturday morning as it moved toward Florida and landfall. “Heavy rainfall will likely result in locally considerable flash and urban flooding across portions of Florida and the coastal areas of the Southeast this weekend through Thursday morning.”
-
-Track the Storm: Spaghetti models and more maps here
 
 “Hurricane conditions are possible in the hurricane watch area by Sunday night, with tropical storm conditions expected to begin on Sunday,” the hurricane center said. “Tropical storm conditions are expected to spread northward over the tropical storm warning areas this evening and continuing through Sunday.”
 
@@ -77,6 +77,10 @@ Local governments have started putting out advisories. Citrus and Levy counties 
 Sandbag distribution began Friday for residents in several communities in the Orlando and Tampa metros. Multiple counties in the state’s panhandle – including Escambia, Okaloosa and Santa Rosa – started distributing sandbags Thursday.
 
 “You still have some time to put your disaster supply kit together,” Hurricane Center Director Michael Brennan said. “Make sure you have multiple days of food, water, prescription medicines. Keep your gas tank full, cash on hand, and keep batteries. Make sure your phone’s charged and make sure you have a battery powered radio.”
+
+Georgia Gov. Brian Kemp also declared a state of emergency Saturday ahead of Debby’s possible impacts.
+
+“As the state prepares for a major storm system early this coming week, we urge all Georgians to take precautions to keep their families and property safe. I’ve issued a State of Emergency through Thursday, August 8,” Kemp said in a post on X.
 
 ---
 
