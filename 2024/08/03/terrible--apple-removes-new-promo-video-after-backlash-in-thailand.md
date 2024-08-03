@@ -1,6 +1,6 @@
 # ‘Terrible’: Apple removes new promo video after backlash in Thailand
 
-Published :`2024-08-03 13:37:02`
+Published :`2024-08-03 14:14:39`
 
 ---
 
