@@ -1,6 +1,6 @@
 # Plaintiffs in Maui wildfire case reach $4 billion settlement against Hawaiian Electric and others
 
-Published :`2024-08-03 02:49:51`
+Published :`2024-08-03 03:16:04`
 
 ---
 
@@ -15,6 +15,12 @@ The settlement “will help our people heal,” Green said in the release. “My
 Hawaiian Electric said the settlement came after four months of mediation. ”﻿Our objective is to make sure a tragedy like this never happens again,” Shelee Kimura, president and CEO of Hawaiian Electric, said in a statement.
 
 The Hawaiian wildfires last August burned over 2,000 acres in Lahaina, and hundreds of acres in Kula and Olinda, on the island of Maui. The resulting destruction of homes, businesses and infrastructure, along with the loss of tourism may have resulted in up to $6 billion in economic losses, according to an estimate from Moody’s RMS. The fires killed more than 100 people.
+
+The Maui disaster began unfolding on August 8 last year, according to a report from the state’s attorney general. It would eventually become what Green at the time called “the largest natural disaster we’ve ever experienced.”
+
+Images of the fire horrified the nation, with the Maui wildfires becoming the deadliest in the US in more than a century. Buildings were reduced to ash, homes were destroyed and communities were left struggling to rebuild.
+
+“It seemed like an apocalypse,” one Maui firefighter told CNN last year. “Everything seemed to be on fire.”
 
 This is a developing story and will be updated.
 
