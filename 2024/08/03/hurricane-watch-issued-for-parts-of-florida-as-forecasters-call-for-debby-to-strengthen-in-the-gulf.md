@@ -1,18 +1,22 @@
 # Hurricane watch issued for parts of Florida as forecasters call for Debby to strengthen in the Gulf
 
-Published :`2024-08-03 15:35:44`
+Published :`2024-08-03 16:19:31`
 
 ---
 
-Parts of Florida are now under a hurricane watch as the chance is increasing future Tropical Storm Debby could be a hurricane when it makes landfall in the coming days.
+Parts of Florida are under a hurricane watch as the chance is increasing future Tropical Storm Debby could be a hurricane when it makes landfall in the coming days.
 
-The storm, which is now Tropical Depression Four, is forecast to slow down significantly after making landfall and wring out multiple days of rain in the Southeast, increasing the chances for significant flooding there.
+The storm, which is currently Tropical Depression Four, is forecast to slow down significantly after making landfall and wring out multiple days of rain in the Southeast, increasing the chances for significant flooding there.
 
-The hurricane watch was issued for parts of Florida’s Big Bend region, where the National Hurricane Center forecasts a landfall as a strong tropical storm by Monday morning. The area is still recovering from a devastating blow by Category 3 Hurricane Idalia last August.
+The hurricane watch was issued for parts of Florida’s Big Bend region, where the National Hurricane Center (NHC) forecasts a landfall as a strong tropical storm by Monday morning. The watch covers a large portion of the coast, from Yankeetown, above Crystal River, northward and around the Big Bend region to Indian Pass on the Florida Panhandle.
 
-Other alerts warning of tropical storm conditions over the next 48 hours span the entire western Florida coast south of the Big Bend and include Tampa, Sarasota, Fort Myers and Naples.
+The Big Bend area is still recovering from a devastating blow by Category 3 Hurricane Idalia last August.
 
-Tropical Depression Four currently has maximum sustained winds of 30 mph and is about 170 miles southeast of Key West, just off the coast of Cuba, according to the National Hurricane Center’s 8 a.m. ET update.
+Other alerts warning of tropical storm conditions over the next 48 hours span the entire western Florida coast south of the Big Bend and include Tampa, Sarasota, Fort Myers and Naples. A storm surge warning stretches from Aripeka, about 45 miles northwest of Tampa, up to the mouth of the Aucilla River.
+
+The NHC said the storm system was better organized late Saturday morning as it moves toward Florida and landfall. “Heavy rainfall will likely result in locally considerable flash and urban flooding across portions of Florida and the coastal areas of the Southeast this weekend through Thursday morning.”
+
+Tropical Depression Four has maximum sustained winds of 35 mph and is about 125 miles south of Key West, just off the coast of Cuba, according to the NHC’s 11 a.m. ET update.
 
 Track the Storm: Spaghetti models and more maps here
 
@@ -21,6 +25,8 @@ The storm is expected to enter the eastern Gulf of Mexico on Saturday and offici
 “Very Intense” rainfall is expected in southwest Florida on Saturday and a widespread 3 to 5 inches of rain could fall, according to the Weather Prediction Center. The intense rain will be potent enough to cause flash flooding, even in marshy areas of the state more capable of handling excess water.
 
 The storm is forecast to continue to strengthen through the weekend and up to landfall while tracking through the Gulf of Mexico parallel to the western coast of Florida.
+
+“This is a life-threatening situation. Persons located within these areas should take all necessary actions to protect life and property from rising water and the potential for other dangerous conditions,” the NHC said. “Promptly follow evacuation and other instructions from local officials.”
 
 Emergency management officials in the Big Bend’s Levy County, home to Cedar Key, warned Saturday the expected storm surge could merit evacuation orders. Cedar Key was slammed by Idalia in 2023; the storm surge then was 8 to 12 feet in Big Bend.
 
