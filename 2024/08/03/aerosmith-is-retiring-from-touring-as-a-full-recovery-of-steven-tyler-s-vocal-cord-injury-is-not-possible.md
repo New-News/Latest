@@ -1,6 +1,6 @@
 # Aerosmith is retiring from touring as a ‘full recovery’ of Steven Tyler’s vocal cord injury is ‘not possible’
 
-Published :`2024-08-03 17:36:23`
+Published :`2024-08-03 18:19:58`
 
 ---
 

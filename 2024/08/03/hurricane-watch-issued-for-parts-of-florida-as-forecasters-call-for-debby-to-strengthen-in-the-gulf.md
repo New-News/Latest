@@ -1,6 +1,6 @@
 # Hurricane watch issued for parts of Florida as forecasters call for Debby to strengthen in the Gulf
 
-Published :`2024-08-03 17:36:22`
+Published :`2024-08-03 18:19:55`
 
 ---
 
@@ -14,13 +14,15 @@ The Big Bend area is still recovering from a devastating blow by Category 3 Hurr
 
 Other alerts warning of tropical storm conditions over the next 48 hours span the entire western Florida coast south of the Big Bend and include Tampa, Sarasota, Fort Myers and Naples. A storm surge warning stretches from Aripeka, about 45 miles northwest of Tampa, up to the mouth of the Aucilla River.
 
-The NHC said the storm system was better organized late Saturday morning as it moves toward Florida and landfall. “Heavy rainfall will likely result in locally considerable flash and urban flooding across portions of Florida and the coastal areas of the Southeast this weekend through Thursday morning.”
+A tropical storm warning is in effect for the Florida Keys from the Seven Mile Bridge westward, according to the NHC’s 2 p.m. ET update.
 
-Tropical Depression Four has maximum sustained winds of 35 mph and is about 125 miles south of Key West, just off the coast of Cuba, according to the NHC’s 11 a.m. ET update.
+The NHC said the storm system was better organized by late Saturday morning as it moves toward Florida and landfall. “Heavy rainfall will likely result in locally considerable flash and urban flooding across portions of Florida and the coastal areas of the Southeast this weekend through Thursday morning.”
+
+Tropical Depression Four has maximum sustained winds of 35 mph and is about 115 miles south-southwest of Key West, just off the coast of Cuba, according to the NHC’s 2 p.m. ET update.
 
 Track the Storm: Spaghetti models and more maps here
 
-The storm is expected to enter the eastern Gulf of Mexico on Saturday and officially become Tropical Storm Debby, according to the hurricane center. Tropical storm conditions could begin Saturday night in parts of southwest Florida, and rain will start impacting parts of South Florida.
+The storm is expected to enter the eastern Gulf of Mexico on Saturday and officially become Tropical Storm Debby, according to the hurricane center. “Slow strengthening is expected this afternoon and tonight, and the depression is expected to become a tropical storm by tonight,” the NHC said Saturday afternoon. Tropical storm conditions could begin Saturday night in parts of southwest Florida, and rain will start impacting parts of South Florida.
 
 “Very Intense” rainfall is expected in southwest Florida on Saturday and a widespread 3 to 5 inches of rain could fall, according to the Weather Prediction Center. The intense rain will be potent enough to cause flash flooding, even in marshy areas of the state more capable of handling excess water.
 
@@ -50,7 +52,7 @@ After landfall Monday, the storm is forecast to track to the northeast over port
 
 But the atmospheric components that help steer and push storms along are forecast to breakdown and cause future-Debby to slow significantly while over the Southeast early next week.
 
-The flood threat increases dramatically with slower storms as they linger over the same areas and dump repeated bouts of heavy rain. Five to 10 inches of rain – potentially more – is forecast over coastal portions of Georgia, South Carolina and North Carolina.
+The flood threat increases dramatically with slower storms, as they linger over the same areas and dump repeated bouts of heavy rain. Five to 10 inches of rain – potentially more – is forecast over coastal portions of Georgia, South Carolina and North Carolina.
 
 As a result, the risk of flooding rainfall was increased to a level 3 out of 4 over the coasts of Georgia and South Carolina, including Savannah and Charleston, for Monday into Tuesday.
 
@@ -58,7 +60,7 @@ It’s also possible that this risk level will increase to a level 4 of 4 depend
 
 Freshwater flooding – flooding caused by rainfall – has become the deadliest aspect of tropical systems in the last decade, according to research conducted by the National Hurricane Center.
 
-A world warming due to fossil fuel pollution is making this potential threat more dangerous. Studies also have shown tropical systems are slowing down over time, which means they’re more likely produce greater rainfall totals over a given area.
+A world warming due to fossil fuel pollution is making this potential threat more dangerous. Studies also have shown tropical systems are slowing down over time, which means they’re more likely to produce greater rainfall totals over a given area.
 
 Oceans are also getting warmer and supercharging storms, pumping them full of moisture. A 2022 study published in the journal Nature Communications found climate change increased hourly rainfall rates in tropical storms by 5 to 10% and in hurricanes by 8 to 11%.
 
@@ -68,7 +70,7 @@ Florida Gov. Ron DeSantis has declared a state of emergency for 54 of the state�
 
 “Floridians are encouraged to monitor weather conditions, listen to all orders from local officials, create disaster preparedness plans, and stock disaster supply kits with food, water, and other necessities for their households,” the governor’s office said Friday.
 
-Local governments have started putting out advisories. Pasco County, just above Tampa, on Saturday urged voluntary evacuations for some residents, including those who live in manufactured homes, RVs or in low-lying areas.
+Local governments have started putting out advisories. Pasco County, just above Tampa, on Saturday urged voluntary evacuations for some residents, including those who live in manufactured homes, RVs or in low-lying areas. Levy County issued a mandatory evacuation for those in similar conditions, with a deadline of 8 p.m.
 
 Sandbag distribution began Friday for residents in several communities in the Orlando and Tampa metros. Multiple counties in the state’s panhandle – including Escambia, Okaloosa and Santa Rosa – started distributing sandbags Thursday.
 
