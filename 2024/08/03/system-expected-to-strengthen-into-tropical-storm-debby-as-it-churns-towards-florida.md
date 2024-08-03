@@ -1,26 +1,26 @@
 # System expected to strengthen into Tropical Storm Debby as it churns towards Florida
 
-Published :`2024-08-03 09:35:53`
+Published :`2024-08-03 10:14:56`
 
 ---
 
 A tropical depression making its way towards the Florida coast is expected to strengthen into Tropical Storm Debby Saturday before delivering heavy, flooding rainfall and dangerous storm surge to the state starting this weekend.
 
-The system – currently dubbed Tropical Depression Four – is churning maximum sustained winds of 30 mph and is about 230 miles southeast of Key West, just off the coast of Cuba, according to the National Hurricane Center’s 2 a.m. ET update.
+The system – currently dubbed Tropical Depression Four – is churning maximum sustained winds of 30 mph and is about 195 miles southeast of Key West, just off the coast of Cuba, according to the National Hurricane Center’s 5 a.m. ET update.
 
 The storm is expected to enter the eastern Gulf of Mexico on Saturday and become Tropical Storm Debby, according to the hurricane center. Tropical storm conditions could begin Saturday night in parts of southwest Florida.
+
+The hurricane center currently predicts the storm will near hurricane strength by the time it reaches landfall in the Big Bend region of Florida Monday morning. A hurricane watch was issued Saturday morning for a stretch of Florida’s west coast from the Aucilla River to Yankeetown, while tropical storm warnings have been extended northward.
 
 Track the Storm: Spaghetti models and more maps here
 
 While the storm’s exact track and strength are still uncertain, how much time the system spends over record-warm water in the eastern Gulf of Mexico will determine how strong it becomes.
 
-The hurricane center currently predicts the storm will near hurricane strength by the time it reaches landfall in the Big Bend region of Florida Monday morning.
-
 “The westward shift to the track forecast now also keeps the system over the warm waters of the Gulf of Mexico longer, giving the system additional time to potentially strengthen,” the hurricane center said. “It is important to note that because of the forecast track being parallel to the west coast of Florida, the location and timing of a potential landfall cannot be pinned down at this time.”
 
 No matter its strength, torrential, flooding rain will be the most significant impact from the storm – especially if the system slows down.
 
-Tropical storm warnings are in effect for the Dry Tortugas and the west coast of the Florida peninsula from East Cape Sable to Boca Grande. Meanwhile, tropical storm watches extend along the peninsula’s west coast from Boca Grande to the mouth of the Suwannee River, and the southern coast east of East Cape Sable to the Card Sound Bridge.
+A tropical storm warning is in effect for the Dry Tortugas and the west coast of the Florida peninsula from south of Yankeetown to East Cape Sable. Meanwhile, a tropical storm watch is in effect for the area west of the Aucilla River to the Ochlockonee River.
 
 Parts of the Florida Keys and parts of the Central Florida coast are also under a tropical storm watch, with officials urging residents there to prepare for tropical storm conditions within the next 48 hours. The watch includes Fort Myers, Cape Coral and Tampa Bay.
 
@@ -44,7 +44,7 @@ A level 2 of 4 risk of flooding rainfall is in place Saturday for much of South 
 
 The risk to life and property would increase considerably if these intense storms reach the Miami area. Up to 20 inches of rain deluged South Florida in a very short window in early July and produced extremely dangerous flash flooding across the greater Miami metro, resulting in a couple hundred water rescues.
 
-The level 2 of 4 risk of flooding rainfall will expand over much of the state and reach into other portions of Georgia and the Carolinas Sunday.
+There is a level 3 out of 4 risk for excessive rainfall over the coasts of Georgia and South Carolina Sunday into early Monday.
 
 Exactly when and where torrential downpours set up outside of Florida will depend on the system’s ultimate track, but heavy rain is possible as early as Sunday afternoon. It’s also possible that this risk level will increase – especially in Florida – once the system’s track comes into further focus.
 
