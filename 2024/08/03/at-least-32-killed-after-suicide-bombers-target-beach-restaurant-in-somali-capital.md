@@ -1,14 +1,18 @@
 # At least 32 killed after suicide bombers target beach restaurant in Somali capital
 
-Published :`2024-08-03 10:14:56`
+Published :`2024-08-03 10:36:36`
 
 ---
 
 At least 32 people have been killed and dozens injured in a suicide attack at a beach restaurant in the Somali capital Mogadishu on Friday, state media SONNA reported Saturday.
 
-Six members of the Somali militant group al-Shabaab targeted the restaurant at the Beach View Hotel using a suicide bomb, according to SONNA.
+Six members of the Somali militant group al-Shabaab targeted the restaurant at the Beach View Hotel using a suicide bomb, according to SONNA. Five attackers were killed, SONNA reported. It is unclear what happened to the sixth.
 
-“Security forces neutralized” five of the attackers who carried out the attack on Lido Beach, SONNA reported. It’s unclear if the sixth attacker has been killed as well.
+Video from the attack site the morning after the blast shows civilians surrounding an ambulance. People sit around on the sand, with an area of the ground appearing blackened.
+
+Hassan Farah, a survivor of the attack, told Reuters that he was sitting in the restaurant with his friends when it happened.
+
+“In a second there was something like lightning and a huge blast,” he said. “We were covered with smoke. Inside and outside the restaurant, many people were lying on the floor while others were bleeding and crying.”
 
 Injured victims were rushed to hospitals across the city, according to SONNA. Members of the public showed up in “overwhelming numbers” to give blood following an urgent call for donations, it said.
 
@@ -24,7 +28,7 @@ After Friday’s attack, the Mayor of Mogadishu, Yusuf Hussein Jimale, offered �
 
 The government of Banadir Region, where Mogadishu is located, will “support and assist the Somali community during this difficult time,” the state media outlet reported.
 
-This is a developing story and will be updated.
+This story has been updated with additional information.
 
 ---
 
