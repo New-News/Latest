@@ -1,6 +1,6 @@
 # These outdoor guides just lost their homes in a wildfire. They believe in their town’s rebirth
 
-Published :`2024-08-03 12:51:10`
+Published :`2024-08-03 13:15:20`
 
 ---
 

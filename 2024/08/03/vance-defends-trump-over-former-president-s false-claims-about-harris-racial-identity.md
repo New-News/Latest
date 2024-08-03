@@ -1,6 +1,6 @@
 # Vance defends Trump over former president’s false claims about Harris’ racial identity
 
-Published :`2024-08-03 12:51:13`
+Published :`2024-08-03 13:15:22`
 
 ---
 
