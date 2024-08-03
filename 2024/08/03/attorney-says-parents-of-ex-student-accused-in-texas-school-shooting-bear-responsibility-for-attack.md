@@ -1,6 +1,6 @@
 # Attorney says parents of ex-student accused in Texas school shooting bear responsibility for attack
 
-Published :`2024-08-03 14:14:41`
+Published :`2024-08-03 14:36:05`
 
 ---
 

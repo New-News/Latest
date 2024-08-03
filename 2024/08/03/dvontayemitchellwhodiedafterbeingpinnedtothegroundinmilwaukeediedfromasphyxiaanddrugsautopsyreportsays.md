@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says
 
-Published :`2024-08-03 14:14:39`
+Published :`2024-08-03 14:36:03`
 
 ---
 
@@ -78,7 +78,7 @@ Aimbridge Hospitality, the hotel management company that operates the Hyatt Rege
 
 “Following review of their actions, their employment has been terminated,” the statement said. “We will continue our independent investigation and do everything we can to support law enforcement with their investigation into this tragic incident.”
 
-CNN’s Alisha Ebrahimji, Ray Sanchez and Rebekah Riess contributed to this report.
+CNN’s Alisha Ebrahimji, Ray Sanchez, Rebekah Riess and Sarah Dewberry contributed to this report.
 
 This story has been updated with additional information.
 
