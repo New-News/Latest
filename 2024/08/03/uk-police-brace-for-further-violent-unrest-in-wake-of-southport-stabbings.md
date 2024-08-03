@@ -1,12 +1,12 @@
 # UK police brace for further violent unrest in wake of Southport stabbings
 
-Published :`2024-08-03 14:36:03`
+Published :`2024-08-03 15:15:14`
 
 ---
 
 UK police are bracing for further violent unrest this weekend after three young girls were murdered in a knife attack on Monday, triggering a wave of disorder across the country.
 
-Eight people were arrested and three police officers were injured during the latest round of violent protests in Sunderland, northeast England, on Friday.
+Ten people were arrested and four police officers were injured during the latest round of violent protests in Sunderland, northeast England, on Friday. Those detained are facing a range of offenses, including violent disorder and burglary.
 
 Hundreds of rioters pelted police with stones, shouted anti-Islam slogans and targeted a local mosque, PA Media reported, in scenes police called “completely unacceptable.”
 

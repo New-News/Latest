@@ -1,12 +1,14 @@
 # Warren Buffett’s Berkshire Hathaway cuts stake in Apple by nearly 50%
 
-Published :`2024-08-03 14:36:03`
+Published :`2024-08-03 15:15:14`
 
 ---
 
 Warren Buffett’s Berkshire Hathaway slashed its stake in tech giant Apple by nearly 50%, according to Berkshire’s second quarter earnings report released on Saturday.
 
 Berkshire Hathaway disclosed its holdings in Apple were valued at $84.2 billion at the end of the quarter, dropping from 790 million shares to 400 million shares. The sharp selloff is notable for Buffett, who is known for holding onto stocks for long periods of time.
+
+Apple did not respond to CNN’s request for comment.
 
 Berkshire Hathaway has previously downsized its stake Apple, which has a market cap over $3.3 trillion. In the final three months of 2023, Berkshire Hathaway sold off 10 million shares of Apple stock, representing about 1% of its holdings in the company. In the first quarter of 2024, Berkshire cuts its stake in Apple by 13%.
 

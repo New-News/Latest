@@ -1,6 +1,6 @@
 # A critical system of Atlantic Ocean currents could collapse as early as the 2030s, new research suggests
 
-Published :`2024-08-03 14:36:04`
+Published :`2024-08-03 15:15:14`
 
 ---
 
@@ -8,7 +8,7 @@ A vital system of Atlantic Ocean currents that influences weather across the wor
 
 Several studies in recent years have suggested the crucial system — the Atlantic Meridional Overturning Circulation, or AMOC — could be on course for collapse, weakened by warmer ocean temperatures and disrupted saltiness caused by human-induced climate change.
 
-But the new research, which has been peer-reviewed but not yet published in a journal, uses a state-of-the-art model to estimate when it could collapse, suggesting a shutdown could happen between 2037 and 2064.
+But the new research, which is being peer-reviewed and hasn’t yet been published in a journal, uses a state-of-the-art model to estimate when it could collapse, suggesting a shutdown could happen between 2037 and 2064.
 
 This research suggests it’s more likely than not to collapse by 2050.
 
@@ -41,6 +41,8 @@ For example, the models don’t take into consideration a critical factor in the
 “You’re already getting a huge influx of fresh water into the northern Atlantic, which is going to completely disrupt the system,” Rahmstorf said.
 
 This research gap means the predictions could underestimate how soon or fast a collapse would happen, Rahmstof said.
+
+Clarification: This story has been updated to emphasize the new research is in the peer review process.
 
 ---
 
