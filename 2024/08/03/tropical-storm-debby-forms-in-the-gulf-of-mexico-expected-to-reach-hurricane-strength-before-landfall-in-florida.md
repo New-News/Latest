@@ -1,6 +1,6 @@
 # Tropical Storm Debby forms in the Gulf of Mexico, expected to reach hurricane strength before landfall in Florida
 
-Published :`2024-08-03 22:35:45`
+Published :`2024-08-03 23:15:28`
 
 ---
 
@@ -27,6 +27,12 @@ The hurricane center said the storm system became better organized by late Satur
 “Hurricane conditions are possible in the hurricane watch area by Sunday night, with tropical storm conditions expected to begin on Sunday,” the hurricane center said. “Tropical storm conditions are expected to spread northward over the tropical storm warning areas this evening and continuing through Sunday.”
 
 “Very Intense” rainfall is expected in southwest Florida on Saturday and a widespread 3 to 5 inches of rain could fall, according to the Weather Prediction Center. The intense rain will be potent enough to cause flash flooding, even in marshy areas of the state more capable of handling excess water.
+
+“After landfall, weakening steering currents should cause the cyclone to slow down while it moves northeastward or eastward over parts of northern Florida and Georgia,” the National Hurricane Center reported. Debby will slow and stall thanks to the lack of steering, leading to possibly prolific amounts of heavy rain.
+
+As Debby just sits and spins along the Georgia-Carolina coastline going into the work week, it could dump a widespread 6 to 12 inches of rain.
+
+The heaviest rain totals could even top 18 inches or more depending on how long Debby meanders and some forecast models have Debby lingering through at least Thursday. The National Hurricane Center added: “This rainfall will likely result in areas of considerable flash and urban flooding, with significant river flooding expected.”
 
 The storm is forecast to continue to strengthen through the weekend and up to landfall while tracking through the Gulf of Mexico parallel to the western coast of Florida.
 
