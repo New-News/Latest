@@ -1,6 +1,6 @@
 # Inside the final days of Kamala Harris’ vice presidential decision
 
-Published :`2024-08-03 16:39:48`
+Published :`2024-08-03 17:13:05`
 
 ---
 
@@ -54,9 +54,9 @@ Richmond said that from what he saw Harris take away from her time with Biden, t
 
 Over the coming days, Harris, with her prosecutor-trained mentality, will be running pros and cons, testing out theories and looking for what aides can tell her about qualities in running mates that have actually changed votes in the past.
 
-She has talked to Biden. She has talked to Barack Obama. Polling and focus groups have been conducted. Sample videos to play have been requested. Hours and hours of interviews with aides, on top of thousands of pages of hastily assembled documents, and in some cases with detailed follow up questions, have been coalesced by a group of lawyers led by former Attorney General Eric Holder and former White House counsel Dana Remus into briefing books.
+She has talked to Biden. She has talked to Barack Obama. Polling and focus groups have been conducted. Sample videos to play have been requested. Hours and hours of interviews with aides, on top of thousands of pages of hastily assembled documents, and in some cases with detailed follow-up questions, have been coalesced by a group of lawyers led by former Attorney General Eric Holder and former White House counsel Dana Remus into briefing books. Harris is expected to meet with her vetting team on Saturday for a series of in-depth presentations on each of the finalists to be her running mate, according to a source familiar with the process.
 
-Harris and her team know, though, that there are limits to what polling can reliably say over just two weeks, particularly given the historic upheaval the race has just gone through. They know there are questions, particularly about finances and deep dives into their backgrounds, that even the prospective choices themselves might not remember to bring up amid this rush. A chunk of the message testing on prospective choices has come from their TV appearances in the past two weeks of hurried public auditions.
+Harris and her aides know, though, that there are limits to what polling can reliably say over just two weeks, particularly given the historic upheaval the race has just gone through. They know there are questions, particularly about finances and deep dives into their backgrounds, that even the prospective choices themselves might not remember to bring up amid this rush. A chunk of the message testing on prospective choices has come from their TV appearances in the past two weeks of hurried public auditions.
 
 Several involved with the process, though, say that they have walked away with one clear sense from the Harris team: no surprises. Nothing that could derail the honeymoon Harris is trying to keep going. Nothing that could give them their own version of JD Vance’s clunky start that they have been watching carefully or the clear tensions that have set in between some in Donald Trump’s and his running mate’s orbits.
 
@@ -71,6 +71,8 @@ Obama reminded his former vice president that they had not gotten along well at 
 Harris is less emotionally driven than Biden. And she knows, as a woman of color leading the Democratic ticket, how much is riding on her not to be seen as failing in this moment.
 
 “She will recognize that she’s in a tough race, and she needs to pick the best running mate that will help her win,” said Rep. Adam Schiff, a California Democrat and current candidate for Senate who has known Harris for years. “I think it’s going to be less about who does she have the best chemistry with and more about who has the best chance of helping the ticket.”
+
+This story has been updated with additional information.
 
 ---
 

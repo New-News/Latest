@@ -1,6 +1,6 @@
 # Intel lays off 15% of its staff and its stock tumbles as it struggles to turn around its ailing business
 
-Published :`2024-08-03 16:39:54`
+Published :`2024-08-03 17:13:09`
 
 ---
 

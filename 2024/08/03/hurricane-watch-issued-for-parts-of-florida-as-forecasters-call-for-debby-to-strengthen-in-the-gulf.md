@@ -1,6 +1,6 @@
 # Hurricane watch issued for parts of Florida as forecasters call for Debby to strengthen in the Gulf
 
-Published :`2024-08-03 16:39:47`
+Published :`2024-08-03 17:13:05`
 
 ---
 
@@ -67,6 +67,8 @@ Oceans are also getting warmer and supercharging storms, pumping them full of
 Florida Gov. Ron DeSantis has declared a state of emergency for 54 of the state’s 67 counties to mobilize resources as the storm churned toward the Sunshine State.
 
 “Floridians are encouraged to monitor weather conditions, listen to all orders from local officials, create disaster preparedness plans, and stock disaster supply kits with food, water, and other necessities for their households,” the governor’s office said Friday.
+
+Local governments have started putting out advisories. Pasco County, just above Tampa, on Saturday urged voluntary evacuations for some residents, including those who live in manufactured homes, RVs or in low-lying areas.
 
 Sandbag distribution began Friday for residents in several communities in the Orlando and Tampa metros. Multiple counties in the state’s panhandle – including Escambia, Okaloosa and Santa Rosa – started distributing sandbags Thursday.
 
