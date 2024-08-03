@@ -1,6 +1,6 @@
 # Hurricane watch issued for parts of Florida as forecasters call for Debby to strengthen in the Gulf
 
-Published :`2024-08-03 19:35:31`
+Published :`2024-08-03 20:14:39`
 
 ---
 
@@ -70,7 +70,7 @@ Florida Gov. Ron DeSantis has declared a state of emergency for 54 of the state�
 
 “Floridians are encouraged to monitor weather conditions, listen to all orders from local officials, create disaster preparedness plans, and stock disaster supply kits with food, water, and other necessities for their households,” the governor’s office said Friday.
 
-Local governments have started putting out advisories. Pasco County, just above Tampa, on Saturday urged voluntary evacuations for some residents, including those who live in manufactured homes, RVs or in low-lying areas. Levy County issued a mandatory evacuation for those in similar conditions, with a deadline of 8 p.m. Citrus County north of Tampa and Taylor County nestled in Florida’s Big Bend area also issued voluntary evacuation orders Saturday.
+Local governments have started putting out advisories. Citrus and Levy counties have issued mandatory evacuation orders in certain low-lying areas and for some residents living in manufactured homes or RVs. Voluntary evacuation notices have been announced in other areas of both counties, along with Pasco and Taylor Counties.
 
 Sandbag distribution began Friday for residents in several communities in the Orlando and Tampa metros. Multiple counties in the state’s panhandle – including Escambia, Okaloosa and Santa Rosa – started distributing sandbags Thursday.
 

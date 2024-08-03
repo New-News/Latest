@@ -1,6 +1,6 @@
 # House Freedom Caucus chair concedes Virginia primary to Trump-backed foe after recount
 
-Published :`2024-08-03 19:35:40`
+Published :`2024-08-03 20:14:45`
 
 ---
 

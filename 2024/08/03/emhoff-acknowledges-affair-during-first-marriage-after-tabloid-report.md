@@ -1,6 +1,6 @@
 # Emhoff acknowledges affair during first marriage after tabloid report
 
-Published :`2024-08-03 19:35:31`
+Published :`2024-08-03 20:14:39`
 
 ---
 
@@ -10,7 +10,7 @@ Vice President Kamala Harris’s husband Doug Emhoff acknowledged Saturday in a 
 
 The statement comes after the Daily Mail reported that Emhoff had a relationship with one of his then-young daughter’s teachers, which resulted in the end of his first marriage.
 
-The relationship and the circumstances around it were disclosed four years ago to Joe Biden’s vetting committee as Harris was herself going through the running mate process before being picked for the ticket, a person familiar with the conversations told CNN. The person also said that Emhoff had told Harris about the affair well before they got married.
+The relationship and the circumstances around it were known four years ago to Joe Biden’s vetting committee as Harris was herself going through the running mate process before being picked for the ticket, a person familiar with the conversations told CNN. The person also said that Emhoff had told Harris about the affair well before they got married.
 
 The relationship ended years before Emhoff began dating Harris.
 
@@ -43,6 +43,8 @@ He also responded on Wednesday to Trump’s insistence that Harris had only ever
 “We’ve got to focus on what they’re really trying to do, which is to destroy our country,” Emhoff said.
 
 Harris is spending the weekend at their residence at the Naval Observatory in Washington, completing vetting and interviews with the men she is considering to be her own running mate, with an announcement planned for early next week.
+
+This story has been updated.
 
 ---
 
