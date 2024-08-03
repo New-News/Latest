@@ -1,10 +1,14 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-03 07:36:46`
+#### Latest Update : `2024-08-03 08:18:53`
 
 ## Latest News Grabbing 
 
 ---
+
+- [D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says](https://new-news.github.io/Latest/2024/08/03/dvontayemitchellwhodiedafterbeingpinnedtothegroundinmilwaukeediedfromasphyxiaanddrugsautopsyreportsays 'D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says')
+
+- [Eight people arrested during latest UK protest after fatal stabbings](https://new-news.github.io/Latest/2024/08/03/eight-people-arrested-during latest-uk-protest-after-fatal-stabbings 'Eight people arrested during latest UK protest after fatal stabbings')
 
 - [System expected to strengthen into Tropical Storm Debby as it churns towards Florida](https://new-news.github.io/Latest/2024/08/03/system-expected-to-strengthen-into-tropical-storm-debby-as-it-churns-towards-florida 'System expected to strengthen into Tropical Storm Debby as it churns towards Florida')
 
@@ -16,11 +20,7 @@
 
 - [Tropical Storm Debby forecast to hit Florida this weekend with torrential rain and wind](https://new-news.github.io/Latest/2024/08/03/tropical-storm-debby-forecast-to-hit-florida-this-weekend-with-torrential-rain-and-wind 'Tropical Storm Debby forecast to hit Florida this weekend with torrential rain and wind')
 
-- [D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says](https://new-news.github.io/Latest/2024/08/03/dvontayemitchellwhodiedafterbeingpinnedtothegroundinmilwaukeediedfromasphyxiaanddrugsautopsyreportsays 'D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says')
-
 - [Texas woman who traveled to DC arrested for allegedly making threats against Trump](https://new-news.github.io/Latest/2024/08/03/texas-woman-who-traveled-to-dc arrested-for allegedly-making-threats-against-trump 'Texas woman who traveled to DC arrested for allegedly making threats against Trump')
-
-- [Eight people arrested during latest UK protest after fatal stabbings](https://new-news.github.io/Latest/2024/08/03/eight-people-arrested-during latest-uk-protest-after-fatal-stabbings 'Eight people arrested during latest UK protest after fatal stabbings')
 
 - [Defense secretary abruptly revokes plea deal with alleged 9/11 mastermind KSM, co-conspirators](https://new-news.github.io/Latest/2024/08/03/defense-secretary-abruptly-revokes-plea-deal-with-alleged-9-11-mastermind-ksm-co-conspirators 'Defense secretary abruptly revokes plea deal with alleged 9/11 mastermind KSM, co-conspirators')
 

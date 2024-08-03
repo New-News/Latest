@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says
 
-Published :`2024-08-03 07:36:44`
+Published :`2024-08-03 08:18:47`
 
 ---
 
@@ -43,6 +43,8 @@ When officers arrived, Mitchell was unresponsive and pronounced dead despite lif
 During a Friday evening news conference, Mitchell family attorney William Sulton painted a different picture from the medical examiner’s report, playing several more videos from the incident, including security camera footage that revealed for the first time a view from inside the Hyatt as employees were removing Mitchell from the building.
 
 The footage shows Mitchell being dragged across the floor inside the lobby, and from another angle outside that shows employees holding him down on the ground.
+
+“The first time I saw it, I couldn’t even get it out of my mind … I’ve never forgotten what this looks like, and now that it’s made public, I have to make sure that my daughter doesn’t see it,” Mitchell’s widow, DeAsia Harmon, said at the news conference. “This is somebody I spent 12 years of my life with and now I have to watch his life being taken for nothing.”
 
 The Mitchell’s family attorney claims he had been shown these new videos by the Milwaukee District Attorney’s Office, but the office didn’t provide copies of the videos to him. They were obtained after Sulton subpoenaed the medical examiner’s office, he says.
 
