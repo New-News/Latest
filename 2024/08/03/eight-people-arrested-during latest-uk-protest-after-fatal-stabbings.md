@@ -1,6 +1,6 @@
 # Eight people arrested during latest UK protest after fatal stabbings
 
-Published :`2024-08-03 06:40:47`
+Published :`2024-08-03 07:12:52`
 
 ---
 
