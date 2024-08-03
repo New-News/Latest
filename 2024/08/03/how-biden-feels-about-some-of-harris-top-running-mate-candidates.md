@@ -1,6 +1,6 @@
 # How Biden feels about some of Harris’ top running mate candidates
 
-Published :`2024-08-03 21:13:44`
+Published :`2024-08-03 21:36:41`
 
 ---
 
