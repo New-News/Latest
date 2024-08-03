@@ -1,6 +1,6 @@
 # JD Vance’s Republican colleagues defend Trump’s running mate saying Ohio senator is a voice for next generation of GOP voters
 
-Published :`2024-08-03 20:36:41`
+Published :`2024-08-03 21:13:47`
 
 ---
 

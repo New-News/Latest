@@ -1,6 +1,6 @@
 # Deputy’s fatal shooting of Sonya Massey highlights risky practice of hiring America’s legion of ‘wandering officers’
 
-Published :`2024-08-03 20:36:33`
+Published :`2024-08-03 21:13:42`
 
 ---
 
@@ -20,7 +20,7 @@ The professional association of prominent police leaders called Massey’s death
 
 The absence of an exhaustive, national database for tracking and weeding out rogue cops – along with a lack of coordination among the more than 18,000 law enforcement agencies in the country – has allowed officers like Grayson to get hired without their checkered histories sounding an alarm, according to policing officials and experts.
 
-“There’s no question that … officers getting rehired after they’ve been let go under whatever circumstances is a huge problem and appears to be responsible for a grossly disproportionate number of tragic incidents,” said Christy Lopez, a former deputy chief in the special litigation section of the civil rights division during the Obama administration.
+“There’s no question that … officers getting rehired after they’ve been let go under whatever circumstances is a huge problem and appears to be responsible for a grossly disproportionate number of tragic incidents,” said Christy Lopez, a former deputy chief in the special litigation section of the civil rights division at the Justice Department during the Obama administration.
 
 In addition, Lopez said, part-time law enforcement positions – like those Grayson held – tend not to attract the best candidates or get the most training.
 
