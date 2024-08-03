@@ -1,6 +1,6 @@
 # Harris meeting with VP vetting team for presentations on finalists
 
-Published :`2024-08-03 17:13:05`
+Published :`2024-08-03 17:36:22`
 
 ---
 
@@ -20,7 +20,7 @@ According to multiple sources, the material in the vetting is expected to crysta
 
 Harris’ top consideration is electability, sources familiar with her thinking told CNN.
 
-“She will be looking at what does person bring to a ticket? Will it help in battleground states? And will it balance out the ticket?” one source said.
+“She will be looking at what does a person bring to a ticket? Will it help in battleground states? And will it balance out the ticket?” one source said.
 
 “And she will ask questions. She will press and press — which is her (modus operandi).”
 

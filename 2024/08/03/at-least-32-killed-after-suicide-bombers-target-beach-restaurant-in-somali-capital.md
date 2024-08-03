@@ -1,6 +1,6 @@
 # At least 32 killed after suicide bombers target beach restaurant in Somali capital
 
-Published :`2024-08-03 17:13:05`
+Published :`2024-08-03 17:36:22`
 
 ---
 
