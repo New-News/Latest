@@ -1,6 +1,6 @@
 # 4 Las Vegas teens agree to plead guilty as juveniles in deadly beating of high school student
 
-Published :`2024-08-03 11:12:45`
+Published :`2024-08-03 11:35:48`
 
 ---
 
