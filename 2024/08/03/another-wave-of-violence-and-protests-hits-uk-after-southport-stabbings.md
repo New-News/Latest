@@ -1,6 +1,6 @@
 # Another wave of violence and protests hits UK after Southport stabbings
 
-Published :`2024-08-03 23:15:28`
+Published :`2024-08-03 23:37:20`
 
 ---
 
