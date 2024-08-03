@@ -1,6 +1,6 @@
 # Judge Chutkan could jumpstart Trump election interference case now that it’s back in her court
 
-Published :`2024-08-03 09:16:29`
+Published :`2024-08-03 09:35:54`
 
 ---
 
