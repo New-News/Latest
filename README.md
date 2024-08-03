@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-03 04:37:52`
+#### Latest Update : `2024-08-03 05:13:45`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Plaintiffs in Maui wildfire case reach $4 billion settlement against Hawaiian Electric and others](https://new-news.github.io/Latest/2024/08/03/plaintiffs-in-maui-wildfire-case-reach-4-billion-settlement-against-hawaiian-electric-and-others 'Plaintiffs in Maui wildfire case reach $4 billion settlement against Hawaiian Electric and others')
 
 - [3 Americans are back home after a historic prisoner swap. Readjusting to their normal lives could mean challenges ahead](https://new-news.github.io/Latest/2024/08/03/3americansarebackhomeafterahistoricprisonerswapreadjustingtotheirnormallivescouldmeanchallengesahead '3 Americans are back home after a historic prisoner swap. Readjusting to their normal lives could mean challenges ahead')
 
@@ -13,8 +15,6 @@
 - [D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says](https://new-news.github.io/Latest/2024/08/03/dvontayemitchellwhodiedafterbeingpinnedtothegroundinmilwaukeediedfromasphyxiaanddrugsautopsyreportsays 'D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says')
 
 - [Texas woman who traveled to DC arrested for allegedly making threats against Trump](https://new-news.github.io/Latest/2024/08/03/texas-woman-who-traveled-to-dc arrested-for allegedly-making-threats-against-trump 'Texas woman who traveled to DC arrested for allegedly making threats against Trump')
-
-- [Plaintiffs in Maui wildfire case reach $4 billion settlement against Hawaiian Electric and others](https://new-news.github.io/Latest/2024/08/03/plaintiffs-in-maui-wildfire-case-reach-4-billion-settlement-against-hawaiian-electric-and-others 'Plaintiffs in Maui wildfire case reach $4 billion settlement against Hawaiian Electric and others')
 
 - [Eight people arrested during latest UK protest after fatal stabbings](https://new-news.github.io/Latest/2024/08/03/eight-people-arrested-during latest-uk-protest-after-fatal-stabbings 'Eight people arrested during latest UK protest after fatal stabbings')
 
