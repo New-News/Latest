@@ -1,6 +1,6 @@
 # Plaintiffs in Maui wildfire case reach $4 billion settlement against Hawaiian Electric and others
 
-Published :`2024-08-03 20:14:41`
+Published :`2024-08-03 20:36:34`
 
 ---
 
