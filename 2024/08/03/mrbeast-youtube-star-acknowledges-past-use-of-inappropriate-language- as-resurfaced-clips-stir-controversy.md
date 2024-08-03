@@ -1,6 +1,6 @@
 # MrBeast, YouTube star, acknowledges past use of ‘inappropriate language’ as resurfaced clips stir controversy
 
-Published :`2024-08-03 04:17:41`
+Published :`2024-08-03 04:37:52`
 
 ---
 
