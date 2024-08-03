@@ -1,6 +1,6 @@
 # Deputy’s fatal shooting of Sonya Massey highlights risky practice of hiring America’s legion of ‘wandering officers’
 
-Published :`2024-08-03 18:38:30`
+Published :`2024-08-03 19:11:54`
 
 ---
 
@@ -148,7 +148,7 @@ Decertification and other employment records are kept by the Peace Officers Stan
 
 “We’ve got documented cases where officers are pretending like they’ve never been in law enforcement before and applying for jobs and this system has caught them,” Grisham said.
 
-In 2020, a Yale Law Journal study titled “The Wondering Officer” said the scope of the problem in American policing is unclear. That remains true today, according to policing experts.
+In 2020, a Yale Law Journal study titled “The Wandering Officer” said the scope of the problem in American policing is unclear. That remains true today, according to policing experts.
 
 “Not all those who wander are lost, but in policing, many are,” the researchers concluded.
 
