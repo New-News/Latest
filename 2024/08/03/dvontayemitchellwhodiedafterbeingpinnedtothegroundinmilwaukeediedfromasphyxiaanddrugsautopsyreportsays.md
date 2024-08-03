@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says
 
-Published :`2024-08-03 03:36:17`
+Published :`2024-08-03 04:17:39`
 
 ---
 
@@ -37,6 +37,36 @@ Part of a video posted on social media shows security guards and others pinning 
 One of the guards, who appears to be White, can be heard saying, “Stay down,” and “Stop fighting,” as the others, who appear to be people of color, hold Mitchell down, the video shows. The same guard is heard calling out to witnesses, “This is what happens when you go into the ladies room.”
 
 When officers arrived, Mitchell was unresponsive and pronounced dead despite lifesaving measures, Milwaukee police have said, without mentioning Mitchell by name.
+
+### Mitchell was punched, dragged out of hotel onto sidewalk, video footage shows
+
+During a Friday evening news conference, Mitchell family attorney William Sulton painted a different picture from the medical examiner’s report, playing several more videos from the incident, including security camera footage that revealed for the first time a view from inside the Hyatt as employees were removing Mitchell from the building.
+
+The footage shows Mitchell being dragged across the floor inside the lobby, and from another angle outside that shows employees holding him down on the ground.
+
+The Mitchell’s family attorney claims he had been shown these new videos by the Milwaukee District Attorney’s Office, but the office didn’t provide copies of the videos to him. They were obtained after Sulton subpoenaed the medical examiner’s office, he says.
+
+CNN has contacted the Milwaukee Police Department for comment on the videos.
+
+At the beginning of the news conference, Sulton showed photos of injuries Mitchell suffered to his head, which had been repeatedly slammed to the ground during the encounter, he said. In the photos, Mitchell’s eyes are swollen, red and purple, and his face bloodied.
+
+“So, when you hear people say, ‘oh, all we did was hold him down, all I did was do what I was being told’ – none of that is true. They slammed his head into the ground multiple times, pressed his head into the ground. This is the photographic proof of that,” the family’s attorney said.
+
+Sulton continued to play the security camera videos at the news conference, and at one moment pointed at a man wearing a red shirt who he identified as a guest of the Hyatt hotel, along with another man in a black shirt, who he said is an off-duty security officer.
+
+“You can see they’re dragging Mr. Mitchell behind,” Sulton said. “At no time, will you see Mr. Mitchell punching anyone, kicking anyone. In fact, it’s apparent he’s just trying to get up.”
+
+The video showed the Hyatt guest forcibly pulling Mitchell out of glass doors in the entrance of the hotel building. Mitchell is seen in the video struggling with his clothing falling off while the hotel guest pulls his clothing to drag him out of the doors, before the security officer approaches them again, along with another woman employee who then picks up a broomstick and appears to strike Mitchell in the leg.
+
+Seconds before that, the security officer is seen putting his hand out to stop his woman co-worker from hitting Mitchell.
+
+The video then shows Mitchell’s pants falling down as a man punches Mitchell in the face multiple times, while he’s being dragged on the floor and then outside on the sidewalk by the Hyatt guest, the two Hyatt employees and an additional employee.
+
+Another video from a security camera pointing at the sidewalk shows two additional Hyatt employees approach the group, one of whom appears to hit Mitchell with a walkie-talkie and kick him in the face while Mitchell remains on the ground.
+
+Sulton said all four Hyatt employees had the ability “to simply wait for police to show up if that’s what they feel is necessary. They don’t do that.” The attorney said the security officer “waved over” the two additional employees outside, even though they are a desk agent and bellhop with “no legal right to detain him or arrest him or to engage in any of this behavior.”
+
+“This is just a straight-up beat down,” he said, adding the security agent should have intervened and had ample opportunities to do so, but instead contributed to Mitchell’s pain. Mitchell also suffered broken ribs, said the attorney. “This is how he got them,” he continued.
 
 ### Company says several people were fired
 

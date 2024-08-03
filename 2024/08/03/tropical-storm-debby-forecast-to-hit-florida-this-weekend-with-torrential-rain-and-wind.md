@@ -1,16 +1,16 @@
 # Tropical Storm Debby forecast to hit Florida this weekend with torrential rain and wind
 
-Published :`2024-08-03 03:36:17`
+Published :`2024-08-03 04:17:39`
 
 ---
 
 A tropical storm warning has been issued and a state of emergency declared in parts of Florida in anticipation of Tropical Storm Debby – a storm that hasn’t yet formed but could unleash multiple days of heavy, flooding rainfall to the state and the southeast United States starting this weekend.
 
-The system has 30 mph winds and has been designated Potential Tropical Cyclone Four by the National Hurricane Center as it comes together over parts of Cuba and the southern Bahamas Friday.
+The system has 30 mph winds and has been designated Tropical Depression Four by the National Hurricane Center as it comes together over parts of Cuba and the southern Bahamas Friday. It became organized enough to be classified as a tropical depression Friday, according to the 11 p.m. advisory from the hurricane center.
 
 Track the Storm: Spaghetti models and more maps here
 
-It’s forecast to become a tropical depression by Saturday morning, once it emerges out over the water between Cuba and Florida, and strengthen into Tropical Storm Debby by Saturday evening.
+The storm is expected to strengthen into Tropical Storm Debby by Saturday evening.
 
 Tropical storm watches and warnings have been extended northward in Florida, according to the 5 p.m. ET advisory from the National Hurricane Center.
 
@@ -19,6 +19,12 @@ The tropical storm warning has been extended along the west coast of the Florida
 Parts of the Florida Keys and parts of the Central Florida coast are also under a tropical storm watch, with officials urging residents there to prepare for tropical storm conditions within the next 48 hours. The watch includes Fort Myers, Cape Coral and Tampa Bay.
 
 The storm’s exact track and strength are still uncertain. How much time the system spends over record-warm water in the eastern Gulf of Mexico will determine how strong it becomes.
+
+The storm is expected to turn to the northwest and eventually north over the weekend. However, so far the system has not begun its turn to the northwest, which has led the hurricane center to shift the forecast cone to the west.
+
+This will allow more time for strengthening and the hurricane center shows the storm nearing hurricane strength by the time it reaches landfall in the Big Bend region of Florida Monday morning.
+
+“The westward shift to the track forecast now also keeps the system over the warm waters of the Gulf of Mexico longer, giving the system additional time to potentially strengthen,” the hurricane center said. “It is important to note that because of the forecast track being parallel to the west coast of Florida, the location and timing of a potential landfall cannot be pinned down at this time.”
 
 It will track parallel to Florida’s Gulf Coast for some time this weekend and strengthen as it does so, before curving east and making landfall. The system’s strength would be limited if it moves more quickly over Florida.
 
