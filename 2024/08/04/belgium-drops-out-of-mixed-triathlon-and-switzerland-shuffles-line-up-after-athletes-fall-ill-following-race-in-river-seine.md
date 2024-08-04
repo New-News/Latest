@@ -1,6 +1,6 @@
 # Belgium drops out of mixed triathlon and Switzerland shuffles line-up after athletes fall ill following race in River Seine
 
-Published :`2024-08-04 20:37:45`
+Published :`2024-08-04 21:14:16`
 
 ---
 
@@ -22,9 +22,13 @@ Swiss Olympic Chief Medical Officer Hanspeter Betschart noted that it is unclear
 
 “A survey of my colleagues from other countries has so far not revealed any accumulation of gastrointestinal illnesses among the athletes who started the individual race last Wednesday,” Betschart said.
 
-### Triathlons proceeded amid water quality concerns
+### Mixed relay triathlon to proceed on Monday
 
-The individual triathlon competitions went ahead in Paris after concerns over water quality in the River Seine caused the men’s race to be postponed a day earlier. More rain came into Paris overnight ahead of the race, but World Triathlon and Paris 2024 determined the water quality was sufficient to move ahead for both the women’s and men’s races.
+Despite the two illnesses, World Triathlon and Paris 2024 have said in a Sunday statement that Monday’s mixed relay triathlon will proceed as planned, saying that the water quality in the Seine has improved over the past few hours.
+
+“The latest analysis results confirm that the water quality of the Seine at the triathlon site has improved over the past few hours, and prospective analyses indicate that the water quality will be within acceptable limits by World Triathlon. As a result, World Triathlon has made the decision this evening to continue the competition,” the statement read in part.
+
+The individual triathlon competitions went ahead on Wednesday after concerns over water quality in the River Seine caused the men’s race to be postponed a day earlier. More rain came into Paris overnight on Tuesday ahead of the race, but World Triathlon and Paris 2024 determined the water quality was sufficient to move ahead for both the women’s and men’s races.
 
 “Following a meeting on water quality held on 31 July at 3:30 a.m. attended by Paris 2024, representatives of World Triathlon and their Technical and Medical Delegates, Météo France, the City of Paris and the Prefecture of the Île-de-France Region involved in carrying out water quality tests, the stakeholders involved have confirmed that the women’s and the men’s triathlons will go ahead as planned on 31 July at 8 a.m. and 10:45 a.m. respectively,” Paris 2024 and World Triathlon said in a joint statement.
 
