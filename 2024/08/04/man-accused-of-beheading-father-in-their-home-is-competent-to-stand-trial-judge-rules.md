@@ -1,6 +1,6 @@
 # Man accused of beheading father in their home is competent to stand trial, judge rules
 
-Published :`2024-08-04 11:13:02`
+Published :`2024-08-04 11:36:14`
 
 ---
 
