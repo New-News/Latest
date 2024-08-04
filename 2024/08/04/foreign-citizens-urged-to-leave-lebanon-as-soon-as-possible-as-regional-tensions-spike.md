@@ -1,6 +1,6 @@
 # Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike
 
-Published :`2024-08-04 13:35:30`
+Published :`2024-08-04 14:14:06`
 
 ---
 
@@ -26,9 +26,13 @@ Airlines including Air France, Lufthansa and Kuwaiti Airlines have already cance
 
 In a further sign of the region bracing for an Iranian retaliation, the US on Saturday sent a carrier strike group, a fighter squadron and additional warships to the Middle East. It marked perhaps the largest movement of US forces to the region since the early days of the Gaza war, when the Pentagon sent two carrier strike groups toward the Middle East in a very public warning to regional militant groups not to expand the fighting.
 
-Israel says it is ready for “range of scenarios” following the assassination of Ismail Haniyeh in Iran.
+White House deputy national security adviser Jon Finer said Sunday that the US and Israel are preparing for “every possibility” after the Pentagon sent the additional military assets.
+
+“We and our ally Israel are preparing for every possibility. And that’s the vein in which the announcements made by the Pentagon took place. All of those posture adjustments are to prepare for a potential response against Israel from Iran or any other adversary,” Finer told CNN’s Dana Bash on “State of the Union.”
 
 Israelis have been stocking up on supplies, while a file from the Jerusalem municipality advised residents to “clean and prepare their bomb shelters,” warning they must be able to reach shelters in 90 seconds.
+
+This story has been updated with additional information.
 
 ---
 

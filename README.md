@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-04 13:35:39`
+#### Latest Update : `2024-08-04 14:14:11`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/04/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [Ukraine confirms F-16s have arrived in country as Zelensky heralds ‘new chapter’ in fight against Russia](https://new-news.github.io/Latest/2024/08/04/ukraine-confirms-f-16s-have-arrived-in-country-as-zelensky-heralds-new-chapter-in-fight-against-russia 'Ukraine confirms F-16s have arrived in country as Zelensky heralds ‘new chapter’ in fight against Russia')
 
@@ -19,8 +21,6 @@
 - [Trump and Vance rally in battleground Georgia looking to put recent struggles behind them](https://new-news.github.io/Latest/2024/08/04/trump-and-vance-rally-in-battleground-georgia-looking-to-put-recent-struggles-behind-them 'Trump and Vance rally in battleground Georgia looking to put recent struggles behind them')
 
 - [Republicans for Harris launches, aiming for Biden-like appeal to anti-Trump voters](https://new-news.github.io/Latest/2024/08/04/republicans-for-harris-launches-aiming-for-biden-like-appeal-to-anti-trump-voters 'Republicans for Harris launches, aiming for Biden-like appeal to anti-Trump voters')
-
-- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/04/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [How two topsy-turvy weeks upended Trump’s 2024 campaign](https://new-news.github.io/Latest/2024/08/04/how-two-topsy-turvy-weeks-upended-trump-s-2024-campaign 'How two topsy-turvy weeks upended Trump’s 2024 campaign')
 
