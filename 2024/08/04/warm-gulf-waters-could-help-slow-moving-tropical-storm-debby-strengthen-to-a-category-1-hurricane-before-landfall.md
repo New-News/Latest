@@ -1,10 +1,10 @@
 # Warm Gulf waters could help slow-moving Tropical Storm Debby strengthen to a Category 1 hurricane before landfall
 
-Published :`2024-08-04 12:26:56`
+Published :`2024-08-04 12:51:48`
 
 ---
 
-As Tropical Storm Debby moves through the Gulf of Mexico, forecasters are focusing on two potential effects of the storm’s slow speed: More time will allow the system to gain strength to become a hurricane and if it lingers, the Southeast could see huge amounts of flooding rainfall over the next few days.
+As Tropical Storm Debby moves through the Gulf of Mexico, forecasters are focusing on two potential effects of the storm’s slow speed: More time will allow the system to gain strength to become a hurricane, and if it lingers, the Southeast could see huge amounts of flooding rainfall over the next few days.
 
 Authorities in Florida and Georgia are urging residents to prepare as the storm makes its way through the near-record warm waters of the Gulf of Mexico. Debby is expected to continue strengthening and could become a hurricane by Sunday evening after being upgraded to a tropical storm a day prior, according to the National Hurricane Center.
 
@@ -16,11 +16,13 @@ Track the Storm: Spaghetti models and more maps here
 
 The strengthening storm tracking up the Florida Peninsula’s western coast prompted county and state officials to issue a string of voluntary and mandatory evacuation orders as the hurricane center posted hurricane watches and warnings across several parts of the state, including near Tampa and the Big Bend region.
 
-Tropical storm and storm surge watches have also been issued for parts of coastal Georgia.
+Tropical storm and storm surge watches have also been issued for coastal Georgia and parts of South Carolina, including Charleston.
 
-Florida Gov. Ron DeSantis and Georgia Gov. Brian Kemp declared states of emergency for their states Saturday in advance of the storm’s arrival.
+Florida Gov. Ron DeSantis and Georgia Gov. Brian Kemp have declared states of emergency for their states in advance of the storm’s arrival. DeSantis on Sunday said in a news conference that he’d activated the Florida National Guard so it would be poised to assist with humanitarian needs as well as search and rescue.
 
-“As the state prepares for a major storm system early this coming week, we urge all Georgians to take precautions to keep their families and property safe,” Kemp said in a message on X.
+DeSantis called on residents to finish their preparations and to brace for power outages, “particularly in parts of the state like here in Tallahassee.”
+
+“There’s going to be a lot of trees that are going to fall down. You’re going to have debris. You are going to have power interruption,” the governor said, “so just prepare for that.”
 
 ### Storm expected to intensify over Gulf
 

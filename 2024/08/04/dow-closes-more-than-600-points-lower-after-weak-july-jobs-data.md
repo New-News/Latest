@@ -1,6 +1,6 @@
 # Dow closes more than 600 points lower after weak July jobs data
 
-Published :`2024-08-04 12:26:58`
+Published :`2024-08-04 12:51:50`
 
 ---
 
