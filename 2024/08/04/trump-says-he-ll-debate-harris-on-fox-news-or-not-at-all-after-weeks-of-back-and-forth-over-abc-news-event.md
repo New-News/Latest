@@ -1,6 +1,6 @@
 # Trump says he’ll debate Harris on Fox News or not at all after weeks of back-and-forth over ABC News event
 
-Published :`2024-08-04 15:35:57`
+Published :`2024-08-04 16:16:41`
 
 ---
 
