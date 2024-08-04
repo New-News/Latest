@@ -1,6 +1,6 @@
 # Justin Timberlake pleads not guilty in DWI case
 
-Published :`2024-08-04 18:18:49`
+Published :`2024-08-04 18:38:02`
 
 ---
 
