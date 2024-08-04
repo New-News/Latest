@@ -1,6 +1,6 @@
 # Google pulls Olympics ad that showed AI writing a little girl’s letter for her
 
-Published :`2024-08-04 07:35:48`
+Published :`2024-08-04 08:17:11`
 
 ---
 

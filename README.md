@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-04 07:35:50`
+#### Latest Update : `2024-08-04 08:17:13`
 
 ## Latest News Grabbing 
 
 ---
+
+- [1 deputy killed and 2 injured in ‘ambush’ shooting in Florida, sheriff says](https://new-news.github.io/Latest/2024/08/04/1deputykilledand2injuredinambushshootinginfloridasheriffsays '1 deputy killed and 2 injured in ‘ambush’ shooting in Florida, sheriff says')
 
 - [These vision-impaired Olympic stars rely on a ‘sixth sense’ when they compete](https://new-news.github.io/Latest/2024/08/04/these-vision-impaired-olympic-stars-rely-on-a-sixth-sense-when-they-compete 'These vision-impaired Olympic stars rely on a ‘sixth sense’ when they compete')
 
@@ -55,8 +57,6 @@
 - [Park Fire grows to more than 400,000 acres, now 4th-largest in California history](https://new-news.github.io/Latest/2024/08/04/park-fire-grows-to-more-than-400-000-acres-now-4th-largest-in-california-history 'Park Fire grows to more than 400,000 acres, now 4th-largest in California history')
 
 - [Jimmy Carter says he hopes to vote for Kamala Harris](https://new-news.github.io/Latest/2024/08/04/jimmy-carter-says-he-hopes-to-vote-for-kamala-harris 'Jimmy Carter says he hopes to vote for Kamala Harris')
-
-- [1 deputy killed and 2 injured in ‘ambush’ shooting in Florida, sheriff says](https://new-news.github.io/Latest/2024/08/04/1deputykilledand2injuredinambushshootinginfloridasheriffsays '1 deputy killed and 2 injured in ‘ambush’ shooting in Florida, sheriff says')
 
 - [Inside the final days of Kamala Harris’ vice presidential decision](https://new-news.github.io/Latest/2024/08/04/inside-the-final-days-of-kamala-harris-vice-presidential-decision 'Inside the final days of Kamala Harris’ vice presidential decision')
 
