@@ -1,6 +1,6 @@
 # Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike
 
-Published :`2024-08-04 10:36:36`
+Published :`2024-08-04 11:12:58`
 
 ---
 
@@ -22,7 +22,7 @@ Jordan issued a similar warning to its citizens. The country was involved in sho
 
 Iran’s state news agency (IRNA) reported that the Foreign Minister of Jordan will make a rare visit to the Iranian capital Tehran on Sunday, to “meet and exchange views with Iranian officials regarding bilateral, regional and international issues.”
 
-Airlines including Air France, Lufthansa and Kuwaiti Airlines have already cancelled flights to and from Lebanon while some airlines have diverted flights away from Lebanese.
+Airlines including Air France, Lufthansa and Kuwaiti Airlines have already cancelled flights to and from Lebanon while others diverted flights away from the country.
 
 In a further sign of the region bracing for an Iranian retaliation, the US on Saturday sent a carrier strike group, a fighter squadron and additional warships to the Middle East. It marked perhaps the largest movement of US forces to the region since the early days of the Gaza war, when the Pentagon sent two carrier strike groups toward the Middle East in a very public warning to regional militant groups not to expand the fighting.
 

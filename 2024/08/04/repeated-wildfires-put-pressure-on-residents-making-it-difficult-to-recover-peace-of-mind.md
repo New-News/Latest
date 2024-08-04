@@ -1,6 +1,6 @@
 # Repeated wildfires put pressure on residents, making it difficult to recover peace of mind
 
-Published :`2024-08-04 10:36:39`
+Published :`2024-08-04 11:13:01`
 
 ---
 
