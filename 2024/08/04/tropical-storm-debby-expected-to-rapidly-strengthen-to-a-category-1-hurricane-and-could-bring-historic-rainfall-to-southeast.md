@@ -1,6 +1,6 @@
 # Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast
 
-Published :`2024-08-04 21:14:16`
+Published :`2024-08-04 21:36:28`
 
 ---
 
@@ -8,7 +8,7 @@ Tropical Storm Debby is now forecast to rapidly intensify into a hurricane befor
 
 Authorities in Florida, Georgia and South Carolina are urging residents to prepare as the storm makes its way through the Gulf, with Debby now expected to undergo rapid intensification, which occurs when a storm’s top-end winds increase 35 mph in 24 hours. It could become a hurricane by Sunday evening after being upgraded to a tropical storm a day prior, according to the National Hurricane Center.
 
-Debby has sustained winds of 65 mph — up 30 mph from a day ago — and is located about 125 miles west-southwest of Tampa, Florida, according to the National Hurricane Center’s 2 p.m. ET Sunday update, warning that the threats of heavy rain and storm surge could lead to flooding in the coming days.
+Debby has sustained winds of 65 mph — up 30 mph from a day ago — and is located about 120 miles west of Tampa, Florida, according to the National Hurricane Center’s 5 p.m. ET Sunday update, warning that the threats of heavy rain and storm surge could lead to flooding in the coming days.
 
 Hurricane conditions are expected to arrive by Monday morning, with the outer bands of the storm system making their way on shore during the day Sunday. The storm is forecast to reach the coast of Florida’s Big Bend early Monday, at which point Debby is expected to then crawl across northern Florida and southern Georgia throughout the day and into Tuesday, the hurricane center said.
 
@@ -18,7 +18,9 @@ Track the Storm: Spaghetti models and more maps here
 
 The strengthening storm tracking up the Florida Peninsula’s western coast prompted county and state officials to issue a string of voluntary and mandatory evacuation orders as the hurricane center posted hurricane watches and warnings across several parts of the state, including near Tampa and the Big Bend region.
 
-Tropical storm and storm surge watches have also been issued for coastal Georgia and parts of South Carolina. The cities of Savannah, Georgia, and Charleston, South Carolina, could both see a month’s worth of rain in a single day — and perhaps even an entire summer’s worth of rain over the course of the storm.
+Tropical storm and storm surge watches and warnings have also been issued for for parts of Florida, coastal Georgia and parts of South Carolina. The hurricane center upgraded a tropical storm watch to a warning for the area west of Indian Pass to Mexico Beach, Florida, in its 5 p.m. ET update, and a tropical storm warning was also issued for the eastern coasts of Florida and Georgia from Ponte Vedra Beach to the Savannah River.
+
+The cities of Savannah, Georgia, and Charleston, South Carolina, could both see a month’s worth of rain in a single day — and perhaps even an entire summer’s worth of rain over the course of the storm.
 
 A tornado watch has also been issued for much of the Florida Peninsula and parts of southern Georgia until Sunday night, covering more than 13 million people, including the cities of Tallahassee, Jacksonville, Tampa and Orlando.
 
@@ -34,7 +36,7 @@ DeSantis also urged Florida residents to avoid floodwaters ahead of the storm’
 
 “Please do not drive your vehicles through flooded streets. The number one way we have fatalities as a result of floods is people trying to drive through the floodwater,” he said.
 
-The docks of Indian Mound Park in Sarasota County, south of Tampa, were underwater by 2 p.m. ET Sunday, the county government posted on X. A little further south, near Fort Myers, waters from the Gulf began spilling over onto coastal roadways and prompted some road closures after Debby’s outer bands dumped rain along the shoreline Sunday afternoon, Charlotte County emergency management officials said.
+The docks of Indian Mound Park in Sarasota County, south of Tampa, were underwater by 2 p.m. ET Sunday, the county government posted on X. A little farther south, near Fort Myers, waters from the Gulf began spilling over onto coastal roadways and prompted some road closures after Debby’s outer bands dumped rain along the shoreline Sunday afternoon, Charlotte County emergency management officials said.
 
 President Joe Biden on Sunday approved a disaster declaration for Florida, the White House announced, authorizing federal resources to respond to any disaster relief efforts.
 
