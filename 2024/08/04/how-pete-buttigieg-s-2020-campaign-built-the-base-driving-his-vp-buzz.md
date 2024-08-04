@@ -1,6 +1,6 @@
 # How Pete Buttigieg’s 2020 campaign built the base driving his VP buzz
 
-Published :`2024-08-04 02:26:33`
+Published :`2024-08-04 02:50:07`
 
 ---
 
