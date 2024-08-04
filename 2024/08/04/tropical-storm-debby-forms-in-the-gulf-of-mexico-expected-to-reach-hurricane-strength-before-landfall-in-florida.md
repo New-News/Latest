@@ -1,10 +1,12 @@
 # Tropical Storm Debby forms in the Gulf of Mexico, expected to reach hurricane strength before landfall in Florida
 
-Published :`2024-08-04 02:50:05`
+Published :`2024-08-04 03:16:37`
 
 ---
 
-Tropical Storm Debby has sustained winds of 40 mph and is located about 270 miles south of Tampa, Florida, according to the hurricane center’s 8 p.m. ET update on the storm.
+Tropical Storm Debby has sustained winds of 45 mph and is located about 250 miles south of Tampa, Florida, according to the National Hurricane Center’s 11 p.m. ET Saturday update on the storm.
+
+The storm is moving northwest at about 14 mph and is expected to gradually turn toward the right and slow down, moving northward on Sunday and gradually northeastward Sunday night and Monday, according to the hurricane center.
 
 The latest forecast calls for the storm to intensify into a Category 1 hurricane with 75 mph winds just before landfall Monday morning in Florida’s Big Bend region.
 
