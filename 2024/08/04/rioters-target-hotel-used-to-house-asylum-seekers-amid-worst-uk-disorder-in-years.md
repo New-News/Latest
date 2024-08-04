@@ -1,6 +1,6 @@
 # Rioters target hotel used to house asylum seekers amid worst UK disorder in years
 
-Published :`2024-08-04 17:36:01`
+Published :`2024-08-04 18:18:44`
 
 ---
 
@@ -8,29 +8,27 @@ Rioters attacked a hotel used to house asylum seekers in the UK town of Rotherha
 
 The violence was triggered by the stabbing of three young girls in Southport, northwest England, earlier in the week. The far right has seized on and spread a wave of disinformation, including false claims the attacker was an immigrant, to mobilize anti-Muslim and anti-immigrant protests. Police say the suspect was born in Britain.
 
-In the latest violence, the Holiday Inn Express Hotel in Rotherham was targeted by protesters who stormed the building, with reports of it being set on fire, according to PA Media. Rioters threw objects and sprayed fire extinguishers at police officers during the clashes.
+In the latest violence, the Holiday Inn Express Hotel in Rotherham was targeted by protesters who stormed the building, with reports of it being set on fire, according to PA Media. Rioters threw objects and sprayed fire extinguishers at police officers during the clashes. Some of the rioters waved England flags as they chanted and faced off with officers. According to PA, at least one injured officer wearing riot gear was seen being carried from the scene.
 
-Some of the rioters waved England flags as they chanted and faced off with officers. According to PA, at least one injured officer wearing riot gear was seen being carried from the scene.
-
-British Prime Minister Keir Starmer has condemned the wave of violent protests this weekend, which saw scores arrested and police officers injured, saying those involved in violence would face the full force of the law.
+British Prime Minister Keir Starmer has condemned the weekend’s violent protests, which saw at least 147 people arrested since Saturday night. Those involved in violence will face the full force of the law, he warned.
 
 “People in this country have a right to be safe and yet, we’ve seen Muslim communities targeted, attacks on mosques, other minority communities singled out, Nazi salutes in the street, attacks on the police, wanton violence alongside racist rhetoric. So no, I won’t shy away from calling it what it is: Far-right thuggery,” Starmer said from Downing Street on Sunday.
 
-Turning to the violent scenes in Rotherham, Starmer described “marauding gangs intent on law-breaking,” adding that “all right-minded people” should be condemning the violence.
+Turning to the violent scenes in Rotherham, Starmer described “marauding gangs intent on law-breaking” as he added that “all right-minded people” should be condemning the violence. Addressing those who have been targeted, he assured that the violent rioters do not “represent our country.”
 
 The UK’s policing minister has said that there will be a “nick them quick” approach to far-right rioters who have caused unrest, but added there was no need to bring in the army.
 
 In comments to the BBC, Dame Diana Johnson stressed that the plan was to carry out swift arrests and charges in order to take rioters off the street as quickly as possible and act as a deterrent to prevent further unrest.
 
-The UK National Police Chiefs’ Council (NPCC) said Sunday that 147 people have been arrested across the country since Saturday night and the number is expected to rise significantly.
-
-“Disinformation is a huge driver of this appalling violence and we know a lot of those attending these so-called protests are doing so in direct response to what they’ve read online,” the Police Chiefs added.
-
 The violent unrest is the worst seen since the riots of 2011 and provides a huge challenge to the Labour government of Keir Starmer just weeks after it won power.
 
-“We’ve seen obviously, arrest which is very important, and we want to send a very clear message that if people get involved in this criminal disorder, that they will be brought to account. They will be charged, they will be taken to court, and there will be penalties,” Johnson said.
-
 There have been discussions to bring in the army to assist police, but currently “there is no need to bring in the army,” Johnson said. “The police have made it very clear that they have all the resources they need at the moment. There’s mutual aid, as I’ve just described, and they have the powers that they need.”
+
+On Sunday, the UK’s Home Office announced that mosques in the United Kingdom would be offered “greater protection with new emergency security” in light of recent attacks.
+
+Under the new arrangements, “the police, local authorities and mosques can ask for rapid security to be deployed, protecting communities and allowing for a return to worship as quickly as possible,” the Home Office said.
+
+“Nobody should make any excuses for the shameful actions of the hooligans, thugs and extremist groups who have been attacking police officers, looting local shops or attacking people based on the color of their skin,” Home Secretary Yvette Cooper said.
 
 Joe Mulhall, Director of Research at Hope Not Hate – a charity which campaigns against racism and fascism – has warned that the social media platform X, formerly Twitter, has become a central space for the spreading of dangerous disinformation and the promotion of the protests.
 

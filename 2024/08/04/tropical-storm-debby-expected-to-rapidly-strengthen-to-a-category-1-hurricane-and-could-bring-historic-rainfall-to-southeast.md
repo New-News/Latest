@@ -1,6 +1,6 @@
 # Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast
 
-Published :`2024-08-04 17:36:01`
+Published :`2024-08-04 18:18:44`
 
 ---
 
@@ -8,7 +8,7 @@ Tropical Storm Debby is now forecast to rapidly intensify into a hurricane befor
 
 Authorities in Florida and Georgia are urging residents to prepare as the storm makes its way through the Gulf, with Debby now expected to undergo rapid intensification, which occurs when a storm’s top-end winds increase 35 mph in 24 hours. It could become a hurricane by Sunday evening after being upgraded to a tropical storm a day prior, according to the National Hurricane Center.
 
-Debby has sustained winds of 65 mph — up 30 mph from a day ago — and is located about 130 miles west-southwest of Tampa, Florida, according to the National Hurricane Center’s 11 a.m. ET Sunday update, warning that the threats of heavy rain and storm surge could lead to flooding in Florida, Georgia and South Carolina in the coming days.
+Debby has sustained winds of 65 mph — up 30 mph from a day ago — and is located about 125 miles west-southwest of Tampa, Florida, according to the National Hurricane Center’s 2 p.m. ET Sunday update, warning that the threats of heavy rain and storm surge could lead to flooding in Florida, Georgia and South Carolina in the coming days.
 
 Hurricane conditions are expected to arrive by Monday morning, with the outer bands of the storm system making their way on shore during the day Sunday. The storm is forecast to reach the coast of Florida’s Big Bend early Monday, at which point Debby is expected to then crawl across northern Florida and southern Georgia throughout the day and into Tuesday, the hurricane center said.
 
