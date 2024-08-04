@@ -1,10 +1,14 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-04 20:15:50`
+#### Latest Update : `2024-08-04 20:37:55`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast](https://new-news.github.io/Latest/2024/08/04/tropical-storm-debby-expected-to-rapidly-strengthen-to-a-category-1-hurricane-and-could-bring-historic-rainfall-to-southeast 'Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast')
+
+- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/04/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [At least 30 killed in Israeli strike on two Gaza school shelters: Palestinian Civil Defense](https://new-news.github.io/Latest/2024/08/04/at-least-30-killed-in-israeli-strike-on-two-gaza-school-shelters-palestinian-civil-defense 'At least 30 killed in Israeli strike on two Gaza school shelters: Palestinian Civil Defense')
 
@@ -13,8 +17,6 @@
 - [Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me](https://new-news.github.io/Latest/2024/08/04/opinion-gaza-needs-trained-doctors-israel-is-blocking-palestinian-physicians-like-me 'Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me')
 
 - [Customs officers in Arizona seize largest amount of fentanyl pills in agency’s history](https://new-news.github.io/Latest/2024/08/04/customs-officers-in-arizona-seize-largest-amount-of-fentanyl-pills-in-agency-s-history 'Customs officers in Arizona seize largest amount of fentanyl pills in agency’s history')
-
-- [Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast](https://new-news.github.io/Latest/2024/08/04/tropical-storm-debby-expected-to-rapidly-strengthen-to-a-category-1-hurricane-and-could-bring-historic-rainfall-to-southeast 'Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast')
 
 - [Olympic moment of the day: Cindy Ngamba wins first ever medal for Refugee Olympic Team](https://new-news.github.io/Latest/2024/08/04/olympic-moment-of-the-day-cindy-ngamba-wins-first-ever-medal-for-refugee-olympic-team 'Olympic moment of the day: Cindy Ngamba wins first ever medal for Refugee Olympic Team')
 
@@ -39,8 +41,6 @@
 - [At least 55 killed in Bangladesh as protesters, police and pro-government activists clash](https://new-news.github.io/Latest/2024/08/04/at-least-55-killed-in-bangladesh-as-protesters-police-and-pro-government-activists-clash 'At least 55 killed in Bangladesh as protesters, police and pro-government activists clash')
 
 - [Republicans for Harris launches, aiming for Biden-like appeal to anti-Trump voters](https://new-news.github.io/Latest/2024/08/04/republicans-for-harris-launches-aiming-for-biden-like-appeal-to-anti-trump-voters 'Republicans for Harris launches, aiming for Biden-like appeal to anti-Trump voters')
-
-- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/04/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [What to know about the ‘Emergency Budots’ taking over TikTok](https://new-news.github.io/Latest/2024/08/04/what-to-know-about-the-emergency-budots-taking-over-tiktok 'What to know about the ‘Emergency Budots’ taking over TikTok')
 

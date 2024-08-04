@@ -1,6 +1,6 @@
 # Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike
 
-Published :`2024-08-04 20:15:48`
+Published :`2024-08-04 20:37:45`
 
 ---
 
@@ -21,6 +21,10 @@ France told its citizens to make arrangements to leave Lebanon “as soon as p
 Jordan issued a similar warning to its citizens. The country was involved in shooting down Iranian drones when Iran launched unprecedented retaliatory strikes in April for a suspected Israeli attack on a diplomatic complex.
 
 Iran’s state news agency (IRNA) reported that the Foreign Minister of Jordan will make a rare visit to the Iranian capital Tehran on Sunday, to “meet and exchange views with Iranian officials regarding bilateral, regional and international issues.”
+
+Tukey meanwhile updated its travel advisory for Lebanon, urging those who do not need to stay in Lebanon to leave while commercial flights remain active.
+
+“Our citizens should avoid traveling to Lebanon unless it is essential; Our citizens in Lebanon are advised to be cautious, not to go to Nabatiyeh, South Lebanon, Bekaa and Baalbek-Hermel provinces unless necessary, and those who do not need to stay in Lebanon are advised to leave Lebanon, if possible, while commercial flights are still continuing,” Turkish Foreign Ministry spokesperson Öncü Keçeli posted to X on Sunday.
 
 Airlines including Air France, Lufthansa and Kuwaiti Airlines have already cancelled flights to and from Lebanon while others diverted flights away from the country.
 

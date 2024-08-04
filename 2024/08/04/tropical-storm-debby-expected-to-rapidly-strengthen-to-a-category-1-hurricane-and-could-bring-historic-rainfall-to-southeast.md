@@ -1,10 +1,10 @@
 # Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast
 
-Published :`2024-08-04 20:15:47`
+Published :`2024-08-04 20:37:45`
 
 ---
 
-Tropical Storm Debby is now forecast to rapidly intensify into a hurricane before it makes landfall in Florida’s Big Bend region and bring potentially historic amounts of rainfall to parts of the Southeast, due to near-record warm waters in the Gulf of Mexico.
+Tropical Storm Debby is now forecast to rapidly intensify into a hurricane before it makes landfall in Florida’s Big Bend region and brings potentially historic amounts of rainfall to parts of the Southeast, due to near-record warm waters in the Gulf of Mexico.
 
 Authorities in Florida, Georgia and South Carolina are urging residents to prepare as the storm makes its way through the Gulf, with Debby now expected to undergo rapid intensification, which occurs when a storm’s top-end winds increase 35 mph in 24 hours. It could become a hurricane by Sunday evening after being upgraded to a tropical storm a day prior, according to the National Hurricane Center.
 
@@ -12,7 +12,7 @@ Debby has sustained winds of 65 mph — up 30 mph from a day ago — and is loca
 
 Hurricane conditions are expected to arrive by Monday morning, with the outer bands of the storm system making their way on shore during the day Sunday. The storm is forecast to reach the coast of Florida’s Big Bend early Monday, at which point Debby is expected to then crawl across northern Florida and southern Georgia throughout the day and into Tuesday, the hurricane center said.
 
-The main threat will be flooding, both from storm surges up to 10 feet and heavy rainfall. Freshwater flooding, which is caused by rainfall, has become the deadliest aspect of tropical systems in the last decade, according to research conducted by the National Hurricane Center — a threat made more dangerous as the world warms from fossil fuel pollution.
+The main threat will be flooding, both from storm surges up to 10 feet and heavy rainfall. Freshwater flooding, which is caused by rainfall, has become the deadliest aspect of tropical systems in the last decade, according to research conducted by the hurricane center — a threat made more dangerous as the world warms from fossil fuel pollution.
 
 Track the Storm: Spaghetti models and more maps here
 
@@ -20,13 +20,21 @@ The strengthening storm tracking up the Florida Peninsula’s western coast prom
 
 Tropical storm and storm surge watches have also been issued for coastal Georgia and parts of South Carolina. The cities of Savannah, Georgia, and Charleston, South Carolina, could both see a month’s worth of rain in a single day — and perhaps even an entire summer’s worth of rain over the course of the storm.
 
-A tornado watch has also been issued for much of the Florida Peninsula and parts of southern Georgia until Sunday night, covering more than 13 million people, including the cities of Tallahassee, Jacksonville, Tampa, and Orlando.
+A tornado watch has also been issued for much of the Florida Peninsula and parts of southern Georgia until Sunday night, covering more than 13 million people, including the cities of Tallahassee, Jacksonville, Tampa and Orlando.
 
 Florida Gov. Ron DeSantis, Georgia Gov. Brian Kemp and South Carolina Gov. Henry McMaster have declared states of emergency for their states in advance of the storm’s arrival. DeSantis on Sunday said in a news conference that he’d activated the Florida National Guard so it would be poised to assist with humanitarian needs as well as search and rescue.
 
 DeSantis called on residents to finish their preparations and to brace for power outages, “particularly in parts of the state like here in Tallahassee.”
 
 “There’s going to be a lot of trees that are going to fall down. You’re going to have debris. You are going to have power interruption,” the governor said, “so just prepare for that.”
+
+More than 30,000 customers were already without power in Florida by Sunday afternoon, according to PowerOutage.us.
+
+DeSantis also urged Florida residents to avoid floodwaters ahead of the storm’s potentially significant flooding impacts, particularly in North Central Florida.
+
+“Please do not drive your vehicles through flooded streets. The number one way we have fatalities as a result of floods is people trying to drive through the floodwater,” he said.
+
+The docks of Indian Mound Park in Sarasota County, south of Tampa, were underwater by 2 p.m. ET Sunday, the county government posted on X. A little further south, near Fort Myers, waters from the Gulf began spilling over onto coastal roadways and prompted some road closures after Debby’s outer bands dumped rain along the shoreline Sunday afternoon, Charlotte County emergency management officials said.
 
 President Joe Biden on Sunday approved a disaster declaration for Florida, the White House announced, authorizing federal resources to respond to any disaster relief efforts.
 
