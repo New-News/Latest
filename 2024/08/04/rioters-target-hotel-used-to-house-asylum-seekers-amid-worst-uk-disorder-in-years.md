@@ -1,6 +1,6 @@
 # Rioters target hotel used to house asylum seekers amid worst UK disorder in years
 
-Published :`2024-08-04 17:12:47`
+Published :`2024-08-04 17:36:01`
 
 ---
 
@@ -12,13 +12,19 @@ In the latest violence, the Holiday Inn Express Hotel in Rotherham was targeted 
 
 Some of the rioters waved England flags as they chanted and faced off with officers. According to PA, at least one injured officer wearing riot gear was seen being carried from the scene.
 
-British Home Secretary Yvette Cooper condemned the attack. “The criminal, violent attack on a hotel housing asylum seekers in Rotherham is utterly appalling. Deliberately setting fire to a building with people known to be inside,” she wrote on X.
+British Prime Minister Keir Starmer has condemned the wave of violent protests this weekend, which saw scores arrested and police officers injured, saying those involved in violence would face the full force of the law.
 
-It comes as the UK’s policing minister has said that there will be a “nick them quick” approach to far-right rioters who have caused unrest across the country, but added there was no need to bring in the army.
+“People in this country have a right to be safe and yet, we’ve seen Muslim communities targeted, attacks on mosques, other minority communities singled out, Nazi salutes in the street, attacks on the police, wanton violence alongside racist rhetoric. So no, I won’t shy away from calling it what it is: Far-right thuggery,” Starmer said from Downing Street on Sunday.
+
+Turning to the violent scenes in Rotherham, Starmer described “marauding gangs intent on law-breaking,” adding that “all right-minded people” should be condemning the violence.
+
+The UK’s policing minister has said that there will be a “nick them quick” approach to far-right rioters who have caused unrest, but added there was no need to bring in the army.
 
 In comments to the BBC, Dame Diana Johnson stressed that the plan was to carry out swift arrests and charges in order to take rioters off the street as quickly as possible and act as a deterrent to prevent further unrest.
 
-More than 90 people were arrested in multiple cities and towns on Saturday and authorities put extra measures in place to maintain order.
+The UK National Police Chiefs’ Council (NPCC) said Sunday that 147 people have been arrested across the country since Saturday night and the number is expected to rise significantly.
+
+“Disinformation is a huge driver of this appalling violence and we know a lot of those attending these so-called protests are doing so in direct response to what they’ve read online,” the Police Chiefs added.
 
 The violent unrest is the worst seen since the riots of 2011 and provides a huge challenge to the Labour government of Keir Starmer just weeks after it won power.
 
