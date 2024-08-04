@@ -1,6 +1,6 @@
 # Republicans for Harris launches, aiming for Biden-like appeal to anti-Trump voters
 
-Published :`2024-08-04 15:15:11`
+Published :`2024-08-04 15:35:56`
 
 ---
 
@@ -18,7 +18,7 @@ But the Democratic energy around the switch to Harris is now reaping benefits,
 
 Weatherford told CNN that while Biden was “providing the alternative” on the topic of preserving democracy, “now people just see it more clearly. They feel it more clearly.”
 
-On Monday, the new group will hold kick-off events in Arizona, Pennsylvania and North Carolina, aides told CNN. Already signing on as supporters: former Massachusetts Gov. Bill Weld (the 2016 Libertarian nominee for vice president who then challenged Trump in the 2020 Republican primary), former New Jersey Gov. Christie Todd Whitman, Kinzinger, former Virginia Rep. Denver Riggelman, former Illinois Rep. Joe Walsh (who also challenged Trump in the 2020 primary) and former Trump press secretary Stephanie Grisham.
+On Monday, the new group will hold kick-off events in Arizona, Pennsylvania and North Carolina, aides told CNN. Already signing on as supporters: former Massachusetts Gov. Bill Weld (the 2016 Libertarian nominee for vice president who then challenged Trump in the 2020 Republican primary), former New Jersey Gov. Christine Todd Whitman, Kinzinger, former Virginia Rep. Denver Riggleman, former Illinois Rep. Joe Walsh (who also challenged Trump in the 2020 primary) and former Trump press secretary Stephanie Grisham.
 
 Former Rhode Island Rep. Claudine Schneider, who now lives in Colorado and has been leading efforts to organize other former Republican members of Congress, told CNN via email that she believes Harris is “the PERFECT candidate to oppose Trump,” calling her “intelligent, honest, hard working” and someone who “genuinely cares about every citizen, and about justice.”
 
@@ -32,7 +32,7 @@ As for worries that Harris is too liberal, Schneider said, “I have a hard time
 
 Schneider, who served 10 years in the House from 1981 to 1991, said likeminded Republicans “are working toward a decisive trifecta for the Democrats” this year, referring to helping the opposing party retain the presidency and the Senate and flip the House. Their reasoning, Schneider said, was “so that 1) we can actually move our country forward and 2) give us time to resurrect a Republican Party that reflects the values of Abraham Lincoln, Teddy Roosevelt and Ronald Reagan.”
 
-Campaign aides say Harris has been receiving support from Republicans who hadn’t previously been for Biden as well as from those who had. Former Georgia Lt. Gov. Geoff Duncan, a CNN contributor who previously said he was voting for Biden, backed Harris in an Atlanta Journal-Constitution op-ed last week, declaring that “though my support for Harris didn’t come easily, it did come naturally” and calling her “the best vehicle toward preventing another stained Trump presidency.”
+Campaign aides say Harris has been receiving support from Republicans who hadn’t previously been for Biden as well as from those who had. Former Georgia Lt. Gov. Geoff Duncan, a CNN contributor who previously said he was voting for Biden, backed Harris in an Atlanta Journal-Constitution op-ed last week, declaring that “though my support for Harris didn’t come easily, it did come naturally” and calling her “the best vehicle toward preventing another stained Trump presidency.”
 
 Trump’s problems with past Republican leaders was  evident at the GOP convention in Milwaukee last month: No living previous GOP nominee for president or vice president attended, including former President George W. Bush.
 
@@ -47,6 +47,8 @@ In the time since, though, Pence has added several posts critical of Harris’ 
 While Trump and his campaign have not done much to try to win over Democrats, Weatherford and other Harris aides will be leaning on former Trump administration officials, who will speak about how unfit for office they see him; on current and former Republican elected officials, who will speak about how the MAGA takeover means the party no longer represents traditional GOP values and principles; and on rank-and-file Republican women, who will put out testimonials on why they’re rejecting Trump.
 
 “We want Republicans talking to Republicans,” Weatherford said, “because we think that’s the best way to make it work.”
+
+CORRECTION: This story has been updated to reflect the correct spelling of former Rep. Denver Riggleman’s last name.
 
 ---
 
