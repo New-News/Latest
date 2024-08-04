@@ -1,6 +1,6 @@
 # Freed American’s family to miss Taylor Swift concert for the very best reason
 
-Published :`2024-08-04 04:18:48`
+Published :`2024-08-04 04:40:01`
 
 ---
 
