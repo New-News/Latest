@@ -1,6 +1,6 @@
 # Warm Gulf waters could help slow-moving Tropical Storm Debby strengthen to a Category 1 hurricane before landfall
 
-Published :`2024-08-04 08:37:02`
+Published :`2024-08-04 09:14:47`
 
 ---
 
@@ -8,13 +8,15 @@ As Tropical Storm Debby moves through the Gulf of Mexico, forecasters are focusi
 
 Authorities in Florida and Georgia are urging residents to prepare as the storm makes its way through the near-record warm waters of the Gulf of Mexico. Debby is expected to continue strengthening Sunday after being upgraded to a tropical storm Saturday evening, according to the National Hurricane Center.
 
-Debby has sustained winds of 45 mph and is located about 230 miles south west of Tampa, Florida, according to the National Hurricane Center’s 2 a.m. ET Sunday update on the storm.
+Debby has sustained winds of 50 mph and is located about 195 miles south west of Tampa, Florida, according to the National Hurricane Center’s 5 a.m. ET Sunday update on the storm.
 
 Hurricane conditions are expected to arrive by late Sunday night or Monday morning, with the outer bands of the storm system making their way on shore during the day Sunday.
 
 Track the Storm: Spaghetti models and more maps here
 
 The strengthening storm tracking up the Florida Peninsula’s western coast prompted county and state officials to issue a string of voluntary and mandatory evacuation orders Saturday, as the hurricane center posted hurricane watches and warnings across several parts of the state, including near Tampa and the Big Bend region.
+
+Tropical storm and storm surge watches have also been issued for parts of coastal Georgia.
 
 Florida Gov. Ron DeSantis and Georgia Gov. Brian Kemp declared states of emergency for their states Saturday in advance of the storm’s arrival.
 
