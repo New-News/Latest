@@ -1,6 +1,6 @@
 # California inmate on death row for 33 years must either be released or retried due to prosecutorial misconduct
 
-Published :`2024-08-04 11:36:10`
+Published :`2024-08-04 12:26:58`
 
 ---
 

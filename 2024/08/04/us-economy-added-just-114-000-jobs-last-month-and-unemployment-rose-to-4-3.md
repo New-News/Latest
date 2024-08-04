@@ -1,6 +1,6 @@
 # US economy added just 114,000 jobs last month and unemployment rose to 4.3%
 
-Published :`2024-08-04 11:36:12`
+Published :`2024-08-04 12:26:59`
 
 ---
 

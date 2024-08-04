@@ -1,20 +1,20 @@
 # Warm Gulf waters could help slow-moving Tropical Storm Debby strengthen to a Category 1 hurricane before landfall
 
-Published :`2024-08-04 11:36:06`
+Published :`2024-08-04 12:26:56`
 
 ---
 
 As Tropical Storm Debby moves through the Gulf of Mexico, forecasters are focusing on two potential effects of the storm’s slow speed: More time will allow the system to gain strength to become a hurricane and if it lingers, the Southeast could see huge amounts of flooding rainfall over the next few days.
 
-Authorities in Florida and Georgia are urging residents to prepare as the storm makes its way through the near-record warm waters of the Gulf of Mexico. Debby is expected to continue strengthening Sunday after being upgraded to a tropical storm Saturday evening, according to the National Hurricane Center.
+Authorities in Florida and Georgia are urging residents to prepare as the storm makes its way through the near-record warm waters of the Gulf of Mexico. Debby is expected to continue strengthening and could become a hurricane by Sunday evening after being upgraded to a tropical storm a day prior, according to the National Hurricane Center.
 
-Debby has sustained winds of 50 mph and is located about 195 miles south west of Tampa, Florida, according to the National Hurricane Center’s 5 a.m. ET Sunday update on the storm.
+Debby has sustained winds of 60 mph and is located about 155 miles southwest of Tampa, Florida, according to the National Hurricane Center’s 8 a.m. ET Sunday update on the storm.
 
 Hurricane conditions are expected to arrive by late Sunday night or Monday morning, with the outer bands of the storm system making their way on shore during the day Sunday.
 
 Track the Storm: Spaghetti models and more maps here
 
-The strengthening storm tracking up the Florida Peninsula’s western coast prompted county and state officials to issue a string of voluntary and mandatory evacuation orders Saturday, as the hurricane center posted hurricane watches and warnings across several parts of the state, including near Tampa and the Big Bend region.
+The strengthening storm tracking up the Florida Peninsula’s western coast prompted county and state officials to issue a string of voluntary and mandatory evacuation orders as the hurricane center posted hurricane watches and warnings across several parts of the state, including near Tampa and the Big Bend region.
 
 Tropical storm and storm surge watches have also been issued for parts of coastal Georgia.
 
@@ -32,13 +32,15 @@ By early Monday, Debby is expected to move into the Apalachee Bay area of Florid
 
 The Apalachee Bay area, which includes parts of Taylor, Jefferson, Wakulla, and Franklin counties, can expect to get drenched with heavy rain from Debby on Sunday, increasing the possibility of flash flooding in several spots, the hurricane center said.
 
+In the meantime, county officials have urged residents in communities along Florida’s Gulf Coast to evacuate ahead of the storm. Mandatory evacuation orders are in effect for parts of Franklin, Citrus and Levy counties, with voluntary orders issued in Hernando, Taylor and Pasco counties.
+
 ### Heavy rain could linger for days
 
 As a slow-moving Debby churns along the Georgia-Carolina coastline heading into the new week, it could lead to seemingly endless amounts of rain for days, with totals potentially reaching up to 20 inches.
 
-The heaviest rain totals could even top 30 inches or more depending on how long Debby meanders, with some forecast models showing Debby could linger through at least Thursday. “This rainfall will likely result in areas of considerable flash and urban flooding, with significant river flooding expected,” the National Hurricane Center said.
+The heaviest rain totals could even top 30 inches or more depending on how long Debby meanders, with some forecast models showing the storm could linger through at least Thursday. “This rainfall will likely result in areas of considerable flash and urban flooding, with significant river flooding expected,” the National Hurricane Center said.
 
-A warmer atmosphere holds more moisture and can dump heavier rain. Warmer oceans can fuel stronger hurricanes, packing a punch with higher storm surge thanks to sea-level rise. Destruction from water – both storm surge and flash flooding from heavy rain – claim the most lives in tropical systems.
+A warmer atmosphere holds more moisture and can dump heavier rain. Warmer oceans can fuel stronger hurricanes, packing a punch with higher storm surge thanks to sea-level rise. Destruction from water — both storm surge and flash flooding from heavy rain — claim the most lives in tropical systems.
 
 With an uptick in the intensity forecast comes an increase in the storm surge forecast. Storm surge is the ocean water pushing inland on the onshore winds of the hurricane. Storm surge flooding above ground could rise to 6 to 10 feet along Florida’s Big Bend.
 
