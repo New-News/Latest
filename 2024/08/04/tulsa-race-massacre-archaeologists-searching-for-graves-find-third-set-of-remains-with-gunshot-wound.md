@@ -1,6 +1,6 @@
 # Tulsa Race Massacre: Archaeologists searching for graves find third set of remains with gunshot wound
 
-Published :`2024-08-04 01:14:03`
+Published :`2024-08-04 02:26:27`
 
 ---
 

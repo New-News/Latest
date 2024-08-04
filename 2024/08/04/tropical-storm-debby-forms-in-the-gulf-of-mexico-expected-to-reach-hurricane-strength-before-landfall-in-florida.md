@@ -1,6 +1,6 @@
 # Tropical Storm Debby forms in the Gulf of Mexico, expected to reach hurricane strength before landfall in Florida
 
-Published :`2024-08-04 01:14:02`
+Published :`2024-08-04 02:26:27`
 
 ---
 
@@ -28,7 +28,7 @@ The hurricane center said the storm system became better organized by late Satur
 
 “Hurricane conditions are possible in the hurricane watch area by Sunday night, with tropical storm conditions expected to begin on Sunday,” the hurricane center said. “Tropical storm conditions are expected to spread northward over the tropical storm warning areas this evening and continuing through Sunday.”
 
-A tornado or two is also possible across the Florida Keys and the western Florida Peninsula through Saturday night, according to the hurricane center.
+A tornado or two is also possible across the Florida Keys and the western Florida Peninsula through Saturday night, according to the hurricane center. A radar-indicated tornado prompted a warning in Broward County late Saturday.
 
 “Very Intense” rainfall is expected in southwest Florida on Saturday and a widespread 3 to 5 inches of rain could fall, according to the Weather Prediction Center. The intense rain will be potent enough to cause flash flooding, even in marshy areas of the state more capable of handling excess water.
 
@@ -82,7 +82,7 @@ Florida Gov. Ron DeSantis has declared a state of emergency for 54 of the state�
 
 “Floridians are encouraged to monitor weather conditions, listen to all orders from local officials, create disaster preparedness plans, and stock disaster supply kits with food, water, and other necessities for their households,” the governor’s office said Friday.
 
-Local governments have started putting out advisories. Citrus and Levy counties have issued mandatory evacuation orders in certain low-lying areas and for some residents living in manufactured homes or RVs. Voluntary evacuation notices have been announced in other areas of both counties, along with Pasco and Taylor Counties.
+Local governments have started putting out advisories. Citrus, Levy and Dixie counties have issued mandatory evacuation orders in certain low-lying areas and for some residents living in manufactured homes or RVs. Voluntary evacuation notices have been announced in other areas of both counties, along with Pasco and Taylor Counties.
 
 Sandbag distribution began Friday for residents in several communities in the Orlando and Tampa metros. Multiple counties in the state’s panhandle – including Escambia, Okaloosa and Santa Rosa – started distributing sandbags Thursday.
 
