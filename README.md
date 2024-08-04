@@ -1,22 +1,22 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-04 14:37:02`
+#### Latest Update : `2024-08-04 15:15:16`
 
 ## Latest News Grabbing 
 
 ---
 
-- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/04/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
+- [At least 43 killed in Bangladesh as protesters, police and pro-government activists clash](https://new-news.github.io/Latest/2024/08/04/at-least-43-killed-in-bangladesh-as-protesters-police-and-pro-government-activists-clash 'At least 43 killed in Bangladesh as protesters, police and pro-government activists clash')
 
 - [Ukraine confirms F-16s have arrived in country as Zelensky heralds ‘new chapter’ in fight against Russia](https://new-news.github.io/Latest/2024/08/04/ukraine-confirms-f-16s-have-arrived-in-country-as-zelensky-heralds-new-chapter-in-fight-against-russia 'Ukraine confirms F-16s have arrived in country as Zelensky heralds ‘new chapter’ in fight against Russia')
+
+- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/04/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [No need for army, UK government says, as it faces worst disorder in years](https://new-news.github.io/Latest/2024/08/04/no-need-for-army-uk-government-says-as-it-faces-worst-disorder-in-years 'No need for army, UK government says, as it faces worst disorder in years')
 
 - [Warm Gulf waters could help slow-moving Tropical Storm Debby strengthen to a Category 1 hurricane before landfall](https://new-news.github.io/Latest/2024/08/04/warm-gulf-waters-could-help-slow-moving-tropical-storm-debby-strengthen-to-a-category-1-hurricane-before-landfall 'Warm Gulf waters could help slow-moving Tropical Storm Debby strengthen to a Category 1 hurricane before landfall')
 
 - [What to know about the ‘Emergency Budots’ taking over TikTok](https://new-news.github.io/Latest/2024/08/04/what-to-know-about-the-emergency-budots-taking-over-tiktok 'What to know about the ‘Emergency Budots’ taking over TikTok')
-
-- [At least 27 killed in Bangladesh as protesters, police and pro-government activists clash](https://new-news.github.io/Latest/2024/08/04/at-least-27-killed-in-bangladesh-as-protesters-police-and-pro-government-activists-clash 'At least 27 killed in Bangladesh as protesters, police and pro-government activists clash')
 
 - [Trump and Vance rally in battleground Georgia looking to put recent struggles behind them](https://new-news.github.io/Latest/2024/08/04/trump-and-vance-rally-in-battleground-georgia-looking-to-put-recent-struggles-behind-them 'Trump and Vance rally in battleground Georgia looking to put recent struggles behind them')
 

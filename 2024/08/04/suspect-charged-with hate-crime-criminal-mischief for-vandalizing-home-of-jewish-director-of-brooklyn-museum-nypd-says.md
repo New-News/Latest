@@ -1,6 +1,6 @@
 # Suspect charged with hate crime, criminal mischief for vandalizing home of Jewish director of Brooklyn Museum, NYPD says
 
-Published :`2024-08-04 14:37:01`
+Published :`2024-08-04 15:15:14`
 
 ---
 

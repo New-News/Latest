@@ -1,6 +1,6 @@
 # Excavation in Egyptian necropolis uncovers 63 ancient tombs and a trove of gold artifacts
 
-Published :`2024-08-04 14:37:00`
+Published :`2024-08-04 15:15:13`
 
 ---
 
