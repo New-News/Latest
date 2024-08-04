@@ -1,6 +1,6 @@
 # Deputy’s fatal shooting of Sonya Massey highlights risky practice of hiring America’s legion of ‘wandering officers’
 
-Published :`2024-08-04 16:16:41`
+Published :`2024-08-04 16:37:52`
 
 ---
 

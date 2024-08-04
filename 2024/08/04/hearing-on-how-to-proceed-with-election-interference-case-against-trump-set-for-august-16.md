@@ -1,6 +1,6 @@
 # Hearing on how to proceed with election interference case against Trump set for August 16
 
-Published :`2024-08-04 16:16:41`
+Published :`2024-08-04 16:37:52`
 
 ---
 
