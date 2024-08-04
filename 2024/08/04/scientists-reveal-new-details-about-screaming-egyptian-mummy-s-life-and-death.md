@@ -1,6 +1,6 @@
 # Scientists reveal new details about ‘screaming’ Egyptian mummy’s life and death
 
-Published :`2024-08-04 05:13:43`
+Published :`2024-08-04 05:35:41`
 
 ---
 
