@@ -1,6 +1,6 @@
 # How Sherrod Brown is navigating Harris’ candidacy in GOP-leaning Ohio with Senate control at stake
 
-Published :`2024-08-04 08:17:08`
+Published :`2024-08-04 08:37:02`
 
 ---
 
