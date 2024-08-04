@@ -1,6 +1,6 @@
 # Scientists have spotted unexpected X- and C-shaped structures in the atmosphere. They are struggling to explain them
 
-Published :`2024-08-04 19:36:02`
+Published :`2024-08-04 20:15:50`
 
 ---
 
