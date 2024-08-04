@@ -1,6 +1,6 @@
 # Bangladesh bans Jamaat-e-Islami party following violent protests that left more than 200 dead
 
-Published :`2024-08-04 03:16:41`
+Published :`2024-08-04 03:36:57`
 
 ---
 
