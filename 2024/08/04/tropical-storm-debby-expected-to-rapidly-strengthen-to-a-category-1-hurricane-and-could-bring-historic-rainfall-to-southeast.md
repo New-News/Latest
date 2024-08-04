@@ -1,6 +1,6 @@
 # Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast
 
-Published :`2024-08-04 22:14:25`
+Published :`2024-08-04 22:36:09`
 
 ---
 
@@ -8,9 +8,15 @@ Tropical Storm Debby is now forecast to rapidly intensify into a hurricane befor
 
 Authorities in Florida, Georgia and South Carolina are urging residents to prepare as the storm makes its way through the Gulf, with Debby now expected to undergo rapid intensification, which occurs when a storm’s top-end winds increase 35 mph in 24 hours. It could become a hurricane by Sunday evening after being upgraded to a tropical storm a day prior, according to the National Hurricane Center.
 
-Debby has sustained winds of 65 mph — up 30 mph from a day ago — and is located about 120 miles west of Tampa, Florida, according to the National Hurricane Center’s 5 p.m. ET Sunday update, warning that the threats of heavy rain and storm surge could lead to flooding in the coming days.
+Debby is starting to close in on the Big Bend with sustained winds of 65 mph — up 30 mph from a day ago — and is located about 120 miles west of Tampa, Florida, according to the National Hurricane Center’s 5 p.m. ET Sunday update, warning that the threats of heavy rain and storm surge could lead to flooding in the coming days.
 
-Hurricane conditions are expected to arrive by Monday morning, with the outer bands of the storm system making their way on shore during the day Sunday. The storm is forecast to reach the coast of Florida’s Big Bend early Monday, at which point Debby is expected to then crawl across northern Florida and southern Georgia throughout the day and into Tuesday, the hurricane center said.
+Despite landfall being only between 12 to 18 hours away, the hurricane center warned Debby will undergo “significant strengthening before landfall.”
+
+“Rapid intensification is especially likely if Debby acquires a well-defined inner core,” the center said, noting that one appeared to be forming in the latest radar imagery. This would allow Debby to take advantage of some of the warmest water in the Gulf of Mexico that it will traverse Sunday evening into Monday morning.
+
+The official forecast calls for Debby’s winds to pick up to around 85 mph, which would classify it as a Category 1 hurricane on the Saffir-Simpson scale, when it makes landfall sometime late Monday morning.
+
+Hurricane conditions are expected to arrive by Monday morning, with the outer bands of the storm system making their way on shore during the day Sunday. The storm is forecast to reach the coast of the Big Bend early Monday, at which point Debby is expected to then crawl across northern Florida and southern Georgia throughout the day and into Tuesday, the hurricane center said.
 
 The main threat will be flooding, both from storm surges up to 10 feet and heavy rainfall. Freshwater flooding, which is caused by rainfall, has become the deadliest aspect of tropical systems in the last decade, according to research conducted by the hurricane center — a threat made more dangerous as the world warms from fossil fuel pollution.
 

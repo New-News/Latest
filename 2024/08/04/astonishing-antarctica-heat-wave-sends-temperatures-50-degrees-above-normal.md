@@ -1,6 +1,6 @@
 # ‘Astonishing’ Antarctica heat wave sends temperatures 50 degrees above normal
 
-Published :`2024-08-04 22:14:27`
+Published :`2024-08-04 22:36:10`
 
 ---
 

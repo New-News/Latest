@@ -1,6 +1,6 @@
 # Belgium drops out of mixed triathlon and Switzerland shuffles line-up after athletes fall ill following race in River Seine
 
-Published :`2024-08-04 22:14:25`
+Published :`2024-08-04 22:36:09`
 
 ---
 
@@ -21,6 +21,12 @@ The Swiss team, meanwhile, had to replace Adrien Briffod, who had to withdraw du
 Swiss Olympic Chief Medical Officer Hanspeter Betschart noted that it is unclear if Briffod’s infection is related to the Seine’s water quality.
 
 “A survey of my colleagues from other countries has so far not revealed any accumulation of gastrointestinal illnesses among the athletes who started the individual race last Wednesday,” Betschart said.
+
+The Paris 2024 organizers of the Games said in a statement that the water quality in the Seine was at a “very good” level on the morning of the individual triathlons.
+
+“Paris 2024 wishes to remind everyone that the health and wellbeing of athletes is our top priority. With respect to competitions held in the Seine, water quality tests are carried out daily, and the decision on whether to proceed with an event is taken by the International Federation World Triathlon, in coordination with Paris 2024, and based on the results and a range of (notably health) criteria,” the statement read.
+
+“Water samples taken in the Seine on the morning of the individual triathlon events showed the quality to be at a level considered ‘very good’ by World Triathlon’s criteria, according to results analysed and released the following day,” the statement added in part.
 
 ### Mixed relay triathlon to proceed on Monday
 
