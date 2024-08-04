@@ -1,0 +1,34 @@
+# Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike
+
+Published :`2024-08-04 10:14:42`
+
+---
+
+The US, UK and France are among several countries urging their citizens to leave Lebanon as heightened tensions in the region spark fears of a widening Middle East conflict.
+
+The US Embassy in Lebanon called on citizens to book “any ticket available to them.” Britain’s Foreign Secretary David Lammy said his message for British citizens was “leave now.”
+
+The region is on high alert after Iran vowed revenge on Israel, who it blames for the assassination of Hamas’ political leader Ismail Haniyeh in the capital Tehran earlier this week. Haniyeh’s death came just hours after an Israeli strike on the Lebanese capital Beirut killed Hezbollah’s most senior military commander, Fu’ad Shukr.
+
+The developments have raised concerns that Israel’s war in Gaza, which is now well into its ninth month, could spill over into a full-blown Middle Eastern conflict.
+
+It is thought that Lebanon-based Hezbollah could play a prominent part in any such retaliation. The militant group has been involved in daily exchanges of fire with Israel; overnight on Saturday Hezbollah fired 30 projectiles, most of which were intercepted by Israel.
+
+Many countries already had travel warnings in place but have issued fresh advice in the wake of the latest developments.
+
+France told its citizens to make arrangements to leave Lebanon “as soon as possible” in a statement from the Ministry for Europe and Foreign affairs on Sunday.
+
+Jordan issued a similar warning to its citizens. The country was involved in shooting down Iranian drones when Iran launched unprecedented retaliatory strikes in April for a suspected Israeli attack on a diplomatic complex.
+
+Iran’s state news agency (IRNA) reported that the Foreign Minister of Jordan will make a rare visit to the Iranian capital Tehran on Sunday, to “meet and exchange views with Iranian officials regarding bilateral, regional and international issues.”
+
+Airlines including Air France, Lufthansa and Kuwaiti Airlines have already cancelled flights to and from Lebanon while some airlines have diverted flights away from Lebanese.
+
+In a further sign of the region bracing for an Iranian retaliation, the US on Saturday sent a carrier strike group, a fighter squadron and additional warships to the Middle East. It marked perhaps the largest movement of US forces to the region since the early days of the Gaza war, when the Pentagon sent two carrier strike groups toward the Middle East in a very public warning to regional militant groups not to expand the fighting.
+
+Israel says it is ready for “range of scenarios” following the assassination of Ismail Haniyeh in Iran.
+
+Israelis have been stocking up on supplies, while a file from the Jerusalem municipality advised residents to “clean and prepare their bomb shelters,” warning they must be able to reach shelters in 90 seconds.
+
+---
+
