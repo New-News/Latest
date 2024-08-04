@@ -1,6 +1,6 @@
 # At least 30 killed in Israeli airstrike on schools in Gaza, Palestinian Civil Defense says
 
-Published :`2024-08-04 16:37:52`
+Published :`2024-08-04 17:12:47`
 
 ---
 

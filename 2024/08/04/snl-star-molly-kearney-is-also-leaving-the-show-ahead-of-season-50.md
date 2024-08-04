@@ -1,6 +1,6 @@
 # ‘SNL’ star Molly Kearney is also leaving the show ahead of Season 50
 
-Published :`2024-08-04 16:37:54`
+Published :`2024-08-04 17:12:49`
 
 ---
 
