@@ -1,6 +1,6 @@
 # How female politicians’ first names can work for and against them, according to science
 
-Published :`2024-08-04 10:14:43`
+Published :`2024-08-04 10:36:37`
 
 ---
 

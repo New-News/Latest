@@ -1,6 +1,6 @@
 # Israeli airstrikes on two Gaza shelters kill 17, says Gaza Civil Defense
 
-Published :`2024-08-04 10:14:43`
+Published :`2024-08-04 10:36:37`
 
 ---
 
