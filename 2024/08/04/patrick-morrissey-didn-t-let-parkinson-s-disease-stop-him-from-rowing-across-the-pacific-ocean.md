@@ -1,6 +1,6 @@
 # Patrick Morrissey didn’t let Parkinson’s disease stop him from rowing across the Pacific Ocean
 
-Published :`2024-08-04 23:16:35`
+Published :`2024-08-04 23:36:29`
 
 ---
 

@@ -1,6 +1,6 @@
 # Texas woman who traveled to DC arrested for allegedly making threats against Trump
 
-Published :`2024-08-04 23:16:33`
+Published :`2024-08-04 23:36:27`
 
 ---
 

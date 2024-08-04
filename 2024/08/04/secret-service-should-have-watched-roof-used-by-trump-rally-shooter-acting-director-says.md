@@ -1,6 +1,6 @@
 # Secret Service should have watched roof used by Trump rally shooter, acting director says
 
-Published :`2024-08-04 23:16:34`
+Published :`2024-08-04 23:36:29`
 
 ---
 

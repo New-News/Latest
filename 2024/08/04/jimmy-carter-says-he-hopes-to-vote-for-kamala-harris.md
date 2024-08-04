@@ -1,6 +1,6 @@
 # Jimmy Carter says he hopes to vote for Kamala Harris
 
-Published :`2024-08-04 23:16:32`
+Published :`2024-08-04 23:36:27`
 
 ---
 

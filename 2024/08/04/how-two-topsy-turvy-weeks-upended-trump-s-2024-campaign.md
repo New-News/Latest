@@ -1,6 +1,6 @@
 # How two topsy-turvy weeks upended Trump’s 2024 campaign
 
-Published :`2024-08-04 23:16:31`
+Published :`2024-08-04 23:36:26`
 
 ---
 

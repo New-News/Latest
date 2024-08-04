@@ -1,20 +1,20 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-04 23:16:35`
+#### Latest Update : `2024-08-04 23:36:29`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast](https://new-news.github.io/Latest/2024/08/04/tropical-storm-debby-expected-to-rapidly-strengthen-to-a-category-1-hurricane-and-could-bring-historic-rainfall-to-southeast 'Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast')
+
+- [Rioters attack hotels used to house asylum seekers amid worst UK disorder in years](https://new-news.github.io/Latest/2024/08/04/rioters-attack-hotels-used-to-house-asylum-seekers-amid-worst-uk-disorder-in-years 'Rioters attack hotels used to house asylum seekers amid worst UK disorder in years')
 
 - [Man who stole Jackie Robinson statue from Kansas youth field gets 18 months for theft](https://new-news.github.io/Latest/2024/08/04/man-who-stole-jackie-robinson-statue-from-kansas-youth-field-gets-18-months-for-theft 'Man who stole Jackie Robinson statue from Kansas youth field gets 18 months for theft')
 
 - [RFK Jr. says he placed a dead bear cub in Central Park 10 years ago](https://new-news.github.io/Latest/2024/08/04/rfk-jr-says-he-placed-a-dead-bear-cub-in-central-park-10-years-ago 'RFK Jr. says he placed a dead bear cub in Central Park 10 years ago')
 
 - [Opinion: Why there is no such thing as a ‘natural’ disaster](https://new-news.github.io/Latest/2024/08/04/opinion-why-there-is-no-such-thing-as-a-natural-disaster 'Opinion: Why there is no such thing as a ‘natural’ disaster')
-
-- [Rioters attack hotels used to house asylum seekers amid worst UK disorder in years](https://new-news.github.io/Latest/2024/08/04/rioters-attack-hotels-used-to-house-asylum-seekers-amid-worst-uk-disorder-in-years 'Rioters attack hotels used to house asylum seekers amid worst UK disorder in years')
-
-- [Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast](https://new-news.github.io/Latest/2024/08/04/tropical-storm-debby-expected-to-rapidly-strengthen-to-a-category-1-hurricane-and-could-bring-historic-rainfall-to-southeast 'Tropical Storm Debby expected to rapidly strengthen to a Category 1 hurricane and could bring historic rainfall to Southeast')
 
 - [Belgium drops out of mixed triathlon and Switzerland shuffles line-up after athletes fall ill following race in River Seine](https://new-news.github.io/Latest/2024/08/04/belgium-drops-out-of-mixed-triathlon-and-switzerland-shuffles-line-up-after-athletes-fall-ill-following-race-in-river-seine 'Belgium drops out of mixed triathlon and Switzerland shuffles line-up after athletes fall ill following race in River Seine')
 
