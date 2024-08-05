@@ -1,12 +1,12 @@
 # Debby strengthens to a Category 1 hurricane ahead of Florida landfall as Southeast braces for potentially historic rain
 
-Published :`2024-08-05 03:37:48`
+Published :`2024-08-05 04:18:23`
 
 ---
 
 Hurricane Debby, the fourth named storm of the Atlantic hurricane season and the second named hurricane, has become a Category 1 storm, according to the National Hurricane Center.
 
-The storm, located about 100 miles west northwest of Tampa, Florida, with maximum sustained winds of 75 mph, is expected to make landfall in Florida’s Big Bend region Monday morning.
+The storm, located about 100 miles west-northwest of Tampa, Florida, with maximum sustained winds of 75 mph, is expected to strengthen even further before making landfall in Florida’s Big Bend region Monday morning.
 
 “Debby is then expected to move slowly across northern Florida and southern Georgia Monday and Tuesday, and be near the Georgia coast by Tuesday night,” the hurricane center said in its 11 p.m. advisory.
 
@@ -16,7 +16,11 @@ Authorities in Florida, Georgia and South Carolina are urging residents to prepa
 
 The cities of Savannah, Georgia, and Charleston, South Carolina, could both be drenched with a month’s worth of rain in a single day — and perhaps even an entire summer’s worth of rain over the course of the storm.
 
-Debby will likely strengthen further before it reaches the coast, the hurricane center warned.
+Hundreds of thousands of college and K-12 students will be impacted as several schools in the storm’s projected path have canceled classes Monday, including the University of Florida and Georgia Southern University.
+
+Dangerous conditions had already begun Sunday off Florida’s coast. Two boaters were rescued after their vessel lost its sail amid 15- to 20-foot seas and 50-knot winds, the US Coast Guard in Tampa Bay said.
+
+Debby’s arrival continues to cement an exceptionally early start to the hurricane season after Hurricane Beryl tore through the Caribbean and Texas last month as the earliest Category 5 Atlantic hurricane on record. The second Atlantic hurricane does not occur, on average, until August 26.
 
 Hurricane conditions are expected to arrive by Monday morning, with the outer bands of the storm system making their way on shore during the day Sunday. The storm is forecast to reach the coast of the Big Bend around midday Monday, at which point Debby is expected to then crawl across northern Florida and southern Georgia throughout the day and into Tuesday, the hurricane center said.
 
@@ -25,6 +29,8 @@ The main threat will be flooding, both from storm surges up to 10 feet and heavy
 Track the Storm: Spaghetti models and more maps here
 
 The strengthening storm tracking up the Florida Peninsula’s western coast prompted county and state officials to issue a string of voluntary and mandatory evacuation orders as the hurricane center posted hurricane watches and warnings across several parts of the state, including near Tampa and the Big Bend region.
+
+A hurricane warning has been issued for the Florida Gulf coast from Suwanee River to Yankeetown, the hurricane center said.
 
 Tropical storm and storm surge watches and warnings have also been issued for parts of Florida, coastal Georgia and parts of South Carolina. The hurricane center upgraded a tropical storm watch to a warning for the area west of Indian Pass to Mexico Beach, Florida, in its 5 p.m. ET update, and a tropical storm warning was also issued for the eastern coasts of Florida and Georgia from Ponte Vedra Beach to the Savannah River.
 
@@ -36,7 +42,7 @@ DeSantis called on residents to finish their preparations and to brace for power
 
 “There’s going to be a lot of trees that are going to fall down. You’re going to have debris. You are going to have power interruption,” the governor said, “so just prepare for that.”
 
-More than 60,000 customers were already without power in Florida and more than 14,000 had lost electricity in Georgia by Sunday evening, according to PowerOutage.us.
+More than 78,000 customers were already without power in Florida by Sunday night, according to PowerOutage.us.
 
 DeSantis also urged Florida residents to avoid floodwaters ahead of the storm’s potentially significant flooding impacts, particularly in North Central Florida.
 

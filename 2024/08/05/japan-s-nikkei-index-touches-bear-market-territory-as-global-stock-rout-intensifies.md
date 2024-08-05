@@ -1,6 +1,6 @@
 # Japan’s Nikkei index touches bear market territory as global stock rout intensifies
 
-Published :`2024-08-05 03:37:48`
+Published :`2024-08-05 04:18:23`
 
 ---
 
