@@ -1,6 +1,6 @@
 # Google loses massive antitrust lawsuit over its search dominance
 
-Published :`2024-08-05 20:37:13`
+Published :`2024-08-05 21:16:31`
 
 ---
 
@@ -20,7 +20,9 @@ Those contracts have long meant that when users want to find information, Google
 
 While the court did not find that Google has a monopoly in search ads, the broader strokes of the opinion represent the first major decision in a string of US-government led competition lawsuits targeting Big Tech. This case in particular has been described as the biggest tech antitrust case since the US government’s antitrust showdown with Microsoft at the turn of the millennium.
 
-Neither Google nor the Department of Justice immediately responded to a request for comment. This case is distinct from a separate antitrust suit brought by the Biden administration against Google in 2023 related to the company’s advertising technology business. That case is expected to head to trial in early September.
+“This victory against Google is an historic win for the American people,” Attorney General Merrick Garland said in a statement. “No company — no matter how large or influential — is above the law.”
+
+Google did not immediately respond to a request for comment. This case is distinct from a separate antitrust suit brought by the Biden administration against Google in 2023 related to the company’s advertising technology business. That case is expected to head to trial in early September.
 
 But Monday’s decision marks the second high-profile antitrust defeat for Google after a federal jury in California said in December that Google runs an illegal monopoly with its proprietary app store. The court in that case is still deliberating possible remedies.
 
@@ -34,9 +36,25 @@ The company is also likely to face a monetary fine, although fines are “not th
 
 At the time the lawsuit was first filed, US antitrust officials also did not rule out the possibility of a Google breakup, warning that Google’s behavior could threaten future innovation or the rise of a Google successor.
 
-The ruling could also be a bellwether for other, major tech antitrust cases that are moving through the courts, including against Apple and Amazon. Both Amazon and Apple have called the antitrust lawsuits filed against them “wrong on the facts and the law.”
+### ‘Definitely a landmark’
 
-“There are a lot of parts of the government’s arguments in its case against Google that are puzzle pieces to their other cases,” Allensworth said. “Things like ‘zero price markets,’ these are markets where you don’t have to pay every time you search… how the judge handles those questions in this case will be looked at closely and will be influential in those other cases, but it won’t be legally binding.”
+Monday’s decision against Google will likely be remembered in the same breath as other major antitrust cases throughout history, some antitrust experts said. That list includes the breakup of AT&T’s telephone monopoly and Standard Oil, as well as Microsoft’s illegal bundling of its Internet Explorer web browser with Windows, said Diana Moss, vice president and director of competition policy at the Progressive Policy Institute.
+
+In each of those cases, Moss said, the courts highlighted a specific business practice or mechanism — such as Microsoft’s browser bundling — as a violation of US competition law.
+
+The Google decision this week is no different, zeroing in on the search giant’s exclusive contracts and finding huge problems with the use of such by large, monopolistic firms.
+
+“This is definitely a landmark,” said Moss, adding that “it’s very clear in signaling that the use of exclusive contracts in the hands of a monopolist violates the law.”
+
+However, Adam Kovacevich, founder of the tech advocacy group Chamber of Progress and a former Google policy director, pushed back on the ruling, saying, “the biggest winner from today’s ruling isn’t consumers or little tech, it’s Microsoft.”
+
+“Microsoft has underinvested in search for decades, but today’s ruling opens the door to a court mandate of default deals for Bing. That’s a slap in the face to consumers who chose Google because they think it’s the best,” Kovacevich said. Microsoft CEO Satya Nadella testified as part of the Google antitrust trial.
+
+The decision won’t just affect users of Google’s search engine. It will also have ripple effects across the economy as businesses digest the message Mehta is sending about business contracts, Moss said.
+
+The ruling could also be a bellwether for other major tech antitrust cases, including against Apple and Amazon. Both Amazon and Apple have called the antitrust lawsuits filed against them “wrong on the facts and the law.” It could also boost to the Justice Department’s antitrust lawsuit against Live Nation, the parent of Ticketmaster, Moss said said, given how central exclusivity deals are to that lawsuit.
+
+“There are a lot of parts of the government’s arguments in its case against Google that are puzzle pieces to their other cases,” Allensworth said.
 
 ### Artificial intelligence at stake
 
@@ -44,7 +62,7 @@ Mehta’s 277-page opinion follows a lengthy, multiweek trial last year that saw
 
 At trial, some critics warned that Google’s search monopoly, which is fed by a never-ending supply of user search queries, would allow it to leapfrog to a dominant position in artificial intelligence.
 
-The enormous amount of search data that is provided to Google through its default agreements can help Google train its artificial intelligence models to be better than anyone else’s — threatening to give Google an unassailable advantage in AI that would further entrench its power, Microsoft CEO Satya Nadella said from the witness stand.
+The enormous amount of search data that is provided to Google through its default agreements can help Google train its artificial intelligence models to be better than anyone else’s — threatening to give Google an unassailable advantage in AI that would further entrench its power, Microsoft CEO Nadella said from the witness stand.
 
 Nadella’s testimony highlighted how the government’s case may have far-reaching effects that go beyond traditional search and may shape the future of a technology world leaders have described as potentially transformational.
 
@@ -52,7 +70,7 @@ If the court takes away Google’s agreements that make it the default search en
 
 “Its ubiquity is its biggest strength, especially as competition heats up among AI-powered search alternatives,” Mitchell-Wolf said, referring to the growing threat to Google’s search dominance posed by artificial intelligence search tools like OpenAI’s ChatGPT.
 
-This is a developing story and will be updated.
+This story has been updated with additional context and developments.
 
 ---
 
