@@ -1,6 +1,6 @@
 # Engineers have a new theory on how Egypt’s first pyramid was built. Here’s what Egyptologists have to say
 
-Published :`2024-08-05 21:35:36`
+Published :`2024-08-05 22:14:21`
 
 ---
 

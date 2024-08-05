@@ -1,6 +1,6 @@
 # ‘Several’ US personnel injured in rocket attack on Iraq base
 
-Published :`2024-08-05 21:35:36`
+Published :`2024-08-05 22:14:21`
 
 ---
 
@@ -8,9 +8,19 @@ Several US personnel were injured in a suspected rocket attack Monday against US
 
 “We can confirm that there was a suspected rocket attack today against US and Coalition forces at Al-Asad Airbase, Iraq,” the official said. “Initial indications are that several US personnel were injured. Base personnel are conducting a post-attack damage assessment.”
 
-The attack comes amid extremely high tensions in the Middle East, as the US has been bracing for Iranian retaliation against Israel.
+The attack comes amid extremely high tensions in the Middle East, as the US has been bracing for Iranian retaliation against Israel over the assassination of Hamas political leader Ismail Haniyeh in Tehran last week. Israel has not commented on the killing of Haniyeh. Hezbollah in Lebanon has also vowed retaliation on Israel after the assassination of one of its top commanders in Beirut less than a day before Haniyeh’s killing.
 
 It also comes just days after Defense Secretary Lloyd Austin ordered additional military assets to the region, sending a carrier strike group, a fighter squadron and additional warships to the Middle East.
+
+While it’s unclear who carried out the rocket attack on Monday, US officials have long blamed attacks on troops in Iraq and Syria on Iran-backed militia groups.
+
+Deputy Pentagon Press Secretary Sabrina Singh said last month after a drone attack on Al-Asad that it was “most likely” carried out by Iranian-supported groups.
+
+“We know that these are IRGC-backed militias that have launched these attacks on US forces in the past. Most likely than not, it is one of those affiliate groups,” Singh said on July 18.
+
+Between October 17 and January 29, there were more than 150 attacks on US personnel in Iraq and Syria. Those attacks slowed after three American troops were killed in a drone attack on a small US outpost in Jordan, resulting in a significant US response that hit 85 targets at seven different locations.
+
+“The United States does not seek conflict in the Middle East or anywhere else in the world,” Biden said at the time. “But let all those who might seek to do us harm know this: If you harm an American, we will respond.”
 
 ---
 

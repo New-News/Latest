@@ -1,22 +1,28 @@
 # Bloomberg News disciplines staffers after breaking embargo on US-Russia prisoner swap
 
-Published :`2024-08-05 21:35:37`
+Published :`2024-08-05 22:14:21`
 
 ---
 
-Bloomberg News took disciplinary action Monday against a “number” of its staffers after the outlet broke an embargo last week on news of the release of several American prisoners held by Russia, including Wall Street Journal reporter Evan Gershkovich.
+Bloomberg News dismissed a reporter and took disciplinary action against other staffers Monday after the outlet broke a news embargo last week on the release of several American prisoners held by Russia, including Wall Street Journal reporter Evan Gershkovich.
 
-In a memo sent to the outlet’s staff on Monday and obtained by CNN, Bloomberg editor-in-chief John Micklethwait wrote that an initial story, published at 7:41 a.m. ET Thursday, reporting Gershkovich had been released as part of a historic US-Russia prisoner exchange was posted “prematurely.”
+In a memo sent to the outlet’s staff on Monday and obtained by CNN, Bloomberg editor-in-chief John Micklethwait wrote that an initial story, published by the outlet at 7:41 a.m. ET Thursday, reporting that Gershkovich had been released as part of a historic US-Russia prisoner exchange was posted “prematurely.”
 
 Bloomberg’s reporting “could have endangered the negotiated swap that set them free,” Micklethwait wrote. “Even if our story mercifully ended up making no difference, it was a clear violation of the editorial standards which have made this newsroom so trusted around the world.”
 
 Bloomberg’s Standards editor conducted a “full investigation,” Micklethwait added, and as a result the outlet was taking “disciplinary action against a number of those involved” and will be reviewing their process to make sure such “failures like this don’t happen again.”
 
-The editor said he had personally written letters to apologize to each of the prisoners and that he “immediately” apologized on Thursday to Wall Street Journal editor-in-chief Emma Tucker.
+Senior White House reporter Jennifer Jacobs, who was the first byline on the initial story reporting that Gershkovich had been released, was dismissed as a result of the investigation, a person familiar with the matter said.
 
-The initial report Thursday morning was touted by a Bloomberg editor on X, who said it was one of the “greatest honors of my career” to help break the news of Gershkovich’s release. The editor later deleted the post and the published story was updated to note that the prisoners had not yet been released.
+“In reporting the story about Evan’s release, I worked hand in hand with my editors to adhere to editorial standards and guidelines,” Jacobs said in a statement Monday. “At no time did I do anything that was knowingly inconsistent with the administration’s embargo or that would put anyone involved at risk.”
+
+A Bloomberg News spokesperson did not comment on Jacobs’ departure or disciplinary actions involving other personnel.
+
+Another Bloomberg staffer, an editor, posted on X on Thursday that it was one of the “greatest honors of my career” to help break the news of Gershkovich’s release. The editor later deleted the post, and the published story was updated to note that the prisoners had not yet been released.
 
 “An earlier version of this story was corrected to reflect that the Americans have not been released yet,” an editors’ note added to the story at 8:59 a.m. ET stated.
+
+Micklethwait said he had personally written letters to apologize to each of the prisoners and that he “immediately” apologized on Thursday to Wall Street Journal editor-in-chief Emma Tucker.
 
 News organizations, including CNN, had agreed to hold on to news of the prisoners’ release so as not to endanger the process. According to a person familiar with The Wall Street Journal’s decision-making, the newspaper did not intend to publish a story on Gershkovich’s release until he was seen walking free during a handover at Turkey’s Ankara airport. Most news organization did not publish the news until later that morning.
 
