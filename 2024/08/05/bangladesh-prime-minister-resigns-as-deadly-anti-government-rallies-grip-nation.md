@@ -1,6 +1,6 @@
 # Bangladesh prime minister resigns as deadly anti-government rallies grip nation
 
-Published :`2024-08-05 13:36:24`
+Published :`2024-08-05 14:13:32`
 
 ---
 
@@ -16,7 +16,7 @@ At least 91 people were killed and hundreds injured on Sunday in clashes betwee
 
 The death toll on Sunday, which included 13 police officers, was the highest for a single day from any protests in the country’s recent history. The figure surpassed the 67 deaths reported on July 19, when students took to the streets against the quotas, Reuters reported. At least 32 children were killed during protests last month, UNICEF said on Friday.
 
-The widespread unrest prompted the government to impose an indefinite nationwide curfew over the weekend. Meanwhile, human rights groups accused authorities of using excessive force against protesters, a charge the government denies.
+The widespread unrest – which also rocked the cities of Rajshahi, Barisal and Chittagong among others – prompted the government to impose an indefinite nationwide curfew over the weekend. Meanwhile, human rights groups accused authorities of using excessive force against protesters, a charge the government denies.
 
 The military will form an interim government in the wake of Hasina’s resignation, according to the army chief, who called on students “to maintain peace and help us.”
 

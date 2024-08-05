@@ -1,6 +1,6 @@
 # United Airlines says flight attendant in Terrell Davis incident is no longer employed and NFL legend’s ‘no fly’ ban is lifted
 
-Published :`2024-08-05 13:36:27`
+Published :`2024-08-05 14:13:38`
 
 ---
 
