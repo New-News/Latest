@@ -1,6 +1,6 @@
 # Scam victims on Zelle rarely get their money back. A new bill could fix that
 
-Published :`2024-08-05 06:42:03`
+Published :`2024-08-05 07:15:08`
 
 ---
 

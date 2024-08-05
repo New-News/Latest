@@ -1,6 +1,6 @@
 # Anti-Netanyahu protests erupt in Israel over delayed hostage deal
 
-Published :`2024-08-05 06:41:56`
+Published :`2024-08-05 07:15:02`
 
 ---
 
