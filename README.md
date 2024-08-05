@@ -1,10 +1,14 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-05 02:24:51`
+#### Latest Update : `2024-08-05 02:49:22`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Rioters attack hotels used to house asylum seekers amid worst UK disorder in years](https://new-news.github.io/Latest/2024/08/05/rioters-attack-hotels-used-to-house-asylum-seekers-amid-worst-uk-disorder-in-years 'Rioters attack hotels used to house asylum seekers amid worst UK disorder in years')
+
+- [Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me](https://new-news.github.io/Latest/2024/08/05/opinion-gaza-needs-trained-doctors-israel-is-blocking-palestinian-physicians-like-me 'Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me')
 
 - [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/05/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
@@ -24,8 +28,6 @@
 
 - [RFK Jr. says he placed a dead bear cub in Central Park 10 years ago](https://new-news.github.io/Latest/2024/08/05/rfk-jr-says-he-placed-a-dead-bear-cub-in-central-park-10-years-ago 'RFK Jr. says he placed a dead bear cub in Central Park 10 years ago')
 
-- [Rioters attack hotels used to house asylum seekers amid worst UK disorder in years](https://new-news.github.io/Latest/2024/08/05/rioters-attack-hotels-used-to-house-asylum-seekers-amid-worst-uk-disorder-in-years 'Rioters attack hotels used to house asylum seekers amid worst UK disorder in years')
-
 - [Man who stole Jackie Robinson statue from Kansas youth field gets 18 months for theft](https://new-news.github.io/Latest/2024/08/05/man-who-stole-jackie-robinson-statue-from-kansas-youth-field-gets-18-months-for-theft 'Man who stole Jackie Robinson statue from Kansas youth field gets 18 months for theft')
 
 - [Opinion: Why there is no such thing as a ‘natural’ disaster](https://new-news.github.io/Latest/2024/08/05/opinion-why-there-is-no-such-thing-as-a-natural-disaster 'Opinion: Why there is no such thing as a ‘natural’ disaster')
@@ -35,8 +37,6 @@
 - [At least 30 killed in Israeli strike on two Gaza school shelters: Palestinian Civil Defense](https://new-news.github.io/Latest/2024/08/05/at-least-30-killed-in-israeli-strike-on-two-gaza-school-shelters-palestinian-civil-defense 'At least 30 killed in Israeli strike on two Gaza school shelters: Palestinian Civil Defense')
 
 - [LAPD releases photos of suspects involved in fatal shooting of former ‘General Hospital’ actor Johnny Wactor](https://new-news.github.io/Latest/2024/08/05/lapd-releases-photos-of-suspects-involved-in-fatal-shooting-of-former-general-hospital-actor-johnny-wactor 'LAPD releases photos of suspects involved in fatal shooting of former ‘General Hospital’ actor Johnny Wactor')
-
-- [Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me](https://new-news.github.io/Latest/2024/08/05/opinion-gaza-needs-trained-doctors-israel-is-blocking-palestinian-physicians-like-me 'Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me')
 
 - [Customs officers in Arizona seize largest amount of fentanyl pills in agency’s history](https://new-news.github.io/Latest/2024/08/05/customs-officers-in-arizona-seize-largest-amount-of-fentanyl-pills-in-agency-s-history 'Customs officers in Arizona seize largest amount of fentanyl pills in agency’s history')
 
