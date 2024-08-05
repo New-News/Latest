@@ -1,6 +1,6 @@
 # Israelis fear for hostages as Netanyahu celebrates ‘crushing blows’ against enemies
 
-Published :`2024-08-05 09:16:22`
+Published :`2024-08-05 09:35:43`
 
 ---
 
