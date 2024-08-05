@@ -1,6 +1,6 @@
 # A critical system of Atlantic Ocean currents could collapse as early as the 2030s, new research suggests
 
-Published :`2024-08-05 16:18:29`
+Published :`2024-08-05 16:40:34`
 
 ---
 
