@@ -1,6 +1,6 @@
 # Justice Thomas accepted previously undisclosed private jet flight to New Zealand, Senate Democrat says
 
-Published :`2024-08-05 19:14:31`
+Published :`2024-08-05 19:36:08`
 
 ---
 
@@ -26,11 +26,15 @@ Thomas did not respond to a request for comment.
 
 President Joe Biden has made structural changes at the Supreme Court an issue during the waning months of his presidency. Biden has proposed term limits for Supreme Court justices and also an enforceable code of conduct.
 
+White House spokesperson Andrew Bates on Monday said “today’s news strengthens the case” Biden made for reforms. “The most powerful court in the United States shouldn’t be subject to the lowest ethical standards, and conflicts of interest on the Supreme Court cannot go unchecked,” Bates said.
+
 Thomas has come under fire for his failure to include such trips on financial disclosure forms the justices release each year, though he and his defenders argue that he followed the court’s disclosure rules as they were understood at the time. Last year, the federal judiciary’s policy-making body said that travel on private planes should be reported by the justices – closing a loophole that Thomas said had exempted him from reporting the “personal hospitality” he had received from friends.
 
 Thomas has previously said that he was advised at the time that he was not required to disclose the hospitality he received from the Crows, but that he intended to follow the recent changes to the guidance going forward. In June, Thomas revised his disclosure form to formally disclose a 2019 trip to Indonesia paid for by Crow, a vacation that was at the center of the controversy over his travel.
 
 In response to criticism, the Supreme Court adopted a code of conduct last year for the first time in its history. But the document relies on the justices themselves to police their ethics and that arrangement has drawn sharp criticism from Democrats and ethics experts.
+
+This story has been updated with additional details.
 
 ---
 

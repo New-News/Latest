@@ -1,18 +1,20 @@
 # Harris’ whirlwind search for running mate enters final hours as she prepares to take new Democratic ticket on the road
 
-Published :`2024-08-05 19:14:31`
+Published :`2024-08-05 19:36:08`
 
 ---
 
 Vice President Kamala Harris is making the biggest decision of her two-week-old presidential campaign as she chooses a running mate and prepares to introduce the new Democratic ticket to voters in several key battleground states this week.
 
-Harris had not made a decision as of Monday morning, a source familiar with the process told CNN, after a day of interviews with finalists on Sunday. The campaign plans to officially announce the choice through an online message to supporters before a rally in Philadelphia on Tuesday, where she’s expected to make her first appearance with her pick. Harris hopes to keep it under wraps “until as close to then as possible,” a person familiar with the search told CNN.
+Harris is focusing on Pennsylvania Gov. Josh Shapiro and Minnesota Gov. Tim Walz, multiple sources familiar with the matter told CNN, although the process, these sources cautioned, is still fluid and none of the finalists can be ruled out until Harris makes her decision. Arizona Sen. Mark Kelly remained in the running as of Monday afternoon, a source told CNN.
 
 The selection will kick off a new phase of the campaign, as Harris seeks to maintain the momentum that has propelled her bid and former President Donald Trump struggles to adapt to running against an entirely new candidate.
 
 The decision is expected to be made later Monday, and once it is made, the vice president would inform a small team of top advisers and her pick. Sources cautioned, however, that the decision is ultimately Harris’ to make – and if she needed more time, the final decision could slide into Tuesday.
 
-The whirlwind vice presidential search entered its final hours Sunday after Harris had interviewed three final contenders — Gov. Tim Walz of Minnesota, Gov. Josh Shapiro of Pennsylvania and Sen. Mark Kelly of Arizona — and weighed her choice with advisers out of public view for three straight days.
+The campaign plans to officially announce the choice through an online message to supporters before a rally in Philadelphia on Tuesday, where she’s expected to make her first appearance with her pick. Harris hopes to keep it under wraps “until as close to then as possible,” a person familiar with the search told CNN.
+
+The whirlwind vice presidential search entered its final hours Sunday after Harris had interviewed three final contenders — Walz, Shapiro and Kelly — and weighed her choice with advisers out of public view for three straight days.
 
 An extraordinary campaign for and against the candidates broke out across the spectrum of the Democratic Party last week and over the weekend. Different stakeholders have made their own arguments about who would be most electable against Trump — and who could help Harris sustain the streak of positive news her campaign has been riding for the past two weeks, while the former president has been put on the defensive over his own vice-presidential pick, Ohio Sen. JD Vance.
 

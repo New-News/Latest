@@ -1,6 +1,6 @@
 # Google loses massive antitrust lawsuit over its search dominance
 
-Published :`2024-08-05 19:14:31`
+Published :`2024-08-05 19:36:07`
 
 ---
 
@@ -16,11 +16,15 @@ Now, said Mehta, that powerful position has led to anticompetitive behavior that
 
 Specifically, Google’s exclusive deals with Apple and other key players in the mobile ecosystem were anticompetitive, Mehta said. Google has also charged high prices in search advertising that reflect its monopoly power in search, he added.
 
+Those contracts have long meant that when users want to find information, Google is generally the easiest and quickest platform to go to, which in turn has fueled Google’s massive online advertising business.
+
 While the court did not find that Google has a monopoly in search ads, the broader strokes of the opinion represent the first major decision in a string of US-government led competition lawsuits targeting Big Tech. This case in particular has been described as the biggest tech antitrust case since the US government’s antitrust showdown with Microsoft at the turn of the millennium.
 
 Google didn’t immediately respond to a request for comment.
 
-It is not yet clear what penalties Google may face as a result of Monday’s decision, which was limited to establishing Google’s liability. A separate proceeding is likely to follow over potential consequences for the tech giant.
+Mehta’s decision is expected to trigger a separate proceeding to determine what penalties Google will face – and the company is also likely to file an appeal. But the ruling could ultimately upend how Google makes its search engine available to users, by impacting its ability to make the pricey deals with device makers and online service providers that were at the heart of the case.
+
+At the time the lawsuit was first filed, US antitrust officials also did not rule out the possibility of a Google breakup, warning that Google’s behavior could threaten future innovation or the rise of a Google successor.
 
 This is a developing story and will be updated.
 
