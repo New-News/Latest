@@ -1,6 +1,6 @@
 # Bangladesh prime minister resigns as deadly anti-government rallies grip nation
 
-Published :`2024-08-05 15:36:08`
+Published :`2024-08-05 16:18:25`
 
 ---
 
@@ -58,7 +58,7 @@ Details and videos are scant as Bangladesh is in the midst of a “near-total 
 
 Video posted on social media and verified by CNN showed security forces launching live rounds into the air near protesters on the N1 highway in Dhaka.
 
-Protesters in Dhaka told CNN that the university campus was surrounded by armed forces. The neighborhoods of Nilkhet, Katabon, and Shahbagh were blocked and military armored personnel carriers took positions in front of the Intercontinental Hotel.
+Protesters in Dhaka told CNN that the university campus had been surrounded by armed forces.
 
 This is a developing story and will be updated.
 

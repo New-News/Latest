@@ -1,6 +1,6 @@
 # Trump wants to stop taxing Social Security benefits. Here’s what that could mean for seniors
 
-Published :`2024-08-05 15:36:10`
+Published :`2024-08-05 16:18:25`
 
 ---
 
@@ -14,6 +14,8 @@ While lifting the levy would benefit many older Americans for a little while, th
 
 In an interview that aired Sunday, Trump reiterated his promise to eliminate taxes on Social Security benefits but did not specify how he would pay for the proposal. When Fox News’ Maria Bartiromo asked how he would offset the lost revenue, Trump said he would focus on eliminating “waste” and “fat” in the federal government – but did not say what he would cut.
 
+The highest-income households would be the biggest winners in dollar terms, but middle class and upper-middle income taxpayers would get the largest boost in their after-tax income, according to a Tax Policy Center analysis. Lower-income households would get little to no benefit.
+
 Social Security benefits began being taxed in 1984 as part of the last major federal overhaul to shore up the program’s finances. Any changes to tax law would need to go through Congress.
 
 ### How Social Security benefits are taxed
@@ -23,6 +25,12 @@ Currently, seniors don’t owe taxes on their benefits if they earn less than $2
 Above that threshold, they may have to pay income tax on up to 50% of their benefits, with the revenue going to the Social Security retirement trust fund. Those with combined incomes of at least $34,000 per individual, or $44,000 per couple, could pay income tax on up to an additional 35% of their benefits, with those funds going to Medicare’s hospital insurance trust fund, known as Medicare Part A.
 
 The tax on Social Security benefits is not a huge revenue generator for the Social Security trust fund, though its contribution has been growing since monthly benefits generally increase each year – particularly in recent years when inflation has been high. But the threshold is not indexed for inflation. This year, the levy is expected to raise about $94 billion, according to the committee.
+
+The top 0.1% of households, with incomes of nearly $5 million or more, would get an average tax cut of almost $2,500 next year, though that wouldn’t make a dent in their after-tax income, according to the Tax Policy Center. At the other end of the income ladder, those earning less than roughly $33,000 would see no change and those with incomes between that amount and $63,000 would get an average tax cut of around $90, or 0.2% of their after-tax income.
+
+But those making between roughly $63,000 and $113,000 would see an average boost in after tax-income of 0.8%, or $630, while those earning between $113,000 and about $206,000 would see an average increase of 0.9%, or roughly $1,200.
+
+### Increasing the deficit
 
 Eliminating the tax would increase federal deficits by between $1.6 trillion and $1.8 trillion through 2035, a committee analysis found. The Social Security retirement trust fund would be depleted more than a year earlier, and Medicare’s hospital insurance trust fund, which covers in-patient hospital care, hospice care, short-term skilled nursing facility services and home health services following hospitalizations, would run dry six years earlier.
 
@@ -48,7 +56,7 @@ And it would have no impact on more than a third of tipped workers because their
 
 Plus, the proposal could reduce federal revenue by at least $107 billion because more businesses and employees may shift from wages to tips, according to the Tax Foundation.
 
-This story has been updated Sunday with additional developments.﻿
+This story has been updated with additional developments.﻿
 
 ---
 

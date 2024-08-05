@@ -1,18 +1,20 @@
 # Harris’ whirlwind search for running mate enters final hours as she prepares to take new Democratic ticket on the road
 
-Published :`2024-08-05 15:36:09`
+Published :`2024-08-05 16:18:25`
 
 ---
 
 Vice President Kamala Harris is making the biggest decision of her two-week-old presidential campaign as she chooses a running mate and prepares to introduce the new Democratic ticket to voters in several key battleground states this week.
 
-It was unclear late Sunday after a day of interviews with finalists whether she had made a final decision, people familiar with the search said. The campaign plans to officially announce the choice through an online message to supporters before a rally in Philadelphia on Tuesday, where she’s expected to make her first appearance with her pick. Harris hopes to keep it under wraps “until as close to then as possible,” a person familiar with the search told CNN.
+Harris had not made a decision as of Monday morning, a source familiar with the process told CNN, after a day of interviews with finalists on Sunday. The campaign plans to officially announce the choice through an online message to supporters before a rally in Philadelphia on Tuesday, where she’s expected to make her first appearance with her pick. Harris hopes to keep it under wraps “until as close to then as possible,” a person familiar with the search told CNN.
 
 The selection will kick off a new phase of the campaign, as Harris seeks to maintain the momentum that has propelled her bid and former President Donald Trump struggles to adapt to running against an entirely new candidate.
 
+The decision is expected to be made later Monday, and once it is made, the vice president would inform a small team of top advisers and her pick. Sources cautioned, however, that the decision is ultimately Harris’ to make – and if she needed more time, the final decision could slide into Tuesday.
+
 The whirlwind vice presidential search entered its final hours Sunday after Harris had interviewed three final contenders — Gov. Tim Walz of Minnesota, Gov. Josh Shapiro of Pennsylvania and Sen. Mark Kelly of Arizona — and weighed her choice with advisers out of public view for three straight days.
 
-An extraordinary campaign for and against the candidates broke out across the spectrum of the Democratic Party. Different stakeholders have made their own arguments about who would be most electable against Trump — and who could help Harris sustain the streak of positive news her campaign has been riding for the past two weeks, while the former president has been put on the defensive over his own vice-presidential pick, Ohio Sen. JD Vance.
+An extraordinary campaign for and against the candidates broke out across the spectrum of the Democratic Party last week and over the weekend. Different stakeholders have made their own arguments about who would be most electable against Trump — and who could help Harris sustain the streak of positive news her campaign has been riding for the past two weeks, while the former president has been put on the defensive over his own vice-presidential pick, Ohio Sen. JD Vance.
 
 Since President Joe Biden ended his reelection bid last month and endorsed Harris, the vice president has locked up the support of the Democratic Party and improved on the president’s polling against Trump. A new CBS News/YouGov poll released Sunday, for example, found no clear leader between Harris and Trump among likely voters nationally — whereas Biden had been down 5 points in previous CBS News/YouGov polling. A CNN average of four recent polls also found a close matchup between the two, with Trump averaging the support of 49% and Harris averaging 47%.
 
@@ -61,6 +63,8 @@ After two weeks of sowing doubt over whether he would attend, Trump said Saturda
 Harris’ campaign has said she will attend the ABC News event, and taunted the former president for backing out of that event.
 
 “It’s interesting how ‘any time, any place’ becomes ‘one specific time, one specific safe space,’” Harris wrote on X Saturday. “I’ll be there on September 10th, like he agreed to. I hope to see him there.”
+
+This story has been updated with additional reporting.
 
 ---
 

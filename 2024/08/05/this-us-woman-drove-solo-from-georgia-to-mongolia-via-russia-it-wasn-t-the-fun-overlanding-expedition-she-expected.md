@@ -1,6 +1,6 @@
 # This US woman drove solo from Georgia to Mongolia via Russia. It wasn’t the fun overlanding expedition she expected
 
-Published :`2024-08-05 15:36:08`
+Published :`2024-08-05 16:18:25`
 
 ---
 

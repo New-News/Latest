@@ -1,14 +1,14 @@
 # Bloomberg News disciplines staffers after breaking embargo on US-Russia prisoner swap
 
-Published :`2024-08-05 15:36:08`
+Published :`2024-08-05 16:18:25`
 
 ---
 
-Bloomberg News has taken disciplinary action against a “number” of its staffers after the outlet broke an embargo last week on news of the release of several American prisoners held by Russia, including Wall Street Journal reporter Evan Gershkovich.
+Bloomberg News took disciplinary action Monday against a “number” of its staffers after the outlet broke an embargo last week on news of the release of several American prisoners held by Russia, including Wall Street Journal reporter Evan Gershkovich.
 
-In a memo sent to staff on Monday obtained by CNN, Bloomberg editor-in-chief John Micklethwait wrote that a story reporting Gershkovich’s release, which was published at 7:41 a.m. ET Thursday, was posted “prematurely.”
+In a memo sent to the outlet’s staff on Monday and obtained by CNN, Bloomberg editor-in-chief John Micklethwait wrote that an initial story, published at 7:41 a.m. ET Thursday, reporting Gershkovich had been released as part of a historic US-Russia prisoner exchange was posted “prematurely.”
 
-Bloomberg’s reporting “could have endangered the negotiated swap that set them fee,” Micklethwait wrote. “Even if our story mercifully ended up making no difference, it was a clear violation of the editorial standards which have made this newsroom so trusted around the world.”
+Bloomberg’s reporting “could have endangered the negotiated swap that set them free,” Micklethwait wrote. “Even if our story mercifully ended up making no difference, it was a clear violation of the editorial standards which have made this newsroom so trusted around the world.”
 
 Bloomberg’s Standards editor conducted a “full investigation,” Micklethwait added, and as a result the outlet was taking “disciplinary action against a number of those involved” and will be reviewing their process to make sure such “failures like this don’t happen again.”
 
@@ -23,6 +23,10 @@ News organizations, including CNN, had agreed to hold on to news of the prisoner
 Ahead of the prisoner swap, the White House had briefed reporters from multiple news organizations around 8 a.m. ET on the activity, with an embargo time on the news of later that day, according to a person familiar with the matter.
 
 After Bloomberg’s story was posted online, the White House called the outlet asking for the story to be removed as Gershkovich and other prisoners had not yet been freed, according to this person. Bloomberg declined to take the story down, which frustrated the White House.
+
+The historic prisoner swap, which also included former US Marine Paul Whelan and RFE/RL journalist Alsu Kurmasheva, was the result of years of complicated behind-the-scenes negotiations involving the US, Russia, Belarus and Germany.
+
+A total of eight people, including convicted Russian assassin Vadim Krasikov, were swapped back to Russia in exchange for the release of 16 people who were held in Russian detention, including four Americans.
 
 ---
 
