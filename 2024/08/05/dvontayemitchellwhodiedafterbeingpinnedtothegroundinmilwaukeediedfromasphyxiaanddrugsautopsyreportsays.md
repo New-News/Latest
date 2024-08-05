@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell, who died after being pinned to the ground in Milwaukee, died from asphyxia and drugs, autopsy report says
 
-Published :`2024-08-05 01:10:43`
+Published :`2024-08-05 02:24:48`
 
 ---
 

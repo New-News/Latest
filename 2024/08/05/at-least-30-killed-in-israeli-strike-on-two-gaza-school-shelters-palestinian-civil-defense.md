@@ -1,6 +1,6 @@
 # At least 30 killed in Israeli strike on two Gaza school shelters: Palestinian Civil Defense
 
-Published :`2024-08-05 01:10:39`
+Published :`2024-08-05 02:24:47`
 
 ---
 

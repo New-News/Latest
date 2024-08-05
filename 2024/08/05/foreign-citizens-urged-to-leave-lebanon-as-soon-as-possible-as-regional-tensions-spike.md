@@ -1,6 +1,6 @@
 # Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike
 
-Published :`2024-08-05 01:10:39`
+Published :`2024-08-05 02:24:46`
 
 ---
 
@@ -33,6 +33,10 @@ In a further sign of the region bracing for an Iranian retaliation, the US on Sa
 White House deputy national security adviser Jon Finer said Sunday that the US and Israel are preparing for “every possibility” after the Pentagon sent the additional military assets.
 
 “We and our ally Israel are preparing for every possibility. And that’s the vein in which the announcements made by the Pentagon took place. All of those posture adjustments are to prepare for a potential response against Israel from Iran or any other adversary,” Finer told CNN’s Dana Bash on “State of the Union.”
+
+And on Sunday, US State Secretary Antony Blinken spoke with the foreign ministers from G7 nations to discuss the “urgent need for de-escalation in the Middle East,” according to a State Department spokesperson.
+
+The spokesperson said Blinken and the foreign ministers discussed ongoing efforts to achieve a ceasefire that would secure hostage releases and the entry of humanitarian aid to Gaza. They also reiterated their commitment to Israel’s security and urged “maximum restraint from all parties” to keep the conflict from escalating.
 
 Israelis have been stocking up on supplies, while a file from the Jerusalem municipality advised residents to “clean and prepare their bomb shelters,” warning they must be able to reach shelters in 90 seconds.
 
