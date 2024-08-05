@@ -1,18 +1,18 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-05 04:18:28`
+#### Latest Update : `2024-08-05 04:38:24`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/05/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [Harris’ whirlwind search for running mate enters final hours as she prepares to take new Democratic ticket on the road](https://new-news.github.io/Latest/2024/08/05/harris- whirlwind-search-for-running-mate-enters-final-hours-as-she-prepares-to-take-new-democratic-ticket-on-the-road 'Harris’ whirlwind search for running mate enters final hours as she prepares to take new Democratic ticket on the road')
 
 - [Debby strengthens to a Category 1 hurricane ahead of Florida landfall as Southeast braces for potentially historic rain](https://new-news.github.io/Latest/2024/08/05/debby-strengthens-to-a-category-1-hurricane-ahead-of-florida-landfall-as-southeast-braces-for-potentially-historic-rain 'Debby strengthens to a Category 1 hurricane ahead of Florida landfall as Southeast braces for potentially historic rain')
 
 - [North Korea claims it has sent 250 new missile launchers toward the South Korean border](https://new-news.github.io/Latest/2024/08/05/north-korea-claims-it-has-sent-250-new-missile-launchers-toward-the-south-korean-border 'North Korea claims it has sent 250 new missile launchers toward the South Korean border')
-
-- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/05/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://new-news.github.io/Latest/2024/08/05/charger-hogs-are-ruining-the-electric-vehicle-experience-one-company-is-clamping-down-on-bad-manners '‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners')
 

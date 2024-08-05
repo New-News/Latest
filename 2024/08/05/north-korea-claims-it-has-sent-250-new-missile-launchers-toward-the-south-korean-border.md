@@ -1,10 +1,10 @@
 # North Korea claims it has sent 250 new missile launchers toward the South Korean border
 
-Published :`2024-08-05 04:18:23`
+Published :`2024-08-05 04:38:16`
 
 ---
 
-North Korea claims it has sent 250 new tactical ballistic missile launchers toward its border with South Korea, in the latest bellicose declaration by leader Kim Jong Un against its neighbor.
+North Korea claims it is sending 250 new tactical ballistic missile launchers toward its border with South Korea, in the latest bellicose declaration by leader Kim Jong Un against its neighbor.
 
 Photographs published by the North Korean state newspaper Rodong Sinmun showed what appears to be vehicle-based missile launchers, with dozens of large green military trucks lined up in neat rows before Kim.
 

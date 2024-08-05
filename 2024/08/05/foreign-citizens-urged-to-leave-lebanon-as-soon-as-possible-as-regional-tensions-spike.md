@@ -1,14 +1,16 @@
 # Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike
 
-Published :`2024-08-05 04:18:23`
+Published :`2024-08-05 04:38:16`
 
 ---
 
 Several countries including the United States, the United Kingdom and France have urged their citizens to leave Lebanon as heightened tensions in the region spark fears of a widening Middle East conflict.
 
-The US Embassy in Lebanon called on citizens to book “any ticket available to them.” Britain’s Foreign Secretary David Lammy said his message for British citizens was, “leave now.”
+The warnings come after the US said it was sending additional warships to the region and as Washington’s embassy in Lebanon called on citizens to book “any ticket available to them.” Britain’s Foreign Secretary David Lammy said his message for British citizens was, “leave now.”
 
 The region is on high alert after Iran vowed revenge on Israel, which it blames for the assassination of Hamas’ political leader Ismail Haniyeh in the capital Tehran earlier this week. Haniyeh’s death came just hours after an Israeli strike on the Lebanese capital Beirut killed Hezbollah’s most senior military commander, Fu’ad Shukr.
+
+In the latest flurry of diplomatic activity, Iran’s state news agency (IRNA) reported that the Foreign Minister of Jordan was making a rare visit to the Iranian capital Tehran on Sunday, to “meet and exchange views with Iranian officials regarding bilateral, regional and international issues.”
 
 The developments have raised concerns that Israel’s war in Gaza, which is now well into its ninth month, could spill over into a full-blown Middle Eastern conflict.
 
@@ -25,8 +27,6 @@ Many countries already had travel warnings in place but have issued fresh advice
 France told its citizens to make arrangements to leave Lebanon “as soon as possible” in a statement from the Ministry for Europe and Foreign affairs on Sunday.
 
 Jordan issued a similar warning to its citizens. The country was involved in shooting down Iranian drones when Iran launched unprecedented retaliatory strikes in April for a suspected Israeli attack on a diplomatic complex.
-
-Iran’s state news agency (IRNA) reported that the Foreign Minister of Jordan will make a rare visit to the Iranian capital Tehran on Sunday, to “meet and exchange views with Iranian officials regarding bilateral, regional and international issues.”
 
 Turkey meanwhile updated its travel advisory for Lebanon, urging those who do not need to stay in the country to leave while commercial flights remain active.
 
