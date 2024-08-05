@@ -1,6 +1,6 @@
 # Léon Marchand is carrying on a long tradition of athletes from host nations becoming Olympic greats
 
-Published :`2024-08-05 18:21:10`
+Published :`2024-08-05 18:40:30`
 
 ---
 

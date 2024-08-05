@@ -1,6 +1,6 @@
 # How female politicians’ first names can work for and against them, according to science
 
-Published :`2024-08-05 18:21:10`
+Published :`2024-08-05 18:40:21`
 
 ---
 
@@ -106,7 +106,7 @@ At the end of the day, it’s about respect, Harris told People magazine in 20
 
 “It’s about respect for all that comes with a name. … Respect the names that people are given, and use those names with respect.”
 
-CNN’s Jacqueline Howard contributed to this report.
+CNN Editorial Research and CNN’s Jacqueline Howard contributed to this report.
 
 ---
 
