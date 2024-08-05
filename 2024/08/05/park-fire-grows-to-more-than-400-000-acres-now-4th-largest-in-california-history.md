@@ -1,6 +1,6 @@
 # Park Fire grows to more than 400,000 acres, now 4th-largest in California history
 
-Published :`2024-08-05 13:18:33`
+Published :`2024-08-05 13:36:26`
 
 ---
 
