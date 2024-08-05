@@ -1,6 +1,6 @@
 # Global stock rout intensifies with Japan’s Nikkei and other Asian markets plunging
 
-Published :`2024-08-05 05:37:44`
+Published :`2024-08-05 06:22:11`
 
 ---
 

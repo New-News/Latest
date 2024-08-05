@@ -1,6 +1,6 @@
 # She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence
 
-Published :`2024-08-05 05:37:46`
+Published :`2024-08-05 06:22:11`
 
 ---
 
@@ -104,7 +104,13 @@ Without a visa, after serving her sentence, Jan could be forced into immigration
 
 During Jan’s sentencing hearing, Judge Dalziel cited a letter of support from the Goulburn Valley Afghanistan Association that described her as “a quiet, kind and helpful woman.”
 
-However, Hassani says Jan has lost the respect of the community she tried so hard to please.
+Abdullah Naveed, from the Ethnic Council of Shepparton and District, says the local community respects the court’s decision, but pities Jan because she has already lost so much. They didn’t expect her to go to prison, he said.
+
+“All the time she’s feeling sorry, she’s crying, she’s praying, she’s sitting in the mosque and crying, requesting forgiveness for what has happened,” he said.
+
+“Everyone knows that she’s not in a good situation after her daughter had been killed.”
+
+Hassani, the expert on forced marriage, said Jan had lost the respect of the community she tried so hard to please.
 
 “It has really damaged her reputation, her respect, and she has literally no place in the community,” she said.
 

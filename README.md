@@ -1,10 +1,14 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-05 05:37:50`
+#### Latest Update : `2024-08-05 06:22:14`
 
 ## Latest News Grabbing 
 
 ---
+
+- [She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence](https://new-news.github.io/Latest/2024/08/05/she-wanted-the-world-for-her-daughter-instead-she-got-a-landmark-prison-sentence 'She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence')
+
+- [Dozens arrested in violent UK protests over Southport stabbings](https://new-news.github.io/Latest/2024/08/05/dozens-arrested-in-violent-uk-protests-over-southport-stabbings 'Dozens arrested in violent UK protests over Southport stabbings')
 
 - [Global stock rout intensifies with Japan’s Nikkei and other Asian markets plunging](https://new-news.github.io/Latest/2024/08/05/global-stock-rout-intensifies-with-japan-s-nikkei-and-other-asian-markets-plunging 'Global stock rout intensifies with Japan’s Nikkei and other Asian markets plunging')
 
@@ -84,8 +88,6 @@
 
 - [Russian submarine sunk in Crimean port, Ukraine claims](https://new-news.github.io/Latest/2024/08/05/russian-submarine-sunk-in-crimean-port-ukraine-claims 'Russian submarine sunk in Crimean port, Ukraine claims')
 
-- [Dozens arrested in violent UK protests over Southport stabbings](https://new-news.github.io/Latest/2024/08/05/dozens-arrested-in-violent-uk-protests-over-southport-stabbings 'Dozens arrested in violent UK protests over Southport stabbings')
-
 - [Hearing on how to proceed with election interference case against Trump set for August 16](https://new-news.github.io/Latest/2024/08/05/hearing-on-how-to-proceed-with-election-interference-case-against-trump-set-for-august-16 'Hearing on how to proceed with election interference case against Trump set for August 16')
 
 - [Closing in on a choice of running mate, Harris will meet with finalists Sunday](https://new-news.github.io/Latest/2024/08/05/closing-in-on-a-choice-of-running-mate-harris-will-meet-with-finalists-sunday 'Closing in on a choice of running mate, Harris will meet with finalists Sunday')
@@ -95,8 +97,6 @@
 - [Judge overseeing election subversion case against Trump in DC rejects another effort to dismiss case](https://new-news.github.io/Latest/2024/08/05/judge-overseeing-election-subversion-case-against-trump-in-dc-rejects-another-effort-to-dismiss-case 'Judge overseeing election subversion case against Trump in DC rejects another effort to dismiss case')
 
 - [Emhoff acknowledges affair during first marriage after tabloid report](https://new-news.github.io/Latest/2024/08/05/emhoff-acknowledges-affair-during-first-marriage-after-tabloid-report 'Emhoff acknowledges affair during first marriage after tabloid report')
-
-- [She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence](https://new-news.github.io/Latest/2024/08/05/she-wanted-the-world-for-her-daughter-instead-she-got-a-landmark-prison-sentence 'She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence')
 
 - [Deputy’s fatal shooting of Sonya Massey highlights risky practice of hiring America’s legion of ‘wandering officers’](https://new-news.github.io/Latest/2024/08/05/deputy-s-fatal-shooting-of-sonya-massey-highlights-risky-practice-of-hiring-america-s-legion-of-wandering-officers 'Deputy’s fatal shooting of Sonya Massey highlights risky practice of hiring America’s legion of ‘wandering officers’')
 

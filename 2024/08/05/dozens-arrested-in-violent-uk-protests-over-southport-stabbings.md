@@ -1,6 +1,6 @@
 # Dozens arrested in violent UK protests over Southport stabbings
 
-Published :`2024-08-05 05:37:46`
+Published :`2024-08-05 06:22:11`
 
 ---
 
