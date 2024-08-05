@@ -1,6 +1,6 @@
 # Violent, far-right riots overran some UK cities this weekend. What happened, and what comes next?
 
-Published :`2024-08-05 16:40:27`
+Published :`2024-08-05 17:14:52`
 
 ---
 
@@ -30,7 +30,9 @@ In Tamworth, rioters threw projectiles, smashed windows and started fires, injur
 
 Violence also took place in Sunderland, Middlesbrough, Stoke-on-Trent and several more cities, mostly across the Midlands and north of England. The Home Office said Sunday that mosques in the United Kingdom were being offered “greater protection with new emergency security.”
 
-In all, more than 100 people were arrested over the weekend. Many more suspects have yet to be identified, and authorities have pledged to use facial recognition and other technologies to track them down.
+In all, more than 370 people were arrested following the weekend’s violence and the number was expected to rise “as forces continue to identify those involved and continue to apprehend those responsible,” the National Police Chiefs’ Council (NPCC), the UK’s national law enforcement body, said.
+
+Many more suspects have yet to be identified, and authorities have pledged to use facial recognition and other technologies to track them down.
 
 “People in this country have a right to be safe and yet, we’ve seen Muslim communities targeted, attacks on mosques, other minority communities singled out, Nazi salutes in the street, attacks on the police, wanton violence alongside racist rhetoric,” Starmer said at Downing Street.
 
