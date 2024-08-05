@@ -1,6 +1,6 @@
 # Biden, Harris meet with national security team as US watches for Iranian retaliation
 
-Published :`2024-08-05 22:36:49`
+Published :`2024-08-05 23:16:32`
 
 ---
 
@@ -24,7 +24,7 @@ The extent of the United States’ further involvement in the war largely depend
 
 The destroyers, the USS Laboon and the USS Cole, are part of a number of assets US Central Command has placed strategically across the region amid fears that Iran could soon launch a major attack on Israel for the second time this year. US destroyers helped shoot down ballistic missiles and drones launched by Iran at Israel in April.
 
-Biden spoke with the Jordanian king Monday morning, where both leaders discussed efforts to “de-escalate regional tensions,” according to a White House readout. Biden and Vice President Kamala Harris also met with the administration’s national security team in the White House Situation Room later Monday afternoon.
+Biden spoke with the Jordanian king Monday morning, where both leaders discussed efforts to “de-escalate regional tensions,” according to a White House readout. Biden and Vice President Kamala Harris also met with the administration’s national security team later Monday afternoon in the White House Situation Room, where they “focused on the threats posed by Iran and its proxies to Israel and to U.S. servicemembers,” according to a readout of the meeting.
 
 The Jordanian king emphasized the need for de-escalation in the region while also warning of extremist settler violence against Palestinians.
 
