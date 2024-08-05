@@ -1,6 +1,6 @@
 # Republicans for Harris launches, aiming for Biden-like appeal to anti-Trump voters
 
-Published :`2024-08-05 12:30:32`
+Published :`2024-08-05 13:18:31`
 
 ---
 

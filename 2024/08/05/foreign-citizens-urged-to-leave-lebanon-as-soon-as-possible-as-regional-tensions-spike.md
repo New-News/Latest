@@ -1,6 +1,6 @@
 # Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike
 
-Published :`2024-08-05 12:30:30`
+Published :`2024-08-05 13:18:30`
 
 ---
 

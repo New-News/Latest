@@ -1,6 +1,6 @@
 # Iran claims Hamas leader killed by ‘short-range projectile,’ contradicting reports it was hidden bomb
 
-Published :`2024-08-05 12:30:33`
+Published :`2024-08-05 13:18:32`
 
 ---
 
