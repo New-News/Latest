@@ -1,6 +1,6 @@
 # These vision-impaired Olympic stars rely on a ‘sixth sense’ when they compete
 
-Published :`2024-08-05 18:40:22`
+Published :`2024-08-05 19:14:31`
 
 ---
 
@@ -8,17 +8,17 @@ During the men’s gymnastics pommel horse finals at Saturday’s Olympics, pomm
 
 He stuck the landing, feet squarely on the mat, capturing his second bronze medal of the Paris Games.
 
-Nedoroscik is not the only Olympic athlete with vision impairment excelling in their sport. Irish swimmer Daniel Wiffen ditched his glasses before clinching the gold in the 800m freestyle on Tuesday. Gymnast Rebeca Andrade of Brazil, who won gold in the vault individual finals during the 2020 Tokyo Games and took silver in Thursday’s individual all-around, has said she cannot see the apparatus that she is hurtling toward at full speed.
+Nedoroscik is not the only Olympic athlete with vision impairment who is excelling in their sport. Irish swimmer Daniel Wiffen ditched his glasses before clinching the gold in the 800m freestyle on Tuesday. Gymnast Rebeca Andrade of Brazil, who won gold in the vault individual finals during the 2020 Tokyo Games and silver in Thursday’s individual all-around, has said she cannot see the apparatus that she is hurtling toward at full speed.
 
-Earlier this week Nedoroscik also helped the US men’s team end a 16-year team medal drought and win bronze in Monday’s finals. After his routine he admitted to reporters that although he couldn’t see when he mounted the horse, he didn’t need to.
+Last, week Nedoroscik also helped the US men’s team end a 16-year team medal drought and win bronze in the finals. After his routine, he admitted to reporters that although he couldn’t see when he mounted the horse, he didn’t need to.
 
-“The thing about pommel horse is like you’re using your hands the whole time,” he told CNN’s Coy Wire. “You’re feeling how your center of mass sort of swivels around. I don’t see. I don’t need to see to see what I’m doing … I’m just doing it by how it feels.”
+“The thing about pommel horse is like you’re using your hands the whole time,” he told CNN’s Coy Wire. “You’re feeling how your center of mass sort of swivels around. I don’t see. I don’t need to see to see what I’m doing. … I’m just doing it by how it feels.”
 
 In a podcast released Friday, US national team soccer player Becky Sauerbrunn gave Nedoroscik a shoutout, sharing her experiences playing without corrective lenses and saying she “could tell who a person was by their running gait.”
 
-And Paralympians, such as US men’s goalball co-captain Tyler Merren, have been inspiring and captivating audiences for decades, achieving remarkable feats with partial or complete vision loss. Although Merren has retinitis pigmentosa, a rare eye condition that, over time, has left him with almost completely blindness, he told CNN he “doesn’t feel blind” when he is playing his sport.
+And Paralympians, such as US men’s goalball co-captain Tyler Merren, have been inspiring and captivating audiences for decades, achieving remarkable feats with partial or complete vision loss. Merren has retinitis pigmentosa, a rare eye condition that, over time, has left him with almost completely blindness, but he told CNN he “doesn’t feel blind” when he is playing his sport.
 
-“I don’t think about (vision) when I’m on the court. The picture is so clear in my head of the spacing and where the ball is that it’s almost like Technicolor,” he said.
+“I don’t think about [vision] when I’m on the court. The picture is so clear in my head of the spacing and where the ball is that it’s almost like Technicolor,” he said.
 
 Although every sport and athlete is unique, experts say there is a specific brain science that helps athletes adapt to their visual impairment and remain at the top of their game, even when they may not be able to see it.
 
@@ -64,9 +64,9 @@ Strengthening these other senses is also a crucial component of executing a succ
 
 ### Lessons from goalball
 
-For Paralympians with near complete vision loss like Merren, tapping into the body’s other senses is especially critical, and comes with a learning curve, particularly in goalball.
+For Paralympians with near complete vision loss like Merren, tapping into the body’s other senses is especially critical and comes with a learning curve, particularly in goalball.
 
-Goalball was invented in 1946 to rehabilitate veterans who lost their sight serving in World War II. Combining elements of handball and soccer, the game involves throwing a ball into an opposing team’s guarded net to score points. The ball contains bells, and raised tape on the floor helps players use hearing and touch to locate the ball and their position on the court. Although all players must be legally blind- have less than 10 percent vision- to compete, everyone wears a blindfold to ensure fair competition, according to the International Paralympic Committee.
+Goalball was invented in 1946 to rehabilitate veterans who lost their sight serving in World War II. Combining elements of handball and soccer, the game involves throwing a ball into an opposing team’s guarded net to score points. The ball contains bells, and raised tape on the floor helps players use hearing and touch to locate the ball and their position on the court. Although all players must be legally blind – have less than 10% vision – to compete, everyone wears a blindfold to ensure fair competition, according to the International Paralympic Committee.
 
 “As we throw it back and forth, we track the sound of the ball on the floor,” Merren illustrated. “You can also hear the spacing of your players. As we walk around, we generally know where everybody is and use tactile markers to know where we are on the floor.”
 
@@ -80,11 +80,11 @@ Tapping into the “sixth sense,” communicating between teammates, planning, a
 
 Nedoroscik practices this visualization as well. The Olympic bronze medalist, deemed a “sleeper agent” by some, was seen closing his eyes and picturing his routine while waiting for his turn to compete in the team finals. He was also spotted on the sidelines, eyes closed, mentally walking through his pommel horse skills before stepping up to the compete during Olympic qualifications, a routine that helped secure his spot on the 2024 team.
 
-It’s a matter of both visualizing the moves and feeling the moves, Nedoroscik told CNN. He’ll visualize from the start of a routine to the very end, and even go back and work through trouble spots in his mind.
+It’s a matter of both visualizing the moves and feeling the moves, Nedoroscik told CNN. He’ll visualize from the start of a routine to the very end and even go back to work through trouble spots in his mind.
 
 “I’m literally walking through the motions, firing the same muscles, because I know exactly how it feels every time,” he said.
 
-“When you close your eyes, you’re able to picture exactly how you want your body to move,” added Sarlegna, noting there are a lot of “complications” in the brain that turn these visuals into motor action.
+Sarlegna noted that “when you close your eyes, you’re able to picture exactly how you want your body to move,” noting that here are a lot of “complications” in the brain that turn these visuals into motor action.
 
 ### A new superpower
 
@@ -98,9 +98,9 @@ Merren was empowered to play goalball through a US Association of Blind Athletes
 
 “The importance – showing what has been done by others before so you know what you’re capable of – is incalculable,” Merren said. “This changed my perspective about my blindness … being able to see mentors who are blind going to school, traveling the world, starting families, owning businesses and competing in sports.”
 
-According to Merren, the vision impairment doesn’t change the athlete, only the way that the game is performed.
+According to Merren, the vision impairment doesn’t change the athlete, only the way the game is performed.
 
-“There’s nothing different between a Paralympic athlete and an able-bodied athlete, just that they have a disability. The mentality is the same,” he added “The big thing is not, ‘I’m visually impaired and I’m doing this.’ It’s ‘Look what I am doing regardless of (vision loss).’ ”
+“There’s nothing different between a Paralympic athlete and an able-bodied athlete, just that they have a disability. The mentality is the same,” he added. “The big thing is not, ‘I’m visually impaired and I’m doing this.’ It’s ‘Look what I am doing regardless of [vision loss].’ ”
 
 As treatment methods for visual impairment progress, such as gene therapy, new tools may become available to help patients such as Wong’s to participate more fully in sports, she said.
 

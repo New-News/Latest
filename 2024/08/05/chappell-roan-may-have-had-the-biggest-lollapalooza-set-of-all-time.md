@@ -1,6 +1,6 @@
 # Chappell Roan may have had the biggest Lollapalooza set of all time
 
-Published :`2024-08-05 18:40:21`
+Published :`2024-08-05 19:14:31`
 
 ---
 
@@ -10,7 +10,7 @@ The 26-year-old rising pop star garnered an unprecedented-sized crowd at the Lol
 
 “Chappell’s performance was the biggest daytime set we’ve ever seen. It was a magical moment added to Lolla’s DNA,” a spokesperson for Lollapalooza told CNN.
 
-Roan — the Gen Z pop star who’s had a meteoric rise this summer, thanks to her 2023 single, “Good Luck Babe!” rising on the charts and 2024 song “Feminomenon” blowing up on social media — performed Thursday at Lollapalooza on the first day of the Chicago music festival.
+Roan — the Gen Z pop star who’s had a meteoric rise this summer, thanks to her 2024 single, “Good Luck Babe!” rising on the charts and 2023 song “Feminomenon” blowing up on social media — performed Thursday at Lollapalooza on the first day of the Chicago music festival.
 
 “It’s Chappell’s world and we’re just living in it,” a post on X from Lollapalooza’s official account said, showing an image of a massive crowd in Chicago’s Grant Park.
 

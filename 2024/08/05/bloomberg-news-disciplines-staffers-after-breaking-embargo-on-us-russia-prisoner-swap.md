@@ -1,6 +1,6 @@
 # Bloomberg News disciplines staffers after breaking embargo on US-Russia prisoner swap
 
-Published :`2024-08-05 18:40:21`
+Published :`2024-08-05 19:14:31`
 
 ---
 
@@ -14,7 +14,7 @@ Bloomberg’s Standards editor conducted a “full investigation,” Micklethwai
 
 The editor said he had personally written letters to apologize to each of the prisoners and that he “immediately” apologized on Thursday to Wall Street Journal editor-in-chief Emma Tucker.
 
-The initial report Thursday morning was touted by a Bloomberg reporter on X, who said it was one of the “greatest honors of my career” to help break the news of Gershkovich’s release. The reporter later deleted the post and the published story was later updated to note that the prisoners had not yet been released.
+The initial report Thursday morning was touted by a Bloomberg editor on X, who said it was one of the “greatest honors of my career” to help break the news of Gershkovich’s release. The editor later deleted the post and the published story was updated to note that the prisoners had not yet been released.
 
 “An earlier version of this story was corrected to reflect that the Americans have not been released yet,” an editors’ note added to the story at 8:59 a.m. ET stated.
 
