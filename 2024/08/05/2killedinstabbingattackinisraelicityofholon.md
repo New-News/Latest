@@ -1,6 +1,6 @@
 # 2 killed in stabbing attack in Israeli city of Holon
 
-Published :`2024-08-05 03:17:14`
+Published :`2024-08-05 03:37:49`
 
 ---
 

@@ -1,10 +1,14 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-05 03:17:22`
+#### Latest Update : `2024-08-05 03:37:53`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/05/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
+
+- [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://new-news.github.io/Latest/2024/08/05/charger-hogs-are-ruining-the-electric-vehicle-experience-one-company-is-clamping-down-on-bad-manners '‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners')
 
 - [Debby strengthens to a Category 1 hurricane ahead of Florida landfall as Southeast braces for potentially historic rain](https://new-news.github.io/Latest/2024/08/05/debby-strengthens-to-a-category-1-hurricane-ahead-of-florida-landfall-as-southeast-braces-for-potentially-historic-rain 'Debby strengthens to a Category 1 hurricane ahead of Florida landfall as Southeast braces for potentially historic rain')
 
@@ -17,8 +21,6 @@
 - [Rioters attack hotels used to house asylum seekers amid worst UK disorder in years](https://new-news.github.io/Latest/2024/08/05/rioters-attack-hotels-used-to-house-asylum-seekers-amid-worst-uk-disorder-in-years 'Rioters attack hotels used to house asylum seekers amid worst UK disorder in years')
 
 - [Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me](https://new-news.github.io/Latest/2024/08/05/opinion-gaza-needs-trained-doctors-israel-is-blocking-palestinian-physicians-like-me 'Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me')
-
-- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/05/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [Japan’s Nikkei index touches bear market territory as global stock rout intensifies](https://new-news.github.io/Latest/2024/08/05/japan-s-nikkei-index-touches-bear-market-territory-as-global-stock-rout-intensifies 'Japan’s Nikkei index touches bear market territory as global stock rout intensifies')
 
@@ -43,8 +45,6 @@
 - [Customs officers in Arizona seize largest amount of fentanyl pills in agency’s history](https://new-news.github.io/Latest/2024/08/05/customs-officers-in-arizona-seize-largest-amount-of-fentanyl-pills-in-agency-s-history 'Customs officers in Arizona seize largest amount of fentanyl pills in agency’s history')
 
 - [Olympic moment of the day: Cindy Ngamba wins first ever medal for Refugee Olympic Team](https://new-news.github.io/Latest/2024/08/05/olympic-moment-of-the-day-cindy-ngamba-wins-first-ever-medal-for-refugee-olympic-team 'Olympic moment of the day: Cindy Ngamba wins first ever medal for Refugee Olympic Team')
-
-- [‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners](https://new-news.github.io/Latest/2024/08/05/charger-hogs-are-ruining-the-electric-vehicle-experience-one-company-is-clamping-down-on-bad-manners '‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners')
 
 - [How two topsy-turvy weeks upended Trump’s 2024 campaign](https://new-news.github.io/Latest/2024/08/05/how-two-topsy-turvy-weeks-upended-trump-s-2024-campaign 'How two topsy-turvy weeks upended Trump’s 2024 campaign')
 
