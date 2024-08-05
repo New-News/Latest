@@ -1,6 +1,6 @@
 # Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike
 
-Published :`2024-08-05 07:14:58`
+Published :`2024-08-05 07:37:08`
 
 ---
 
@@ -21,6 +21,8 @@ On Monday, Hezbollah claimed to have launched a drone attack that hit a military
 Israel launched multiple interceptors at “suspicious aerial targets” that crossed from Lebanon into Upper Galilee, according to the Israel Defense Forces (IDF).
 
 Two IDF personnel were injured after one target was downed and firefighters were extinguishing a blaze in the area.
+
+In a separate statement, the IDF claimed to have struck “multiple” Hezbollah targets in Lebanon overnight, including a weapons storage facility. It also said it had identified and shot down a “suspicious aerial target” that crossed from Lebanon Monday morning, and had observed a “hostile explosive UAV” that crossed from Lebanon and fell in the area of Malkia. No damage or injuries were reported from the incidents.
 
 Many countries already had travel warnings in place but have issued fresh advice in the wake of the latest developments.
 

@@ -1,6 +1,6 @@
 # Global stock rout intensifies with Japan’s Nikkei suffering worst one day loss and other Asian markets plunging
 
-Published :`2024-08-05 07:14:58`
+Published :`2024-08-05 07:37:08`
 
 ---
 

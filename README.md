@@ -1,10 +1,16 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-05 07:15:09`
+#### Latest Update : `2024-08-05 07:37:11`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/05/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
+
+- [She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence](https://new-news.github.io/Latest/2024/08/05/she-wanted-the-world-for-her-daughter-instead-she-got-a-landmark-prison-sentence 'She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence')
+
+- [LAPD releases photos of suspects involved in fatal shooting of former ‘General Hospital’ actor Johnny Wactor](https://new-news.github.io/Latest/2024/08/05/lapd-releases-photos-of-suspects-involved-in-fatal-shooting-of-former-general-hospital-actor-johnny-wactor 'LAPD releases photos of suspects involved in fatal shooting of former ‘General Hospital’ actor Johnny Wactor')
 
 - [Inside the legal plans by foes of Donald Trump and Project 2025 to fight his second-term agenda](https://new-news.github.io/Latest/2024/08/05/inside-the-legal-plans-by-foes-of-donald-trump-and-project-2025-to-fight-his-second-term-agenda 'Inside the legal plans by foes of Donald Trump and Project 2025 to fight his second-term agenda')
 
@@ -12,15 +18,11 @@
 
 - [Global stock rout intensifies with Japan’s Nikkei suffering worst one day loss and other Asian markets plunging](https://new-news.github.io/Latest/2024/08/05/global-stock-rout-intensifies-with-japan-s-nikkei-suffering-worst-one-day-loss-and-other-asian-markets-plunging 'Global stock rout intensifies with Japan’s Nikkei suffering worst one day loss and other Asian markets plunging')
 
-- [She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence](https://new-news.github.io/Latest/2024/08/05/she-wanted-the-world-for-her-daughter-instead-she-got-a-landmark-prison-sentence 'She wanted ‘the world’ for her daughter. Instead, she got a landmark prison sentence')
-
 - [Dozens arrested in violent UK protests over Southport stabbings](https://new-news.github.io/Latest/2024/08/05/dozens-arrested-in-violent-uk-protests-over-southport-stabbings 'Dozens arrested in violent UK protests over Southport stabbings')
 
 - [Harris’ whirlwind search for running mate enters final hours as she prepares to take new Democratic ticket on the road](https://new-news.github.io/Latest/2024/08/05/harris- whirlwind-search-for-running-mate-enters-final-hours-as-she-prepares-to-take-new-democratic-ticket-on-the-road 'Harris’ whirlwind search for running mate enters final hours as she prepares to take new Democratic ticket on the road')
 
 - [‘House of the Dragon’ boss says Season 3 is ‘going to be about total war’](https://new-news.github.io/Latest/2024/08/05/house-of-the-dragon-boss-says-season-3-is-going-to-be-about-total-war '‘House of the Dragon’ boss says Season 3 is ‘going to be about total war’')
-
-- [Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike](https://new-news.github.io/Latest/2024/08/05/foreign-citizens-urged-to-leave-lebanon-as-soon-as-possible-as-regional-tensions-spike 'Foreign citizens urged to leave Lebanon ‘as soon as possible’ as regional tensions spike')
 
 - [Debby strengthens to a Category 1 hurricane ahead of Florida landfall as Southeast braces for potentially historic rain](https://new-news.github.io/Latest/2024/08/05/debby-strengthens-to-a-category-1-hurricane-ahead-of-florida-landfall-as-southeast-braces-for-potentially-historic-rain 'Debby strengthens to a Category 1 hurricane ahead of Florida landfall as Southeast braces for potentially historic rain')
 
@@ -51,8 +53,6 @@
 - [Opinion: Why there is no such thing as a ‘natural’ disaster](https://new-news.github.io/Latest/2024/08/05/opinion-why-there-is-no-such-thing-as-a-natural-disaster 'Opinion: Why there is no such thing as a ‘natural’ disaster')
 
 - [At least 30 killed in Israeli strike on two Gaza school shelters: Palestinian Civil Defense](https://new-news.github.io/Latest/2024/08/05/at-least-30-killed-in-israeli-strike-on-two-gaza-school-shelters-palestinian-civil-defense 'At least 30 killed in Israeli strike on two Gaza school shelters: Palestinian Civil Defense')
-
-- [LAPD releases photos of suspects involved in fatal shooting of former ‘General Hospital’ actor Johnny Wactor](https://new-news.github.io/Latest/2024/08/05/lapd-releases-photos-of-suspects-involved-in-fatal-shooting-of-former-general-hospital-actor-johnny-wactor 'LAPD releases photos of suspects involved in fatal shooting of former ‘General Hospital’ actor Johnny Wactor')
 
 - [Customs officers in Arizona seize largest amount of fentanyl pills in agency’s history](https://new-news.github.io/Latest/2024/08/05/customs-officers-in-arizona-seize-largest-amount-of-fentanyl-pills-in-agency-s-history 'Customs officers in Arizona seize largest amount of fentanyl pills in agency’s history')
 
