@@ -1,6 +1,6 @@
 # Inside the legal plans by foes of Donald Trump and Project 2025 to fight his second-term agenda
 
-Published :`2024-08-05 14:13:33`
+Published :`2024-08-05 14:37:11`
 
 ---
 
@@ -18,7 +18,7 @@ Those kind of preparations – researching case law, writing memos, shifting aro
 
 “We have every reason to believe this time around that, in the same way that we learned lessons, that the officials and strategists who would make up the second Trump administration also have a more sophisticated playbook,” said Deepa Alagesan, who leads the litigation team at the International Refugee Assistance Project, a refugee advocacy group.
 
-When Trump took office, her organization did not have any in-house lawyers. But its experience litigating the travel ban helped convince the refugee group that it needed to set up its own team, which has now grown to about 10 attorneys. Several other advocacy organizations told CNN that the number of lawyers they employ or work with has grown exponentially since the beginning of Trump’s first presidency.
+When Trump took office, her organization did not have any in-house litigators. But its experience litigating the travel ban helped convince the refugee group that it needed to set up its own team, which has now grown to about 10 attorneys. Several other advocacy organizations told CNN that the number of lawyers they employ or work with has grown exponentially since the beginning of Trump’s first presidency.
 
 “Staffing is a huge of part of being prepared,” said Elizabeth Taylor, the executive director of the National Health Law Program, which opposes rollbacks to the public health programs that are often targeted by Republicans. “It’s going to take teams to be ready to challenge things that are going to come at us fast.”
 

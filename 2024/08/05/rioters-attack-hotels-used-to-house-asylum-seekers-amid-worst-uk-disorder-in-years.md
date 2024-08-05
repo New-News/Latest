@@ -1,6 +1,6 @@
 # Rioters attack hotels used to house asylum seekers amid worst UK disorder in years
 
-Published :`2024-08-05 14:13:34`
+Published :`2024-08-05 14:37:12`
 
 ---
 
