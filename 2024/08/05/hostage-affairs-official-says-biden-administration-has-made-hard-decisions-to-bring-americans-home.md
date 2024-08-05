@@ -1,6 +1,6 @@
 # Hostage affairs official says Biden administration has made ‘hard decisions’ to bring Americans home
 
-Published :`2024-08-05 21:16:31`
+Published :`2024-08-05 21:35:36`
 
 ---
 
