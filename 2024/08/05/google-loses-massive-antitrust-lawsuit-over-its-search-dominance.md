@@ -1,6 +1,6 @@
 # Google loses massive antitrust lawsuit over its search dominance
 
-Published :`2024-08-05 20:15:45`
+Published :`2024-08-05 20:37:13`
 
 ---
 
@@ -26,7 +26,7 @@ But Monday’s decision marks the second high-profile antitrust defeat for Googl
 
 ### Possible penalties
 
-Mehta’s decision is expected to trigger a separate proceeding to determine what penalties Google will face — after which point the company is also likely to file an appeal. But the ruling could ultimately upend how Google makes its search engine available to users, by impacting its ability to make the pricey deals with device makers and online service providers that were at the heart of the case.
+Mehta’s decision is expected to trigger a separate proceeding to determine what penalties Google will face — after which point the company is also likely to file an appeal, meaning it may take months or even years for any potential consequences to play out. But the ruling could ultimately upend how Google makes its search engine available to users, by impacting its ability to make the pricey deals with device makers and online service providers that were at the heart of the case.
 
 Other remedies could be on the table, too. For example, the court could force Google to implement a “choice screen” letting users know about other available search engines, Vanderbilt University law professor Rebecca Allensworth told CNN.
 
@@ -35,6 +35,8 @@ The company is also likely to face a monetary fine, although fines are “not th
 At the time the lawsuit was first filed, US antitrust officials also did not rule out the possibility of a Google breakup, warning that Google’s behavior could threaten future innovation or the rise of a Google successor.
 
 The ruling could also be a bellwether for other, major tech antitrust cases that are moving through the courts, including against Apple and Amazon. Both Amazon and Apple have called the antitrust lawsuits filed against them “wrong on the facts and the law.”
+
+“There are a lot of parts of the government’s arguments in its case against Google that are puzzle pieces to their other cases,” Allensworth said. “Things like ‘zero price markets,’ these are markets where you don’t have to pay every time you search… how the judge handles those questions in this case will be looked at closely and will be influential in those other cases, but it won’t be legally binding.”
 
 ### Artificial intelligence at stake
 

@@ -1,6 +1,6 @@
 # Why the stock market is freaking out again
 
-Published :`2024-08-05 20:15:45`
+Published :`2024-08-05 20:37:13`
 
 ---
 
@@ -34,7 +34,7 @@ The Fed is notoriously horrible at timing its rate cuts and hikes. It was way be
 
 Rate cuts could help support the job market by cutting borrowing costs for businesses and freeing up money for companies to spend on hiring. But policy decisions take time to work their way into the economy. As inflation has cooled dramatically in recent months and the unemployment rate has risen, some fear the Fed may be too late to act before slow hiring turns into rampant layoffs.
 
-The Fed’s next meetings are scheduled for September, November and December, Analysts at Citigroup and JPMorgan predict the Fed will slash rates by half a point at its next two meetings. But that may be too late. It may be forced to make an emergency rate cut before then — an extraordinary intervention the market increasingly views as likely, according to CME’s FedWatch tool.
+The Fed’s next meetings are scheduled for September, November and December, Analysts at Citigroup and JPMorgan predict the Fed will slash rates by half a point at its next two meetings. But that may be too late, and it may be forced to make an emergency rate cut before then.
 
 An emergency cut — which hasn’t happened since the early days of Covid, is exactly what the Fed needs to do, said famed Wharton professor emeritus of finance Jeremy Siegel on CNBC Monday morning.
 

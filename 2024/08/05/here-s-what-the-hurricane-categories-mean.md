@@ -1,6 +1,6 @@
 # Here’s what the hurricane categories mean
 
-Published :`2024-08-05 20:15:45`
+Published :`2024-08-05 20:37:14`
 
 ---
 
