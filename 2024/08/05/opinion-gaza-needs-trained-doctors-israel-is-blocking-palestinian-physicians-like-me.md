@@ -1,10 +1,10 @@
 # Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me
 
-Published :`2024-08-05 11:36:08`
+Published :`2024-08-05 12:30:30`
 
 ---
 
-Almost 10 months into the war in Gaza, there is just about nothing that the people struggling to survive there don’t need: water, food, shelter, security — Gazans are literally blockaded from receiving the essential things of life.
+Ten months into the war in Gaza, there is just about nothing that the people struggling to survive there don’t need: water, food, shelter, security — Gazans are literally blockaded from receiving the essential things of life.
 
 They also desperately need skilled physicians like me. I’m an orthopedic surgeon. Earlier this year I completed my training at Yale medical school and I now work at a small practice in Texas.
 

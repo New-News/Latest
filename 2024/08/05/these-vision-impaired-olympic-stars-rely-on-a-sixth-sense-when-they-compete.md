@@ -1,6 +1,6 @@
 # These vision-impaired Olympic stars rely on a ‘sixth sense’ when they compete
 
-Published :`2024-08-05 11:36:08`
+Published :`2024-08-05 12:30:31`
 
 ---
 
@@ -12,7 +12,7 @@ Nedoroscik is not the only Olympic athlete with vision impairment excelling in t
 
 Earlier this week Nedoroscik also helped the US men’s team end a 16-year team medal drought and win bronze in Monday’s finals. After his routine he admitted to reporters that although he couldn’t see when he mounted the horse, he didn’t need to.
 
-“The thing about pommel horse is like you’re using your hands the whole time,” he told CNN’s Coy Wire. “You’re feeling how your center of mass sort of swivels around. I don’t see. I don’t need to seed to see what I’m doing….I’m just doing it by how it feels.”
+“The thing about pommel horse is like you’re using your hands the whole time,” he told CNN’s Coy Wire. “You’re feeling how your center of mass sort of swivels around. I don’t see. I don’t need to see to see what I’m doing … I’m just doing it by how it feels.”
 
 In a podcast released Friday, US national team soccer player Becky Sauerbrunn gave Nedoroscik a shoutout, sharing her experiences playing without corrective lenses and saying she “could tell who a person was by their running gait.”
 
@@ -96,7 +96,7 @@ Nedoroscik has been compared to Clark Kent, Superman’s alter ego, transforming
 
 Merren was empowered to play goalball through a US Association of Blind Athletes camp intended to teach kids with vision loss how to play adapted sports. Organizations like these, he said, are crucial in helping kids with vision loss connect with mentors and realize sports are a possibility to them.
 
-“The importance – showing what has been done by others before so you know what you’re capable of – is incalculable,” Merren said. “This changed my perspective about my blindness… being able to see mentors who are blind going to school, traveling the world, starting families, owning businesses and competing in sports.”
+“The importance – showing what has been done by others before so you know what you’re capable of – is incalculable,” Merren said. “This changed my perspective about my blindness … being able to see mentors who are blind going to school, traveling the world, starting families, owning businesses and competing in sports.”
 
 According to Merren, the vision impairment doesn’t change the athlete, only the way that the game is performed.
 

@@ -1,6 +1,6 @@
 # Those leaving Lebanon hold their families extra tight as they say goodbye
 
-Published :`2024-08-05 11:36:07`
+Published :`2024-08-05 12:30:30`
 
 ---
 
@@ -58,7 +58,7 @@ The growing exodus of visitors from overseas will likely have a devastating effe
 
 “If I were you, I would leave Lebanon now,” he warned me.
 
-Instead, we took the kids up to a little cabin in the mountains for the weekend.  After all, I couldn’t get plane ticket out until Sunday afternoon.
+Instead, we took the kids up to a little cabin in the mountains for the weekend. After all, I couldn’t get plane tickets out until Sunday afternoon.
 
 There, Katya splashed in a little pool with Angelina and 9-year-old cousin Taym, as the adults took in panoramic views of a wide valley and villages on distant ridges.
 
