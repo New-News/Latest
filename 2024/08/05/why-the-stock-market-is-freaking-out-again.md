@@ -1,12 +1,12 @@
 # Why the stock market is freaking out again
 
-Published :`2024-08-05 19:36:08`
+Published :`2024-08-05 20:15:45`
 
 ---
 
 Fear has set in on Wall Street, and stocks are having another miserable day.
 
-The Dow tumbled more than 1,000 points at the open, and the broader market plunged 3% Monday. The Nasdaq, full of risky tech stocks, dropped 3.7%.
+The Dow tumbled more than 1,000 points, and the broader market plunged 3% Monday. The Nasdaq, full of risky tech stocks, dropped 3.5%.
 
 All of that comes amid a global market selloff. Japan’s Nikkei 225 index nosedived 12% — its worst rout in history. All major Asian and European markets fell substantially Monday.
 

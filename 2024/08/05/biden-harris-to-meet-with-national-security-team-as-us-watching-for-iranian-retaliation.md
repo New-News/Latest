@@ -1,6 +1,6 @@
 # Biden, Harris to meet with national security team as US watching for Iranian retaliation
 
-Published :`2024-08-05 19:36:07`
+Published :`2024-08-05 20:15:45`
 
 ---
 
@@ -28,6 +28,12 @@ Biden spoke with the Jordanian king Monday morning, where both leaders discussed
 
 The Jordanian king emphasized the need for de-escalation in the region while also warning of extremist settler violence against Palestinians.
 
+The US has been asking countries that have diplomatic relations withIran to urge the country not to escalate the conflict, a State Department spokesman said Monday.
+
+“We have been sending consistent messages through our diplomatic engagements encouraging people to communicate to the government of Iran that escalation is not in their interest and that we will defend Israel from attacks, and that escalation does not serve Iran’s interest, just as it doesn’t serve the interests of anyone in the region,” the spokesman, Matthew Miller, said.
+
+Miller declined to give a timeframe of when the US expects Iran to retaliate. But he added: “We don’t think this attack should happen, and we are working to try to prevent it from happening.”
+
 In April, Iran launched hundreds of drones and missiles toward Israel in retaliation for the killing of some of its officials at what it considered a diplomatic compound in Syria, the first time Iran had taken direct action against Israel in decades.
 
 But that time, officials said, Tehran telegraphed its intent, and the US was able to see the movement of weapons systems and other equipment into place — a key marker that US intelligence officials often use to judge when and what kind of military action an adversary is planning.
@@ -36,7 +42,7 @@ That intelligence was part of how US Central Command was able to form a defensiv
 
 This time, according to officials who spoke to CNN on the condition of anonymity, the American intelligence picture is much murkier. The Biden administration is racing the clock to try to keep the situation from spiraling into all-out war — even as officials have privately expressed skepticism that it will be possible to constrain Iran.
 
-This story has been updated with additional developments.
+This story and headline have been updated with additional developments.
 
 ---
 

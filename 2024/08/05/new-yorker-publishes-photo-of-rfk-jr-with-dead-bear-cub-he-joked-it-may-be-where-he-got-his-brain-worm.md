@@ -1,6 +1,6 @@
 # New Yorker publishes photo of RFK Jr. with dead bear cub. He joked it may be where he got his brain worm
 
-Published :`2024-08-05 19:36:08`
+Published :`2024-08-05 20:15:45`
 
 ---
 
