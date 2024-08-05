@@ -1,10 +1,10 @@
 # As Iowa’s maternity care deserts continue to grow, doctors say the state’s new abortion ban will only make matters worse
 
-Published :`2024-08-05 14:37:11`
+Published :`2024-08-05 15:16:09`
 
 ---
 
-Dr. Emily Boevers is the only full-time OGBYN at a critical access hospital in a rural city in Iowa about 10 miles from the farm she grew up on.
+Dr. Emily Boevers is the only full-time OBGYN at a critical access hospital in a rural city in Iowa about 10 miles from the farm she grew up on.
 
 She’s the only full-time OBGYN in the county, in a state that just banned most abortions.
 

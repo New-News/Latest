@@ -1,6 +1,6 @@
 # CrowdStrike fires back at Delta, claiming the airline ignored offers of help during service meltdown
 
-Published :`2024-08-05 14:37:11`
+Published :`2024-08-05 15:16:09`
 
 ---
 
@@ -8,7 +8,7 @@ CrowdStrike fired back at Delta after the airline’s CEO lashed out at the cybe
 
 In a letter from CrowdStrike’s legal counsel to Delta’s legal counsel on Sunday, the cybersecurity firm said it was “highly disappointed by Delta’s suggestion that CrowdStrike acted inappropriately and strongly rejects any allegation that it was grossly negligent or committed willful misconduct.”
 
-CrowdStrike CEO George Kurtz offered online assistance personally to Delta CEO Ed Bastian but received no response, the letter said, adding that Delta later told CrowdStrike no help was needed during the airline’s nearly weeklong service outage that canceled thousands of flights.
+CrowdStrike CEO George Kurtz offered onsite assistance personally to Delta CEO Ed Bastian but received no response, the letter said, adding that Delta later told CrowdStrike no help was needed during the airline’s nearly weeklong service outage that canceled thousands of flights.
 
 Delta’s public litigation threat “contributed to a misleading narrative that CrowdStrike is responsible for Delta’s IT decisions and response to the outage,” attorney Michael Carlinsky wrote in the letter, “Should Delta pursue this path, Delta will have to explain to the public, its shareholders, and ultimately a jury why CrowdStrike took responsibility for its actions—swiftly, transparently, and constructively—while Delta did not.”
 

@@ -1,16 +1,16 @@
 # Pro-Israel groups look to oust another progressive ‘squad’ member, this time in Missouri
 
-Published :`2024-08-05 14:37:11`
+Published :`2024-08-05 15:16:09`
 
 ---
 
 Six weeks after leading the charge to oust Rep. Jamaal Bowman in a New York primary, a big-spending pro-Israel super PAC is hoping to help defeat another member of the House “squad” of progressive Democrats – Missouri Rep. Cori Bush.
 
-Bush broke ranks with her party’s leadership to call for a permanent ceasefire in Gaza last year and has been fiercely critical of Israel’s treatment of Palestinian civilians.
+Already a top target for centrist and Israel-aligned groups, Bush broke ranks with her party’s leadership to call for a permanent ceasefire in Gaza last year and has been fiercely critical of Israel’s treatment of Palestinian civilians.
 
 Bush has drawn three challengers as she seeks a third term representing Missouri’s 1st Congressional District, the most prominent of whom is Wesley Bell, the prosecuting attorney of St. Louis County. The spending in the race has not matched the campaign against Bowman – the most expensive House primary in US history.
 
-Nevertheless, the figures – for a safe blue district and one of 435 House seats – are still remarkable. The American Israel Public Affairs Committee’s super PAC, United Democracy Project, has spent nearly $9 million on ads attacking Bush or boosting Bell.
+Nevertheless, the figures – for a safe blue district and one of 435 House seats – are remarkable. The American Israel Public Affairs Committee’s super PAC, United Democracy Project, has spent nearly $9 million on ads attacking Bush or boosting Bell.
 
 Though Bell has been more supportive of Israel’s actions, his campaign has not focused on the issue, and voters in the majority-minority, urban district in the St. Louis area are not clashing over it with the passion seen in in more typically progressive enclaves.
 
@@ -26,9 +26,9 @@ Bush’s message during the campaign has been simpler and, in many ways, mimics 
 
 “By supporting our grassroots campaign,” Bush said in a recent fundraising email, “you’re standing up against a grifter politician and the influence of big money in politics and demanding real representation for the people of MO-01.”
 
-It’s a message that had, before this summer, been effective for progressive House members facing well-financed challengers. Pennsylvania Rep. Summer Lee fended off a primary challenge for her Pittsburgh-area seat earlier in the year and other “squad” members, most notably New York Rep. Alexandria Ocasio-Cortez and Massachusetts Rep. Ayanna Pressley, are now widely seen as invulnerable.
+It’s a tactic that had, before this summer, been effective for progressive House members facing well-financed challengers. Pennsylvania Rep. Summer Lee fended off a primary challenge for her Pittsburgh-area seat earlier in the year and other “squad” members, most notably New York Rep. Alexandria Ocasio-Cortez and Massachusetts Rep. Ayanna Pressley, are now widely seen as invulnerable.
 
-The Bush-Bell contest, though, is deeper than it is wide. There is no policy gulf to speak of; they are mostly aligned on the broad spectrum of issues that come before House members. They both have deep ties to 2014 police killing of Michael Brown, an unarmed Black teenager, in Ferguson, which is located in Missouri’s 1st District. The outrage around Brown’s death effectively launched the Black Lives Matter movement. Bush, a pastor, became a prominent activist in those demonstrations and she parlayed that profile into twice challenge the 1st District incumbent, William Lacy Clay, in the Democratic primary, succeeding in 2020 on her second attempt.
+The Bush-Bell contest, though, is deeper than it is wide. There is no policy gulf to speak of; they are mostly aligned on the broad spectrum of issues that come before House members. They both have strong ties to 2014 police killing of Michael Brown, an unarmed Black teenager, in Ferguson, which is located in Missouri’s 1st District. The outrage around Brown’s death effectively launched the Black Lives Matter movement. Bush, a pastor, became a prominent activist in those demonstrations and she parlayed that profile into twice challenge the 1st District incumbent, William Lacy Clay, in the Democratic primary, succeeding in 2020 on her second attempt.
 
 Bell, in contrast, had an earlier start in the political arena. He was elected to the Ferguson City Council in 2015. Three years later, running on a progressive platform, he unseated the controversial St. Louis County prosecutor Robert McCulloch, who had been in office since 1991. But like McCulloch, Bell did not charge the officer who shot Brown, irritating some supporters – including Brown’s father, who was featured last month in an ad for Bush.
 
@@ -53,6 +53,8 @@ As the incumbent, Bush does have the backing, at least on paper, from House Demo
 But support for Bell is robust locally too – often a more important mark of how a low-turnout primary will pan out than any other metric. Indivisible St. Louis endorsed Bell, who also has vast support from labor. The editorial board of The St. Louis Post-Dispatch is also backing the challenger.
 
 Top Washington Democrats have been fairly quiet, not-so-subtly signaling that Bell will be welcome. Many are still cross with Bush for ousting Clay four years ago, breaking his family’s grip on a seat they’d held since before man walked on the moon.
+
+This story has been updated with additional information.
 
 ---
 
