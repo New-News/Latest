@@ -1,6 +1,6 @@
 # ‘Worst season ever’: How things got ugly on Greece’s ‘Instagram island’
 
-Published :`2024-08-05 08:39:29`
+Published :`2024-08-05 09:16:17`
 
 ---
 
@@ -8,7 +8,7 @@ There’s a volcano waiting to blow on Santorini, but it’s not the world-famou
 
 The dazzling white-washed houses, blue-domed churches and azure skies and sea of this uniquely stunning Greek island pull in a reported 3.4 million visitors a year, far outnumbering Santorini’s 20,000 or so permanent residents.
 
-As many as 17,000 cruise ship passengers surge onto the island on peak days in high season, heading straight to hot spots such as the capital Fira and the town of Oia on its northwestern tip, renowned for its spectacular sunsets. It’s even earned the nickname “Instagram Island” because of its perfectly saturated “no filter” splendor.
+As many as 17,000 cruise ship passengers surge onto the island on peak days in high season, heading straight to hot spots such as the capital Fira and the town of Oia on its northwestern tip, renowned for its spectacular sunsets. It’s even earned the nickname “Instagram island” because of its perfectly saturated “no filter” splendor.
 
 The narrow cobbled streets and cliffside balconies are filled cheek to jowl with vacationers seeking sunset selfies, and locals are disturbed as they go about their daily business. When evening comes, however, the crowds melt away, and some complain the island goes from Times Square to ghost town.
 

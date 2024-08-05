@@ -1,6 +1,6 @@
 # US sending aircraft carrier, warships and fighter squadron to Middle East as region braces for Iranian retaliation
 
-Published :`2024-08-05 08:39:31`
+Published :`2024-08-05 09:16:24`
 
 ---
 
