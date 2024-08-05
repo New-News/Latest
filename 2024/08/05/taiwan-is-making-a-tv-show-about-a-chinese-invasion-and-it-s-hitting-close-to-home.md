@@ -1,6 +1,6 @@
 # Taiwan is making a TV show about a Chinese invasion. And it’s hitting close to home
 
-Published :`2024-08-05 07:37:08`
+Published :`2024-08-05 08:19:47`
 
 ---
 
@@ -14,7 +14,7 @@ The 17-minute trailer hit close to home in Taiwan, making headlines in local med
 
 “As a 21-year-old, I almost burst into tears when I watched it. Every scene in those 17 minutes felt so close to us. Maybe one day in the future, these scenarios will become the reality around us,” said a top comment with more than a thousand upvotes.
 
-But the show also attracted criticism, including from opposition politicians, who said it created panic and exaggerating the crisis.
+But the show also attracted criticism, including from opposition politicians, who said it created panic and exaggerated the crisis.
 
 The specter of war is nothing new for Taiwan, a progressive democracy living in the shadow of authoritarian China, which views the island as its own territory and has vowed to seize it by force if necessary.
 
