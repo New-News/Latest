@@ -1,6 +1,6 @@
 # Kamala Harris has earned enough votes to win the Democratic presidential nomination, party chair announces
 
-Published :`2024-08-05 02:49:22`
+Published :`2024-08-05 03:17:22`
 
 ---
 

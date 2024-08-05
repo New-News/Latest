@@ -1,6 +1,6 @@
 # Defense secretary abruptly revokes plea deal with alleged 9/11 mastermind KSM, co-conspirators
 
-Published :`2024-08-05 02:49:22`
+Published :`2024-08-05 03:17:19`
 
 ---
 
