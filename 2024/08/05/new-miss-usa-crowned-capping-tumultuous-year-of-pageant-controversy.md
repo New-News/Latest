@@ -1,12 +1,12 @@
 # New Miss USA crowned, capping tumultuous year of pageant controversy
 
-Published :`2024-08-05 17:37:14`
+Published :`2024-08-05 18:21:07`
 
 ---
 
 Michigan’s Alma Cooper, a US Army officer, was named Miss USA on Sunday, becoming the third person to hold the title this year following the shock resignation of 2023’s winner.
 
-The 22-year-old, who has a Master’s in data science from Stanford University, beat 50 other contestants in a pageant that included swimwear and evening gown competitions. Kentucky’s Connor Perry and Oklahoma’s Danika Christopherson were named first and second runners up, respectively.
+The 22-year-old, who has a Master’s in data science from Stanford University, beat 50 other contestants in a pageant that included swimwear and evening gown competitions. Kentucky’s Connor Perry and Oklahoma’s Danika Christopherson were named first and second runners up, respectively. Cooper is a second lieutenant who serves as a military intelligence officer, according to her social media.
 
 “As the daughter of a migrant worker, a proud Afro Latina woman and an officer of the United States Army, I am living the American dream,” she had told judges during a Q&A session at Sunday’s finale. “If there’s anything that my life and my mother have taught me, it’s that your circumstances never define your destiny: You can make success accessible through demanding excellence.”
 

@@ -1,6 +1,6 @@
 # Bloomberg News disciplines staffers after breaking embargo on US-Russia prisoner swap
 
-Published :`2024-08-05 17:37:13`
+Published :`2024-08-05 18:21:06`
 
 ---
 
@@ -20,9 +20,9 @@ The initial report Thursday morning was touted by a Bloomberg reporter on X, who
 
 News organizations, including CNN, had agreed to hold on to news of the prisoners’ release so as not to endanger the process. According to a person familiar with The Wall Street Journal’s decision-making, the newspaper did not intend to publish a story on Gershkovich’s release until he was seen walking free during a handover at Turkey’s Ankara airport. Most news organization did not publish the news until later that morning.
 
-Ahead of the prisoner swap, the White House had briefed reporters from multiple news organizations around 8 a.m. ET on the activity, with an embargo time on the news of later that day, according to a person familiar with the matter.
+“This was not about a broken embargo,” a spokesperson for The Wall Street Journal told CNN. “It was a report that Evan had been freed when in fact he had not yet been. We’re happy that Bloomberg corrected it.”
 
-“This was not about a broken embargo,” a spokesperson for The Wall Street Journal told CNN. “It was an inaccurate report that Evan had been freed when in fact he was still on a Russian plane in the air. We published when Evan was off the plane and safely on Turkish soil, where he was out of Russian hands.”
+Ahead of the prisoner swap, the White House had briefed reporters from multiple news organizations around 8 a.m. ET on the activity, with an embargo time on the news of later that day, according to a person familiar with the matter.
 
 After Bloomberg’s story was posted online, the White House called the outlet asking for the story to be removed as Gershkovich and other prisoners had not yet been freed, according to this person. Bloomberg declined to take the story down, which frustrated the White House.
 

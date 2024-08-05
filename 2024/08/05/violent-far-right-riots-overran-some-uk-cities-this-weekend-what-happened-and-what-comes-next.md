@@ -1,6 +1,6 @@
 # Violent, far-right riots overran some UK cities this weekend. What happened, and what comes next?
 
-Published :`2024-08-05 17:37:13`
+Published :`2024-08-05 18:21:06`
 
 ---
 
