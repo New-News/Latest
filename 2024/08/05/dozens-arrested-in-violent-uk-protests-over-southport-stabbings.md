@@ -1,6 +1,6 @@
 # Dozens arrested in violent UK protests over Southport stabbings
 
-Published :`2024-08-05 05:16:38`
+Published :`2024-08-05 05:37:46`
 
 ---
 
@@ -8,7 +8,7 @@ Police and protesters squared off in several UK cities in the latest round of un
 
 Since the stabbing in Southport, which left three children dead during a Taylor Swift-themed yoga class, tensions have been ratcheting up across UK cities. Far-right activists have been accused of using social media platforms to spread disinformation, most notably falsely claiming that the Southport attacker was an immigrant who had arrived in the UK illegally.
 
-UK police have confirmed that the 17-year-old attacker, Axel Muganwa Rudakubana, was born in the Welsh capital of Cardiff, taking the unusual step of naming him despite being under 18.
+UK police have confirmed that the 17-year-old suspect, Axel Muganwa Rudakubana, was born in the Welsh capital of Cardiff, taking the unusual step of naming him despite being under 18.
 
 British Prime Minister Keir Starmer met with senior ministers of his cabinet on Saturday to discuss the unrest, a Downing Street spokesperson said, adding that “the Prime Minister set out that the police have our full support to take action against extremists on our streets who are attacking police officers, disrupting local businesses and attempting to sow hate by intimidating communities.”
 
