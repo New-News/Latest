@@ -1,14 +1,16 @@
 # Global stock rout intensifies with Japan’s Nikkei and other Asian markets plunging
 
-Published :`2024-08-05 06:22:11`
+Published :`2024-08-05 06:41:51`
 
 ---
 
-Japan’s stock market led Asian shares to plunge further on Monday as a global sell-off intensified following weak US jobs data.
+Japan’s stock market suffered its biggest ever one-day loss on Monday as a global sell-off intensified following weak US jobs data.
 
-The Nikkei 225 fell 7.4% in afternoon trade, pushing its losses to 22% since early July. The index is poised to enter bear market territory, which is defined as a 20% pullback from recent highs.
+The benchmark Nikkei 225 ended the day 4,451 lower, which is the biggest drop by number of points in history. The index finished more than 12% down, pushing its losses to 24% since early July. The index has now entered bear market territory, which is defined as a 20% pullback from recent highs.
 
-On Friday, the index closed down 5.8%, marking its biggest daily drop since March 2020, as traders fretted about the impact of a stronger yen on Japanese companies after the Bank of Japan (BOJ) signalled further rate hikes could be on the way. A rising yen would hurt exporters and companies with overseas earnings.
+Amid steep declines, trading was halted for short periods of time in Japan and South Korea. Circuit breakers, which pause trading amid strong volatility in an effort to prevent panic selling, were triggered multiple times in Tokyo and Seoul.
+
+On Friday, the Nikkei closed down 5.8%, marking its biggest daily drop since March 2020, as traders fretted about the impact of a stronger yen on Japanese companies after the Bank of Japan (BOJ) signalled further rate hikes could be on the way. A rising yen would hurt exporters and companies with overseas earnings.
 
 A rapid appreciation in the Japanese currency has also forced many market participants to unwind the yen carry trade, a hugely popular trading strategy. With interest rates having been extremely low in Japan for decades, many investors have borrowed cash cheaply there and converted it to other currencies and invested in higher-yielding assets.
 
@@ -28,7 +30,11 @@ In the United States, Amazon (AMZN) reported on Thursday an earnings miss for th
 
 Other Asia-Pacific markets also tumbled on Monday.
 
-South Korea’s Kospi slid 6.7%, while Australia’s S&P/ASX 200 lost 3.1%. Hong Kong’s Hang Seng Index was down 0.2%.
+The Korea Exchange implemented circuit breakers to halt trading in the benchmark Kospi index briefly after it plunged more than 8%.
+
+Taiwan’s Taiex ended down 8.4%, its worst day ever.
+
+Australia’s S&P/ASX 200 lost 3.6%. Hong Kong’s Hang Seng Index and China’s Shanghai Composite were down 2.6% and 1.2% respectively.
 
 Asian stocks tracked a sharp drop on Wall Street on Friday, where disappointing jobs data added to fears that the US economy is weakening. The Dow closed 1.5% lower, the S&P 500 lost 1.8% and the Nasdaq Composite declined 2.4%. The Nasdaq closed in correction territory, or more than 10% off its most recent high on July 10.
 
