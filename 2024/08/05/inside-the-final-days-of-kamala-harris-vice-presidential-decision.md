@@ -1,6 +1,6 @@
 # Inside the final days of Kamala Harris’ vice presidential decision
 
-Published :`2024-08-05 22:14:24`
+Published :`2024-08-05 22:37:00`
 
 ---
 

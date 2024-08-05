@@ -1,6 +1,6 @@
 # New homes are getting smaller. That could be big news for first-time buyers
 
-Published :`2024-08-05 22:14:22`
+Published :`2024-08-05 22:36:52`
 
 ---
 
