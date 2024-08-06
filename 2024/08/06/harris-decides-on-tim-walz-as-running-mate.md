@@ -1,10 +1,10 @@
 # Harris decides on Tim Walz as running mate
 
-Published :`2024-08-06 14:37:10`
+Published :`2024-08-06 15:17:05`
 
 ---
 
-Vice President Kamala Harris has chosen Gov. Tim Walz of Minnesota as her running mate, elevating the teacher and commander in the Army National Guard to join the Democratic ticket and help lead the party’s fight to defeat Donald Trump.
+Vice President Kamala Harris has chosen Gov. Tim Walz of Minnesota as her running mate, elevating the former teacher and Army National Guard veteran to join the Democratic ticket and help lead the party’s fight to defeat Donald Trump.
 
 The selection – which Harris personally delivered to Walz via a video call, according to a source familiar with the matter – caps the Midwestern Democrat’s short but swift ascent from a relative unknown to a leading driver of the party’s attacks against the former president and the MAGA agenda.
 
@@ -48,7 +48,7 @@ Walz also has a personal story befitting the zeitgeist – a family history, as
 
 And to draw a bright, cheeky line under his own childhood experience, Walz – not for the last time – recounted that he “grew up in a small town: 400 people, 24 kids in the class, 12 cousins.”
 
-Prior to Congress, Walz was a high school teacher and football coach and served in the Army National Guard. Over more than a decade in Congress, he assembled a fairly centrist voting record. As a first-time campaigner, he opposed a ban on same-sex marriage and supported abortion rights. And once in Congress, he balanced that out with comparatively more conservative positions on gun rights, which resulted in scoring a National Rifle Association endorsement. Walz has since fallen out of favor with the gun lobby over his support for gun safety actions as governor.
+Prior to Congress, Walz was a high school teacher and football coach and served in the Army National Guard, reaching the rank of command sergeant major, one of the highest ranks an enlisted member can attain. Over more than a decade in Congress, he assembled a fairly centrist voting record. As a first-time campaigner, he opposed a ban on same-sex marriage and supported abortion rights. And once in Congress, he balanced that out with comparatively more conservative positions on gun rights, which resulted in scoring a National Rifle Association endorsement. Walz has since fallen out of favor with the gun lobby over his support for gun safety actions as governor.
 
 “I think he was a solid Democratic member of the House with a few twists - focus on ag, farmers, rural areas,” said Democratic strategist Jeff Blodgett, a longtime aide to the late Sen. Paul Wellstone. “I think that he wanted to protect rifles and things of that nature as a rural congressman.”
 
@@ -83,6 +83,8 @@ Democratic strategist Raghu Devaguptapu, a former Democratic Governors Associati
 “He’s not the most charismatic guy, but he’s a steady hand. He’s really thoughtful, very likeable. He’s done a really nice job of building a broad coalition of support. … That’s the center of strength around Tim Walz,” Devaguptapu said.
 
 This story has been updated with additional reporting.
+
+CORRECTION: An earlier version of this story incorrectly stated Walz’s military rank in the Army National Guard. He attained the rank of command sergeant major.
 
 ---
 

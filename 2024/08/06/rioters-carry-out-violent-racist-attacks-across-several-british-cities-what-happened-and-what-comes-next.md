@@ -1,10 +1,10 @@
 # Rioters carry out violent, racist attacks across several British cities. What happened, and what comes next?
 
-Published :`2024-08-06 14:37:10`
+Published :`2024-08-06 15:17:05`
 
 ---
 
-Riots have swept Britain over recent days, and more outbreaks of anti-immigrant violence are feared this week, leaving the new UK government scrambling to control the worst disorder in more than a decade.
+Riots have swept Britain over recent days, and more outbreaks of far-right, anti-immigrant violence are feared this week, leaving the new UK government scrambling to control the worst disorder in more than a decade.
 
 Police officers were injured in Plymouth on Monday night as angry crowds descended on the coastal city in southwest England.
 
@@ -92,7 +92,7 @@ Starmer ordered courts to open 24 hours to process rioters and looters swiftly 
 
 But Starmer also faces unique challenges in 2024, after a decade in which Britain’s public services have complained of underfunding and have been brought close to gridlock.
 
-Fewer than 1,500 spaces were available across prisons in England and Wales as of Friday, the British Ministry of Justice reported on August 2, ahead of a weekend in which hundreds of people were arrested. In July, the UK’s Secretary of State for Justice said that British prisons were “on the point of collapse,” routinely operating at 99% capacity since the start of 2023.
+Fewer than 1,500 spaces were available across prisons in England and Wales as of Friday, the British Ministry of Justice reported on August 2, ahead of a weekend in which hundreds of people were arrested. In July, the UK’s Secretary of State for Justice said that British prisons were “on the point of collapse,” routinely operating at 99% capacity since the start of 2023, though Justice minister Heidi Alexander told broadcasters on Tuesday that additional prison spaces would be freed up soon.
 
 The crisis has abruptly ended Starmer’s post-election honeymoon and caused MPs from across the political spectrum to urge him to recall Parliament, which is in its summer recess, for a debate about the riots. Starmer’s spokesperson said the government is focusing on responding to the riots.
 

@@ -1,18 +1,52 @@
-# We’re about to get the most detailed explanation yet for Boeing’s terrifying mid-air blowout
+# Boeing workers told investigators they had to work too fast to avoid mistakes
 
-Published :`2024-08-06 15:17:11`
+Published :`2024-08-06 15:17:05`
 
 ---
 
-The public already knows a lot about the January 5 Alaska Airlines flight that had a door plug blow out of the side of a Boeing 737 Max as it approached 16,000 feet. We’re potentially about to find out a lot more.
+Workers on the Boeing 737 Max that lost a door plug on a January flight told federal safety investigators that they felt pressure to do their jobs too fast to avoid mistakes, according to testimony released Tuesday at the start of a two-day investigative hearing.
 
-The incident left a gaping hole in the side of the plane, sending oxygen masks falling from the ceiling, tearing off clothing and ripping phones out of passengers’ hands and hurling them into the darkness.
+The revelation came at the start of a two-day hearing Tuesday by the National Transportation Safety Board into the blowout, with investigators questioning Boeing personnel about safety issues at the planemaker and what that might mean for passengers on its ubiquitous planes.
 
-Fortunately, the crew was able to land the crippled jet without any serious injuries. It was a combination of the skill of the flight crew and good luck that no one was killed. The accident did do serious damage to the public’s confidence in plane manufacturer Boeing, prompting a series of federal investigations into its practices and the safety and quality of its aircraft.
+Previously, the NTSB said the door plug ripped off in mid-flight because the plane left a Boeing factory without the four bolts needed to keep the door plug in place.
 
-One of those investigations is being conducted by the National Transportation Safety Board, the federal regulator that investigates all manner of accidents, from railroad derailments to some car crashes to virtually all plane crashes.
+### ‘Cockroaches of the factory’
 
-The NTSB is scheduled to hold 20 hours of public hearings about the Alaska Airlines incident spread over two days, starting Tuesday morning.  It will begin by making public a docket of more than 60 documents running more than 3,800 pages that have been collected in the seven months since the accident. Then will come testimony from NTSB staff investigators and questions from the members of the safety board.
+Many of those documents were transcripts of interviews conducted by NTSB investigators during the seven months since the accident. One of those interviewed, identified only as “Assembler Installer Doors B,” told the investigator that the workload at the Boeing factory was too great to avoid mistakes from being made.
+
+“As far as the workload, I feel like we were definitely trying to put out too much product, right?” said the unidentified Boeing worker. “That’s how mistakes are made. People try to work too fast. I mean, I can’t speak for anybody else, but we were busy. We were working a lot.”
+
+Another worker, identified as a Door Master Lead, said that their team was “put in uncharted waters to where… we were replacing doors like we were replacing our underwear.”
+
+“The planes come in jacked up every day. Every day,” the second worker added.
+
+One FAA inspector at the Boeing factory told NTSB investigators that FAA inspectors have “heard of pressure, [but] haven’t been able to substantiate those claims.”
+
+The fuselage of the plane was manufactured by Boeing supplier Spirit AeroSystems, and it arrived at the Boeing factory with the four bolts in place, according to testimony at the hearing. But there were problems with the rivets by the door plug that needed to be repaired, so the door plug was removed so the work could be done. There were Spirit employees at the Boeing plant, but communication between the Boeing and Spirit workers on the floor of the Boeing factory wasn’t good, according to another interview transcript released Tuesday.
+
+“Well, basically we’re the cockroaches of the factory,” one unidentified Spirit employee told NTSB investigators.
+
+And a Boeing team captain at the 737 factory told investigators of problems of low employee morale and high turnover.
+
+“We have a lot of turnover specifically because, you know, this can be a stressful job, you know,” the Boeing team captain is quoted as saying in one of the transcripts. “What the company wants and what we have the skills and capabilities to perform at the time sometimes that doesn’t coincide, and so some people get disgruntled; they feel like they’re being overworked; they feel like, you know, that we might be getting taken advantage of.”
+
+The January 5 Alaska Airlines flight had the door plug blow out of the side of a Boeing 737 Max as it approached 16,000 feet. The incident left a gaping hole in the side of the plane, sending oxygen masks falling from the ceiling, tearing off clothing and ripping phones out of passengers’ hands and hurling them into the darkness.
+
+Fortunately, the crew was able to land the crippled jet without any serious physical injuries. There were seven passengers and one flight attendant treated for injuries upon landing. It was a combination of the skill of the flight crew and good luck that no one was killed.
+
+But the trauma of being on the flight likely affected many of those aboard the plane, said Jennifer Homendy, the chair of the NTSB, in the opening comments of the hearing.
+
+“Injuries we can’t see, which we often don’t talk about can have profound and lasting impacts on lives and livelihoods,” she said. She offered an apology on behalf of the agency to the people on the flight.
+
+The accident did serious damage to the public’s confidence in plane manufacturer Boeing, prompting a series of federal investigations into its practices and the safety and quality of its aircraft.
+
+Boeing executives in charge of quality control are facing the safety board for questions, including Boeing Commercial Airplanes’ senior vice president of quality Elizabeth Lund. Alongside Lund for half of Tuesday’s hearing is Doug Ackerman, vice president of supplier quality for Boeing Commercial Airplanes.
+
+The NTSB is asking how the Boeing 737 MAX 9 door plug was removed and reinstalled without critical bolts. The NTSB is also seeking answers about the “lack of documentation” on the factory floor, as well as changes the manufacturing Goliath implemented after the incident.
+
+The rare, two-day-long investigative hearing is key to closing the case on the January 5 incident, which led to a 19-day-long grounding of 737 MAX 9s in the United States. The NTSB says it will “use the information gathered to complete the investigation, determine probable cause, and make recommendations to improve transportation safety.”
+
+A final report is still months away.
 
 ### Missing bolts — and missing paperwork
 
@@ -40,7 +74,7 @@ But perhaps most fortunate of all, when the door plug came out, it fell away fro
 
 ### Boeing’s mounting problems
 
-Even after the hearing, it could be the better part of a year before a final report on the incident is released by the NTSB. But the probe is only one of the problems Boeing faces because of the incident.
+But the probe is only one of the problems Boeing faces because of the incident.
 
 There could be criminal charges related to the failures that led to the incident, as the FBI has notified passengers and crew members that they might be considered crime victims.
 
@@ -54,7 +88,7 @@ Boeing’s sales have plunged 70% in the first six months of the this year. In J
 
 ### Last days of current leadership
 
-Boeing will get a new boss the day after the hearing ends, as Dave Calhoun, who has served as CEO since January 2020, steps down and Kelly Ortberg, the former CEO of aerospace supplier Rockwell Collins, assumes the top job.
+Boeing will get a new boss the day after the hearing ends on Wednesday, as Dave Calhoun, who has served as CEO since January 2020, steps down and Kelly Ortberg, the former CEO of aerospace supplier Rockwell Collins, assumes the top job.
 
 Calhoun’s departure is being termed a retirement, and he is 67. But when Boeing’s board waived the retirement age for top executives for Calhoun in 2021 so he didn’t have to retire after two years on the job, he said he intended to stay “as long as they want me.” He could have stayed in the job through 2027 under the waiver granted in 2021.
 
@@ -65,6 +99,8 @@ Calhoun has only testified on Capitol Hill once despite all the attention Boeing
 “Why haven’t you resigned?,” he was asked by Senator Josh Hawley during that hearing.
 
 “Senator, I’m sticking this through,” he replied. But his plans to leave the company by the end of the year had already been announced by the time of the hearing.
+
+CNN’s Owen Dahlkamp, Danya Gainor, Celine Tabor, Nicki Brown, Ramisha Maruf contributed to this report.
 
 ---
 

@@ -1,6 +1,6 @@
 # Zac Efron says he’s ‘happy and healthy’ following reports of brief hospitalization
 
-Published :`2024-08-06 14:37:11`
+Published :`2024-08-06 15:17:11`
 
 ---
 
