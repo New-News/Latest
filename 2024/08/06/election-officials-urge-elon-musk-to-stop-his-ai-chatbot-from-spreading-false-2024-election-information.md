@@ -1,6 +1,6 @@
 # Election officials urge Elon Musk to stop his AI chatbot from spreading false 2024 election information
 
-Published :`2024-08-06 04:19:05`
+Published :`2024-08-06 04:39:57`
 
 ---
 

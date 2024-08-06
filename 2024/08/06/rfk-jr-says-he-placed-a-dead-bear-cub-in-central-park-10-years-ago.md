@@ -1,6 +1,6 @@
 # RFK Jr. says he placed a dead bear cub in Central Park 10 years ago
 
-Published :`2024-08-06 04:19:06`
+Published :`2024-08-06 04:40:00`
 
 ---
 
