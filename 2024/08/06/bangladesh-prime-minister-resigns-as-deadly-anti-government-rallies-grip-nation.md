@@ -1,0 +1,68 @@
+# Bangladesh prime minister resigns as deadly anti-government rallies grip nation
+
+Published :`2024-08-06 01:08:57`
+
+---
+
+The prime minister of Bangladesh, Sheikh Hasina, resigned on Monday after weeks of deadly anti-government demonstrations gripped the South Asian nation.
+
+The announcement from Bangladesh’s army chief, Gen. Waker-uz-Zaman, came after protesters stormed the official residence of the prime minister in the capital, Dhaka.
+
+Images showed flames billowing from vehicles near Hasina’s house, with police unable to contain throngs of people charging toward the neighborhood. Scenes also emerged of people clambering atop an imposing statue of Hasina’s father, independence leader Sheikh Mujibur Rahman, in Dhaka, and carving away at the head with an axe, according to Reuters.
+
+Earlier in the day, the military and police had attacked demonstrators rallying in the area, according to a journalist working for CNN in Dhaka.
+
+At least 91 people were killed and hundreds injured on Sunday in clashes between police and protesters demanding the scrapping of quotas for government jobs and the resignation of the prime minister. Opponents say the civil service job quotas are discriminatory.
+
+The death toll on Sunday, which included 13 police officers, was the highest for a single day from any protests in the country’s recent history. The figure surpassed the 67 deaths reported on July 19, when students took to the streets against the quotas, Reuters reported. At least 32 children were killed during protests last month, UNICEF said on Friday.
+
+The widespread unrest – which spilled into the cities of Rajshahi, Barisal and Chittagong among others – prompted the government to impose an indefinite nationwide curfew over the weekend. Meanwhile, human rights groups accused authorities of using excessive force against protesters, a charge the government denies.
+
+The military will form an interim government in the wake of Hasina’s resignation, according to the army chief, who called on students “to maintain peace and help us.”
+
+“Whatever demands you have, we will fulfil and bring back peace to the nation, please help us in this, stay away from violence,” Zaman said on Monday. He added that “the military will not fire at anyone, the police will not fire at anyone, I have given orders.”
+
+The US embassy in Dhaka urged US citizens to “shelter in a safe place,” in new travel guidance issued Monday. Authorities added that US nationals in the capital should consider returning to their home country, amid the “unpredictable and volatile” atmosphere.
+
+The main flight hub in Dhaka, the Hazrat Shahjalal International Airport, was temporarily closed following Hasina’s resignation, according to the Bangladesh Sangbad Sangstha (BSS) state news agency.
+
+Just on Sunday, Hasina had accused student protesters of being “terrorists,” attempting to “destabilize the nation,” Reuters reported. “I appeal to our countrymen to suppress these terrorists with a strong hand,” she said.
+
+Earlier this year human rights organizations expressed concern over increased reports of political violence, following a general election that saw Hasina secure a fourth consecutive term in office.
+
+The main opposition Bangladesh Nationalist Party boycotted the national vote in January, as critics warned Hasina and her government were headed toward a one-party system marred by accusations of authoritarianism.
+
+People reacted with a mixture of jubilation and cynicism following her resignation on Monday.
+
+“Hasina may be gone, but there is still a long road ahead for Bangladesh – until our religious minorities and ethnic minorities are protected and justice comes to them too, the nation is not free,” Khatib Zahin, 28, told CNN.
+
+Another resident, Arifeen Mahmood Khan, said: “Let’s be better, stronger and kinder than we’ve ever been before. Let’s work together to build a better Bangladesh we’ve always dreamed of.”
+
+### Police ‘brutally beating’ protesters
+
+Police opened fire on protesters in Dhaka earlier in the day, according to a journalist working for CNN, even as security forces have been under scrutiny for unleashing a wave of brutality on demonstrators.
+
+At least four people sustained injuries as protesters were gathering at Dhaka Medical College on Monday, according to the journalist. One of those people was shot in the head.
+
+Protesters told CNN that ⁠the military was blocking Dhaka Medical College Bakshibazar Gate. Police also used tear gas on protesters there, according to a demonstrator on the ground.
+
+Students and protesters at Dhaka University Campus and the Shaheed Minar, a national monument in the capital, were beaten by police as they assembled at these locations.
+
+Protesters there said that the police had attempted to break up the crowd by “brutally beating” them with bamboo sticks and using tear gas.
+
+“Direct open firing took place in Shahbag area 15 minutes ago. We don’t have an estimate of how many were injured. It is still ongoing. Near Motijhil Shantinagar, tear gas has been fired on common people,” one demonstrator told CNN.
+
+In other locations across Dhaka, the military has also fired warning shots in the sky and towards protesters.
+
+Details and videos are scant as Bangladesh is in the midst of a “near-total national internet shutdown after earlier social media and mobile cuts” according to data from Netblocks, a global internet monitor.
+
+Video posted on social media and verified by CNN showed security forces launching live rounds into the air near protesters on the N1 highway in Dhaka.
+
+Protesters in Dhaka told CNN that the university campus had been surrounded by armed forces.
+
+This is a developing story and will be updated.
+
+Correction: This story has been updated to reflect the fact that at least 91 people were killed in clashes on Sunday.
+
+---
+
