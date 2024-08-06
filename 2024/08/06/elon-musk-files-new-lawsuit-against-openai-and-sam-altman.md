@@ -1,6 +1,6 @@
 # Elon Musk files new lawsuit against OpenAI and Sam Altman
 
-Published :`2024-08-06 01:09:00`
+Published :`2024-08-06 02:22:49`
 
 ---
 

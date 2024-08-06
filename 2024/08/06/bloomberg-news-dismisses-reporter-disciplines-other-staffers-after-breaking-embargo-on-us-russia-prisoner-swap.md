@@ -1,6 +1,6 @@
 # Bloomberg News dismisses reporter, disciplines other staffers after breaking embargo on US-Russia prisoner swap
 
-Published :`2024-08-06 01:08:58`
+Published :`2024-08-06 02:22:47`
 
 ---
 
@@ -12,7 +12,7 @@ Bloomberg’s reporting “could have endangered the negotiated swap that set th
 
 Bloomberg’s Standards editor conducted a “full investigation,” Micklethwait added, and as a result the outlet was taking “disciplinary action against a number of those involved” and will be reviewing their process to make sure such “failures like this don’t happen again.”
 
-Senior White House reporter Jennifer Jacobs, who was the first byline on the initial story reporting that Gershkovich had been released, was dismissed as a result of the investigation, a person familiar with the matter said.
+Senior White House reporter Jennifer Jacobs, who was the lead author on the initial story, was dismissed as a result of the investigation, a person familiar with the matter said.
 
 “In reporting the story about Evan’s release, I worked hand in hand with my editors to adhere to editorial standards and guidelines,” Jacobs said in a statement Monday. “At no time did I do anything that was knowingly inconsistent with the administration’s embargo or that would put anyone involved at risk.”
 

@@ -1,6 +1,6 @@
 # New Miss USA crowned, capping tumultuous year of pageant controversy
 
-Published :`2024-08-06 01:09:03`
+Published :`2024-08-06 02:22:51`
 
 ---
 
