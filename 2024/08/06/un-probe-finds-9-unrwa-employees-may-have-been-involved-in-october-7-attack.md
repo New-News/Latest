@@ -1,6 +1,6 @@
 # UN probe finds 9 UNRWA employees ‘may have’ been involved in October 7 attack
 
-Published :`2024-08-06 11:36:36`
+Published :`2024-08-06 12:29:47`
 
 ---
 
@@ -10,7 +10,7 @@ UNRWA has 14,000 staff members in Gaza.
 
 The investigation was launched in January after Israel accused some UNRWA employees of participating in the attack that left 1,200 people in Israel dead. UN investigators were not able to speak with the accused, though some accused responded to written questions.
 
-Some on the nine were fired in January, when Israel made its allegations. Others were fired after new assertions were made this spring, Juliette Touma, a spokesperson for the UN Relief and Works Agency for Palestine Refugees in the Near East (UNRWA), told CNN.
+Some on the nine were fired in January, when Israel made its allegations. Others were fired after new assertions were made this spring, Juliette Touma, communications director for the UN Relief and Works Agency for Palestine Refugees in the Near East (UNRWA), told CNN.
 
 The UN’s Office of Internal Oversight Services (OIOS) investigated a total of 19 employees who were accused by Israel of participation in the attack.
 

@@ -1,6 +1,6 @@
 # Rioters carry out violent, racist attacks across several British cities. What happened, and what comes next?
 
-Published :`2024-08-06 11:36:34`
+Published :`2024-08-06 12:29:47`
 
 ---
 
@@ -71,6 +71,16 @@ Starmer’s decision Sunday to double-down on his message, made earlier in the w
 Musk himself wrote on X over the weekend that “civil war is inevitable,” in response to a post on the platform that blamed the riots on “mass migration and open borders.”
 
 On Monday, the prime minister’s spokesperson told reporters “there’s no justification for comments like that,” adding that Starmer “wouldn’t share those sentiments.”
+
+### Who is behind the riots?
+
+Plans to engage in violent gatherings have been spread on messaging apps such as Telegram several days in advance, often encouraging attendees to shield their faces, or using coded language that stirs up anger at immigration without explicitly calling for violence.
+
+A long list of locations of migration centers around the country has been circulated in such groups ahead of a night of anticipated disorder on Wednesday.
+
+ITV News reported that a man convicted of being a member of a banned neo-Nazi organization in 2018 was among those present at last week’s Southport protests, which sparked the wave of far-right action around the country.
+
+Many leading figures in right-wing or far-right circles have meanwhile encouraged the organization of anti-migrant protests online, using heated anti-Muslim or anti-immigrant rhetoric, while distancing themselves from the violence and attacks on police after they have occurred.
 
 ### Starmer faces first crisis
 

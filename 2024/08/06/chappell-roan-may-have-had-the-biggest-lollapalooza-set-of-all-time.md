@@ -1,6 +1,6 @@
 # Chappell Roan may have had the biggest Lollapalooza set of all time
 
-Published :`2024-08-06 11:36:36`
+Published :`2024-08-06 12:29:47`
 
 ---
 

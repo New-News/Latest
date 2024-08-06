@@ -1,6 +1,6 @@
 # ‘We shoot first, ask questions later’: Why some Israeli reservists refuse to go back to Gaza
 
-Published :`2024-08-06 11:36:34`
+Published :`2024-08-06 12:29:47`
 
 ---
 

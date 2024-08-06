@@ -1,6 +1,6 @@
 # Belgium drops out of mixed triathlon and Switzerland shuffles line-up after athletes fall ill following race in River Seine
 
-Published :`2024-08-06 11:36:41`
+Published :`2024-08-06 12:29:49`
 
 ---
 

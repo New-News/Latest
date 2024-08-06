@@ -1,6 +1,6 @@
 # Mondo Duplantis breaks pole vault world record for the ninth time in his career
 
-Published :`2024-08-06 11:36:36`
+Published :`2024-08-06 12:29:47`
 
 ---
 
@@ -26,9 +26,15 @@ After clearing 6.10m on his first attempt, taking the Olympic record from Brazil
 
 Hitting the bar on his first two attempts, he scaled the previously untouched height with his third – a thrilling gloss on the gold medal he had won earlier in the competition.
 
+Duplantis’ success in the pole vault has been years in the making. While many athletes don’t take up the sport until their teenage years, Duplantis has been honing his craft since the age of three when his parents had a pole vault set-up installed in their Louisiana backyard.
+
+His father, Greg Duplantis, was a professional pole vaulter competing for the United States, while his mother, Helena, competed in heptathlon for Sweden. Both are part of their son’s coaching team and have been instrumental in his success to date.
+
+Although raised in the US, Duplantis has chosen to follow in his mother’s footsteps and compete internationally for Sweden.
+
 Since first breaking the world record in February 2020, Duplantis has made a habit of pushing his own boundaries. His most recent record was set in Xiamen, China, three-and-a-half months ago, and prior to that he had told CNN that “I have higher heights in me.”
 
-Clearly, Duplantis keeps making good on that promise. He was still soaking in the moment as the stadium emptied on Monday, lapping the track with a Swedish flag draped over his shoulders.
+Clearly, Duplantis keeps making good on that promise, consistently improving on his world record one centimeter at a time. He was still soaking in the moment as the stadium emptied on Monday, lapping the track with a Swedish flag draped over his shoulders.
 
 It will surely only be a matter of time before he’s celebrating a world record once again.
 
