@@ -1,6 +1,6 @@
 # Artistic swimming due to kick off in Paris – without any men
 
-Published :`2024-08-06 21:36:13`
+Published :`2024-08-06 22:15:06`
 
 ---
 

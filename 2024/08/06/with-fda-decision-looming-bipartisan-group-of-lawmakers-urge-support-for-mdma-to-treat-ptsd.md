@@ -1,6 +1,6 @@
 # With FDA decision looming, bipartisan group of lawmakers urge support for MDMA to treat PTSD
 
-Published :`2024-08-06 21:36:14`
+Published :`2024-08-06 22:15:07`
 
 ---
 
