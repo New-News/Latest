@@ -1,6 +1,6 @@
 # Bangladesh’s ‘Gen Z revolution’ toppled a veteran leader. Why did they hit the streets and what happens now?
 
-Published :`2024-08-06 08:38:57`
+Published :`2024-08-06 09:16:30`
 
 ---
 
@@ -12,7 +12,9 @@ Hasina’s abrupt exit ends 15 years in power that has been marked by a stifling
 
 In a national address, Bangladesh’s army chief Gen. Waker-uz-Zaman said the military would form an interim government, but student protest leaders have called for Nobel laureate Muhammad Yunus to lead a temporary administration.
 
-What began as initially peaceful protests by students against civil service job quotas morphed into a nationwide push to force Hasina out after demonstrators were met with a government crackdown that killed about 300 people, according to local media and agencies.
+Later on Tuesday, a source at the Yunus Centre think tank in Dhaka confirmed to CNN that its founder had agreed to return to Bangladesh to fulfil the protesters’ request for him to serve as head of the interim government, while the country’s main opposition party offered its full support to student protesters.
+
+What began as peaceful protests by students against civil service job quotas morphed into a nationwide push to force Hasina out after demonstrators were met with a government crackdown that killed about 300 people, according to local media and agencies.
 
 Hasina blamed the opposition for the violence and imposed internet blocks and an indefinite curfew across the country.
 
@@ -78,7 +80,7 @@ Student leader Muhammad Nahid Islam said they hadn’t met all of their goals, a
 
 The protest group say the interim government should be led by Yunus, a social entrepreneur and banker who won the 2006 Nobel Peace Prize for his pioneering microfinance work that helped alleviate poverty in Bangladesh.
 
-“We have given our blood, we have been martyred, our vision of forming a new Bangladesh will now have to be realized,” student leader Islam said.
+Yunus will soon return to Bangladesh with the intention to take up the post “after a minor medical procedure in Paris,” a source told CNN. The Students Against Discrimination group also confirmed his return, telling CNN in a text message: “We are very delighted to say that Dr. Yunus has agreed to accept this challenge to save Bangladesh as per our student’s request.”
 
 Speaking to CNN Monday, Yunus said he wanted to see the army hand control of the country to a civilian government.
 

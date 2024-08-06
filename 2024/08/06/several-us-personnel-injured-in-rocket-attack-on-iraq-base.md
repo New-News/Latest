@@ -1,6 +1,6 @@
 # ‘Several’ US personnel injured in rocket attack on Iraq base
 
-Published :`2024-08-06 08:38:57`
+Published :`2024-08-06 09:16:30`
 
 ---
 
