@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-06 17:14:51`
+#### Latest Update : `2024-08-06 17:36:45`
 
 ## Latest News Grabbing 
 
 ---
+
+- [‘Going to a very bad place’: Israeli reservists who refuse to return to Gaza cite military’s destructive approach](https://new-news.github.io/Latest/2024/08/06/going-to-a-very-bad-place--israeli-reservists-who-refuse-to-return-to-gaza-cite-military-s-destructive-approach '‘Going to a very bad place’: Israeli reservists who refuse to return to Gaza cite military’s destructive approach')
 
 - [The math behind why Harris picked Walz and why she may regret it](https://new-news.github.io/Latest/2024/08/06/the-math-behind-why-harris-picked-walz-and-why-she-may-regret-it 'The math behind why Harris picked Walz and why she may regret it')
 
@@ -53,8 +55,6 @@
 - [Bloomberg gives $600 million to 4 Black medical schools’ endowments](https://new-news.github.io/Latest/2024/08/06/bloomberg-gives-600-million-to-4-black-medical-schools-endowments 'Bloomberg gives $600 million to 4 Black medical schools’ endowments')
 
 - [Who is Gwen Walz, the wife of Harris’ new running mate?](https://new-news.github.io/Latest/2024/08/06/who-is-gwen-walz-the-wife-of-harris-new-running-mate 'Who is Gwen Walz, the wife of Harris’ new running mate?')
-
-- [‘Going to a very bad place’: Israeli reservists who refuse to return to Gaza cite military’s destructive approach](https://new-news.github.io/Latest/2024/08/06/going-to-a-very-bad-place--israeli-reservists-who-refuse-to-return-to-gaza-cite-military-s-destructive-approach '‘Going to a very bad place’: Israeli reservists who refuse to return to Gaza cite military’s destructive approach')
 
 - [Dr. Sanjay Gupta On Call: What are your questions about staying healthy as kids head back to school?](https://new-news.github.io/Latest/2024/08/06/dr-sanjay-gupta-on-call-what-are-your-questions-about-staying-healthy-as-kids-head-back-to-school 'Dr. Sanjay Gupta On Call: What are your questions about staying healthy as kids head back to school?')
 

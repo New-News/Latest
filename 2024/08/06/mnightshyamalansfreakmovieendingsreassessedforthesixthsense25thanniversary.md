@@ -1,6 +1,6 @@
 # M. Night Shyamalan’s freak movie endings reassessed, for the ‘Sixth Sense’ 25th anniversary
 
-Published :`2024-08-06 17:14:47`
+Published :`2024-08-06 17:36:39`
 
 ---
 
