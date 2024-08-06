@@ -1,6 +1,6 @@
 # Olympic moment of the day: Cindy Ngamba wins first ever medal for Refugee Olympic Team
 
-Published :`2024-08-06 05:36:44`
+Published :`2024-08-06 06:23:03`
 
 ---
 
