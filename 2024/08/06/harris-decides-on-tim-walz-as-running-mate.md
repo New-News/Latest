@@ -1,6 +1,6 @@
 # Harris decides on Tim Walz as running mate
 
-Published :`2024-08-06 22:37:07`
+Published :`2024-08-06 23:15:21`
 
 ---
 
@@ -24,7 +24,7 @@ Trump’s campaign has already begun crafting a narrative around Harris decision
 
 Trump campaign press secretary Karoline Leavitt said in a statement that Walz “has spent his governorship trying to reshape Minnesota in the image of the Golden State.”
 
-### A cutting advocate
+### An energetic advocate
 
 A former educator, Walz is currently in his second term as Minnesota governor and chairs the Democratic Governors Association. He previously served 12 years in Congress, representing a conservative-leaning rural district that, both before and after his tenure, has been mostly dominated by Republicans.
 

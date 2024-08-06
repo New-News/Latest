@@ -1,6 +1,6 @@
 # Tech had a rough day. But don’t call it a dot-com meltdown moment yet
 
-Published :`2024-08-06 22:37:07`
+Published :`2024-08-06 23:15:22`
 
 ---
 
