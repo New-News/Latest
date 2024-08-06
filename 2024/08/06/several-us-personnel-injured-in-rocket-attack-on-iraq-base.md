@@ -1,6 +1,6 @@
 # ‘Several’ US personnel injured in rocket attack on Iraq base
 
-Published :`2024-08-06 10:44:31`
+Published :`2024-08-06 11:13:23`
 
 ---
 
@@ -13,6 +13,10 @@ The US Defense Department late Monday blamed Iran-aligned militia groups for the
 A Pentagon readout of a call between US Defense Secretary Lloyd Austin and Israeli Defense Minister Yoav Gallant said the two men “agreed that today’s Iran-aligned militia attack on U.S. forces stationed at Al-Asad Airbase in western Iraq marked a dangerous escalation and demonstrated Iran’s destabilizing role in the region.”
 
 Austin reiterated to Gallant “unwavering U.S. commitment to Israel’s security in the face of threats from Iran, Lebanese Hizballah, and other Iran-aligned militia groups,” according to the readout.
+
+A vehicle carrying rockets was intercepted by the Iraqi military Monday after the attack. The Iraqi military said in a statement that two rockets were launched from the vehicle in the Haditha district, with eight more being prepared for launch.
+
+The statement added that the perpetrators of the attack are currently being pursued and that leaders, commanders and officers responsible for the “security breaches in the area” will be held accountable.
 
 The attack comes amid extremely high tensions in the Middle East, as the US has been bracing for Iranian retaliation against Israel over the assassination of Hamas political leader Ismail Haniyeh in Tehran last week. Israel has not commented on the killing of Haniyeh. Hezbollah in Lebanon has also vowed retaliation on Israel after the assassination of one of its top commanders in Beirut less than a day before Haniyeh’s killing.
 
