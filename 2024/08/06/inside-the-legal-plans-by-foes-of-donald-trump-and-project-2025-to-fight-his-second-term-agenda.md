@@ -1,6 +1,6 @@
 # Inside the legal plans by foes of Donald Trump and Project 2025 to fight his second-term agenda
 
-Published :`2024-08-06 08:18:55`
+Published :`2024-08-06 08:39:00`
 
 ---
 
