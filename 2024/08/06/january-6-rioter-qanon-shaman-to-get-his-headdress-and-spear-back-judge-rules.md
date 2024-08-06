@@ -1,6 +1,6 @@
 # January 6 rioter ‘QAnon Shaman’ to get his headdress and spear back, judge rules
 
-Published :`2024-08-06 15:17:09`
+Published :`2024-08-06 15:36:31`
 
 ---
 

@@ -1,6 +1,6 @@
 # Boeing workers told investigators they had to work too fast to avoid mistakes
 
-Published :`2024-08-06 15:17:05`
+Published :`2024-08-06 15:36:30`
 
 ---
 
