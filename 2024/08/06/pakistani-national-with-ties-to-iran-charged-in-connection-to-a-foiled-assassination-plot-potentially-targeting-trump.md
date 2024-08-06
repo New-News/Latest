@@ -1,6 +1,6 @@
 # Pakistani national with ties to Iran charged in connection to a foiled assassination plot potentially targeting Trump
 
-Published :`2024-08-06 21:14:13`
+Published :`2024-08-06 21:36:08`
 
 ---
 
@@ -19,6 +19,8 @@ The FBI investigated the alleged international murder-for-hire plot in the wee
 The FBI believes it foiled Merchant’s plot before any attack, and in the weeks since his arrest he has cooperated with investigators, according to US officials. But the Iranian government’s known threats against Trump, prompted the FBI to pass on the intelligence to the US Secret Service, which increased security protection for the former president, officials have said.
 
 As part of the plot, prosecutors say, Merchant was seeking men to commit the actual assassinations, a woman to do “reconnaissance,” and around 25 people “who could perform a protest as a distraction after the murder occurred.”
+
+A lawyer for Merchant denied that he was cooperating with authorities, saying the claim was “inaccurate” and “irresponsible.”
 
 The plot revealed by US prosecutors on Tuesday adds to a growing list of detailed Iranian plans to allegedly kill Trump, according to national security officials.
 
