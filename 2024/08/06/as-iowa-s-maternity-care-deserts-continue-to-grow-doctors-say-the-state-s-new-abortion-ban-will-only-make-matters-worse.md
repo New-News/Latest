@@ -1,6 +1,6 @@
 # As Iowa’s maternity care deserts continue to grow, doctors say the state’s new abortion ban will only make matters worse
 
-Published :`2024-08-06 09:35:58`
+Published :`2024-08-06 10:17:04`
 
 ---
 
