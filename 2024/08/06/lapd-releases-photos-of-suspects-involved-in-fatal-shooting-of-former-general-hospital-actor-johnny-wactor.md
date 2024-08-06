@@ -1,6 +1,6 @@
 # LAPD releases photos of suspects involved in fatal shooting of former ‘General Hospital’ actor Johnny Wactor
 
-Published :`2024-08-06 02:22:51`
+Published :`2024-08-06 02:48:32`
 
 ---
 

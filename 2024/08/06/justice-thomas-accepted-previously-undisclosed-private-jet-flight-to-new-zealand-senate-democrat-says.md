@@ -1,6 +1,6 @@
 # Justice Thomas accepted previously undisclosed private jet flight to New Zealand, Senate Democrat says
 
-Published :`2024-08-06 02:22:47`
+Published :`2024-08-06 02:48:31`
 
 ---
 
