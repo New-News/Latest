@@ -1,6 +1,6 @@
 # Police recruit who lost both legs in ‘barbaric hazing ritual’ sues Denver, paramedics and officers
 
-Published :`2024-08-06 03:37:18`
+Published :`2024-08-06 04:19:06`
 
 ---
 
