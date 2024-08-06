@@ -1,6 +1,6 @@
 # Chicago White Sox tie American League record with 21st straight loss
 
-Published :`2024-08-06 11:13:23`
+Published :`2024-08-06 11:36:34`
 
 ---
 

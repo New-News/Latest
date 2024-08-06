@@ -1,6 +1,6 @@
 # Trump and Vance rally in battleground Georgia looking to put recent struggles behind them
 
-Published :`2024-08-06 11:13:31`
+Published :`2024-08-06 11:36:44`
 
 ---
 

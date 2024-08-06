@@ -1,6 +1,6 @@
 # Google loses massive antitrust lawsuit over its search dominance
 
-Published :`2024-08-06 11:13:24`
+Published :`2024-08-06 11:36:34`
 
 ---
 
@@ -26,13 +26,17 @@ The White House called the ruling “a victory for the American people.”
 
 “As President Biden and Vice President Harris have long said, Americans deserve an internet that is free, fair, and open for competition,” White House Press Secretary Karine Jean-Pierre said in a statement Monday night.
 
-Google did not immediately respond to a request for comment. This case is distinct from a separate antitrust suit brought by the Biden administration against Google in 2023 related to the company’s advertising technology business. That case is expected to head to trial in early September.
+Google said in a statement that it plans to appeal the decision, and that Mehta’s opinion recognized Google as the internet’s best search engine — an argument the company had made in court as the reason consumers preferred Google over the competition.
+
+“As this process continues, we will remain focused on making products that people find helpful and easy to use,” said Kent Walker, Google’s president of global affairs, in a post on X, formerly Twitter.
+
+This case is distinct from a separate antitrust suit brought by the Biden administration against Google in 2023 related to the company’s advertising technology business. That case is expected to head to trial in early September.
 
 But Monday’s decision marks the second high-profile antitrust defeat for Google after a federal jury in California said in December that Google runs an illegal monopoly with its proprietary app store. The court in that case is still deliberating possible remedies.
 
 ### Possible penalties
 
-Mehta’s decision is expected to trigger a separate proceeding to determine what penalties Google will face — after which point the company is also likely to file an appeal, meaning it may take months or even years for any potential consequences to play out. But the ruling could ultimately upend how Google makes its search engine available to users, by impacting its ability to make the pricey deals with device makers and online service providers that were at the heart of the case.
+Mehta’s decision is expected to trigger a separate proceeding to determine what penalties Google will face. Together with Google’s coming appeal, the entire process may take months or even years for any potential consequences to play out. But the ruling could ultimately upend how Google makes its search engine available to users, by impacting its ability to make the pricey deals with device makers and online service providers that were at the heart of the case.
 
 Other remedies could be on the table, too. For example, the court could force Google to implement a “choice screen” letting users know about other available search engines, Vanderbilt University law professor Rebecca Allensworth told CNN.
 
@@ -56,7 +60,7 @@ However, Adam Kovacevich, founder of the tech advocacy group Chamber of Progress
 
 The decision won’t just affect users of Google’s search engine. It will also have ripple effects across the economy as businesses digest the message Mehta is sending about business contracts, Moss said.
 
-The ruling could also be a bellwether for other major tech antitrust cases, including against Apple and Amazon. Both Amazon and Apple have called the antitrust lawsuits filed against them “wrong on the facts and the law.” It could also boost to the Justice Department’s antitrust lawsuit against Live Nation, the parent of Ticketmaster, Moss said said, given how central exclusivity deals are to that lawsuit.
+The ruling could also be a bellwether for other major tech antitrust cases, including against Apple and Amazon. Both Amazon and Apple have called the antitrust lawsuits filed against them “wrong on the facts and the law.” It could also boost to the Justice Department’s antitrust lawsuit against Live Nation, the parent of Ticketmaster, Moss said, given how central exclusivity deals are to that lawsuit.
 
 “There are a lot of parts of the government’s arguments in its case against Google that are puzzle pieces to their other cases,” Allensworth said.
 

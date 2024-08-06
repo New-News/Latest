@@ -1,6 +1,6 @@
 # In photos: A photographer’s journey with the Palestinian Bedouin
 
-Published :`2024-08-06 11:13:23`
+Published :`2024-08-06 11:36:35`
 
 ---
 
