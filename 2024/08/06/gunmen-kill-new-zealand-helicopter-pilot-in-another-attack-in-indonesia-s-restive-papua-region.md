@@ -1,6 +1,6 @@
 # Gunmen kill New Zealand helicopter pilot in another attack in Indonesia’s restive Papua region
 
-Published :`2024-08-06 18:21:34`
+Published :`2024-08-06 18:40:40`
 
 ---
 

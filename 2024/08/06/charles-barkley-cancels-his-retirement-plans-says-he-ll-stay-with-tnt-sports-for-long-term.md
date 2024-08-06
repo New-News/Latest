@@ -1,6 +1,6 @@
 # Charles Barkley cancels his retirement plans, says he’ll stay with TNT Sports for long term
 
-Published :`2024-08-06 18:21:33`
+Published :`2024-08-06 18:40:39`
 
 ---
 
@@ -26,9 +26,9 @@ A person familiar with the matter said TNT Sports intends to work with Barkley i
 
 The decision by Barkley — who co-hosts the beloved “Inside the NBA” program alongside Ernie Johnson, Kenny Smith, and Shaquille O’Neal — to remain with TNT Sports comes just weeks after WBD sued the NBA over its rejection of an offer to match a $1.8 billion per year bid from Amazon to stream the league’s games. WBD is the parent company of TNT and CNN.
 
-Barkley’s decision to remain with the company, despite other offers may demonstrate WBD’s confidence that it can win its lawsuit against the NBA or an attempt to hamstring NBCUniversal, Disney and Amazon as the trio consider potential offers to the hosts of the TNT broadcast.
+Barkley’s decision to remain with the company, despite other offers may demonstrate WBD’s confidence that it can win its lawsuit against the NBA or an attempt to hamstring NBCUniversal, Disney and Amazon as the media rivals consider potential offers to the hosts of the TNT broadcast.
 
-While WBD takes the NBA to court over broadcast rights, the company has inked a 10-year deal to become the new US home for the French Open tennis tournament beginning in 2025, and signed a five-year deal with Disney’s ESPN to air two first-round College Football Playoff games this season and two additional quarterfinal matchups beginning in 2026.
+While WBD takes the NBA to court over its broadcast rights, the company has been working to strengthen its live sports portfolio. In recent months, the company inked a 10-year deal to become the new US home for the French Open tennis tournament beginning in 2025, and signed a five-year deal with Disney’s ESPN to air two first-round College Football Playoff games this season and two additional quarterfinal matchups beginning in 2026.
 
 ---
 

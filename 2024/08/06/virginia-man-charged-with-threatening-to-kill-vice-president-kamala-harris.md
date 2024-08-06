@@ -1,6 +1,6 @@
 # Virginia man charged with threatening to kill Vice President Kamala Harris
 
-Published :`2024-08-06 18:21:34`
+Published :`2024-08-06 18:40:41`
 
 ---
 

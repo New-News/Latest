@@ -1,6 +1,6 @@
 # Alabama settles lawsuit with death row inmate set to become second executed by nitrogen gas
 
-Published :`2024-08-06 18:21:33`
+Published :`2024-08-06 18:40:39`
 
 ---
 
