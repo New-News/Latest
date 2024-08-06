@@ -1,6 +1,6 @@
 # US women’s soccer team to play Brazil in final as Marta bids for golden farewell
 
-Published :`2024-08-06 22:15:04`
+Published :`2024-08-06 22:37:06`
 
 ---
 

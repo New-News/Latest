@@ -1,6 +1,6 @@
 # Microsoft lashes out at Delta: Your ancient tech caused the service meltdown
 
-Published :`2024-08-06 22:15:04`
+Published :`2024-08-06 22:37:06`
 
 ---
 
