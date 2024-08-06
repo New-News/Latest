@@ -1,6 +1,6 @@
 # Nigeria, Australia and several other countries warn about travel to UK amid riots
 
-Published :`2024-08-06 18:40:40`
+Published :`2024-08-06 19:12:01`
 
 ---
 

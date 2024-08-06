@@ -1,6 +1,6 @@
 # Former Kansas police chief will face criminal charge after raid on newspaper, prosecutors say
 
-Published :`2024-08-06 18:40:40`
+Published :`2024-08-06 19:12:00`
 
 ---
 
