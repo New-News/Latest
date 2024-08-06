@@ -1,6 +1,6 @@
 # Arizona AG drops election subversion charges against former Trump lawyer Jenna Ellis in exchange for testimony
 
-Published :`2024-08-06 12:56:21`
+Published :`2024-08-06 13:20:22`
 
 ---
 

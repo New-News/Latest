@@ -1,6 +1,6 @@
 # Mali severs diplomatic relations with Ukraine for providing intelligence to rebels for Wagner ambush
 
-Published :`2024-08-06 12:56:24`
+Published :`2024-08-06 13:20:24`
 
 ---
 

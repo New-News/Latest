@@ -1,0 +1,66 @@
+# Harris decides on Tim Walz as running mate
+
+Published :`2024-08-06 13:20:21`
+
+---
+
+Vice President Kamala Harris has made a decision on her running mate, with four people close to the process saying Gov. Tim Walz of Minnesota is her choice.
+
+The selection caps the Midwestern Democrat’s short but swift ascent from a relative unknown to a leading driver of the party’s attacks on Donald Trump and the MAGA agenda.
+
+Harris had not formally called Walz to offer him the position, a source familiar with process told CNN.
+
+A former educator, Walz is currently in his second term as Minnesota governor and chairs the Democratic Governors Association. He previously served 12 years in Congress, representing a conservative-leaning rural district that, both before and after his tenure, has been mostly dominated by Republicans.
+
+In the time leading up to his selection as Harris’ running mate, Walz had first been an outspoken defender of Joe Biden following his disastrous debate performance as calls for the president to end his reelection bid escalated. When Biden did drop out, Walz endorsed Harris the next day and has since emerged as a reliable, energetic and cutting advocate for the presumptive Democratic nominee.
+
+Picking Walz also underscores the Harris campaign’s focus on a path to victory that puts a premium on the “blue wall” states of the Midwest. Minnesota is slightly outside that sphere, but Walz, once a high school football coach, has evolved during his time in office into something of a progressive populist folk hero – the exact kind of pugilistic voice that Democrats taking on  Trump are keen to highlight.
+
+He has over the past week delivered a handful of memorable haymakers against Republicans, though his most notable contribution has been a determination to label the GOP, especially its presidential ticket of Trump and Ohio Sen. JD Vance. Walz has referred to the duo as “weird dudes,” before lighting into their political agenda.
+
+The phrase has stuck, becoming a central meme in the new, post-Biden version of the campaign, a development that is delighting Democrats and apparently frustrating many on the right.
+
+During recent remarks at a “White Dudes for Harris” fundraiser, Walz made a rough-and-ready case for the vice president before would-be small-dollar donors.
+
+“How often in 100 days do you get to change the trajectory of the world? How often in 100 days do you get to do something that’s going to impact generations to come?” Walz asked. “And how often in the world do you make that bastard wake up afterwards and know that a Black woman kicked his a**, sent him on the road?”
+
+The line was well received on the call and almost immediately grabbed headlines. For many Democrats, at least, the online virality – with apologies to Biden’s “Dark Brandon” meme – was the kind they have pined for over the past few years.
+
+Walz also has a personal story befitting the zeitgeist – a family history, as he discussed last month, of infertility troubles, with his wife of three decades, Gwen, which allows him to speak with some authority against opponents or skeptics of in vitro fertilization, or IVF.
+
+“My oldest daughter’s name is Hope. That’s because my wife and I spent seven years trying to get pregnant, needed fertility treatments, things like IVF – things (MAGA Republicans) would ban,” Walz told Harris supporters. “These guys are the anti-freedoms.”
+
+And to draw a bright, cheeky line under his own childhood experience, Walz – not for the last time – recounted that he “grew up in a small town: 400 people, 24 kids in the class, 12 cousins.”
+
+Prior to Congress, Walz was a high school teacher and football coach and served in the Army National Guard. Over more than a decade in Congress, he assembled a fairly centrist voting record. As a first-time campaigner, he opposed a ban on same-sex marriage and supported abortion rights. And once in Congress, he balanced that out with comparatively more conservative positions on gun rights, which resulted in scoring a National Rifle Association endorsement. Walz has since fallen out of favor with the gun lobby over his support for gun safety actions as governor.
+
+“I think he was a solid Democratic member of the House with a few twists - focus on ag, farmers, rural areas,” said Democratic strategist Jeff Blodgett, a longtime aide to the late Sen. Paul Wellstone. “I think that he wanted to protect rifles and things of that nature as a rural congressman.”
+
+Walz ran for governor in 2018, emerging victorious by a double-digit margin. He won reelection in 2022 with 52 percent of the vote. As governor Walz had to grapple with divided government and slim majorities in the state Legislature. But in 2022, the Democratic-Farmer-Labor Party (as the state’s Democratic Party is known) won control of both the state House and Senate giving Walz’s party a slim “trifecta” of legislative control.
+
+That allowed Walz to sign into law a raft of expansive social welfare programs such as free lunch for public school students, expansive access to Medicaid, increased protections that allow workers to unionize and expanded medical and family paid family leave.
+
+Through the trifecta, Minnesota Democrats were also able to codify abortion rights into law, increase transgender rights protections, pass a marijuana legalization bill and install new gun safety laws. Progressives hailed the work as an example of all that Democrats could achieve. Former President Barack Obama wrote in a tweet praising the most recent legislative session that it was a “reminder that elections have consequences.”
+
+Walz touted the trifecta’s work in a combative 2023 State of the State address.
+
+“There’s nowhere quite like Minnesota right now,” he told the audience of lawmakers. “Together, we’re not just showing the people of Minnesota what we’re capable of in delivering on our promises. We’re showing the entire American people just how much promise is contained in that progressive vision held by so many people.”
+
+“As governor, he’s embraced the idea that it’s really important to invest in people and infrastructure to grow the economy,” Blodgett said. “And to do it in a way that really helps people in the middle and down below. To me, it’s just a huge focus on economic issues that are kitchen table issues that people care about.”
+
+When speculation began about who Harris would pick as a running mate, Walz started out as the darkest of dark horses. He did get support from a few members of Congress such as Minnesota Rep. Angie Craig and Washington Rep. Pramila Jayapal of the Congressional Progressive Caucus, as well as encouragement from labor unions. In the end, Walz’s background as a governor experienced in working with Democrats and Republicans and his roots in rural Minnesota made him an appealing choice for Harris.
+
+Walz was also a surprise to Republicans.
+
+“Tim Walz doesn’t even register on the fear-o-meter,” Minnesota Republican strategist Kevin Poindexter said before the announcement, adding that Republicans had been more worried about Harris picking either Arizona Sen. Mark Kelly or Pennsylvania Gov. Josh Shapiro. “Him joining the ticket as VP does not bring anything.”
+
+Walz’s selection means that both the Trump and Harris campaigns have vice presidential nominees who their backers hope will help rally support across the Midwest. Democrats hope Walz’s Minnesota roots will attract a wide swath of voters throughout the region, while Republicans feel that Ohio Sen. JD Vance’s history of growing up in Ohio, as documented in his memoir “Hillbilly Elegy,” will find appeal in blue states like Michigan or even Minnesota.
+
+Democratic strategist Raghu Devaguptapu, a former Democratic Governors Association political director, characterized Walz as a “real steady hand” more than anything else as a governor.
+
+“He’s not the most charismatic guy, but he’s a steady hand. He’s really thoughtful, very likeable. He’s done a really nice job of building a broad coalition of support. … That’s the center of strength around Tim Walz,” Devaguptapu said.
+
+This story has been updated with additional reporting.
+
+---
+

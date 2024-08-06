@@ -1,6 +1,6 @@
 # Israel’s ambassador to Japan criticizes Nagasaki’s peace ceremony invitation snub
 
-Published :`2024-08-06 12:56:23`
+Published :`2024-08-06 13:20:24`
 
 ---
 
