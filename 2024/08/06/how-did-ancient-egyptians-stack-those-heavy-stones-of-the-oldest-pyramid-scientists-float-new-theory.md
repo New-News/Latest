@@ -1,6 +1,6 @@
 # How did ancient Egyptians stack those heavy stones of the oldest pyramid? Scientists float new theory
 
-Published :`2024-08-06 10:17:02`
+Published :`2024-08-06 10:44:32`
 
 ---
 
