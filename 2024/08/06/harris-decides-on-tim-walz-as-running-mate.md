@@ -1,14 +1,30 @@
 # Harris decides on Tim Walz as running mate
 
-Published :`2024-08-06 14:14:13`
+Published :`2024-08-06 14:37:10`
 
 ---
 
-Vice President Kamala Harris has made a decision on her running mate, with four people close to the process saying Gov. Tim Walz of Minnesota is her choice.
+Vice President Kamala Harris has chosen Gov. Tim Walz of Minnesota as her running mate, elevating the teacher and commander in the Army National Guard to join the Democratic ticket and help lead the party’s fight to defeat Donald Trump.
 
-The selection caps the Midwestern Democrat’s short but swift ascent from a relative unknown to a leading driver of the party’s attacks on Donald Trump and the MAGA agenda.
+The selection – which Harris personally delivered to Walz via a video call, according to a source familiar with the matter – caps the Midwestern Democrat’s short but swift ascent from a relative unknown to a leading driver of the party’s attacks against the former president and the MAGA agenda.
 
-Harris had not formally called Walz to offer him the position, a source familiar with process told CNN.
+Walz emerged from the most accelerated vice presidential search in modern history from a shortlist that included half a dozen Democrats, including Pennsylvania Gov. Josh Shapiro and Arizona Sen. Mark Kelly. The vice president held in-person interviews with Walz, Shapiro and Kelly on Sunday.
+
+While Harris and Walz did not enjoy much of a previous relationship, aides said Harris grew increasingly enthused by how Walz genuinely carried himself and found a warm chemistry with him during a final meeting Sunday at her residence at the Naval Observatory. Harris was impressed “by his authenticity,” a person close to the process told CNN.
+
+In a remarkable two-week period, Walz ascended from a third-tier candidate to a final contender in the view of Harris and her vetting team. He was propelled by support from across the Democratic Party, progressive and moderate groups alike.
+
+“He talks and looks like a lot of the voters we’ve lost to Trump,” said a longtime Democratic operative who was supportive of Walz from the day President Joe Biden stepped aside.
+
+In March, Walz accompanied Harris when she became the first sitting vice president to visit a clinic that performs abortions. A source close to Walz said that visit, along with the time Harris spent with the governor as he campaigned for reelection in 2022, had a “big impact.”
+
+“The chemistry was really important to Harris and it really clicked for both of them,” the source said. “Then, on top of that, the Harris campaign, like all of us, saw how energizing Walz was for the base.”
+
+Trump’s campaign has already begun crafting a narrative around Harris decision on Walz, with one source saying the vice president “bent the knee to the anti-semitic, anti-Israel left and chosen someone as dangerously liberal as she is.” Shapiro, considered another finalist for the role, is Jewish and has been critical of some demonstrators who have protested Israel’s war against Hamas.
+
+Trump campaign press secretary Karoline Leavitt said in a statement that Walz “has spent his governorship trying to reshape Minnesota in the image of the Golden State.”
+
+### A cutting advocate
 
 A former educator, Walz is currently in his second term as Minnesota governor and chairs the Democratic Governors Association. He previously served 12 years in Congress, representing a conservative-leaning rural district that, both before and after his tenure, has been mostly dominated by Republicans.
 
@@ -48,13 +64,19 @@ Walz touted the trifecta’s work in a combative 2023 State of the State address
 
 “As governor, he’s embraced the idea that it’s really important to invest in people and infrastructure to grow the economy,” Blodgett said. “And to do it in a way that really helps people in the middle and down below. To me, it’s just a huge focus on economic issues that are kitchen table issues that people care about.”
 
+### The dark horse
+
 When speculation began about who Harris would pick as a running mate, Walz started out as the darkest of dark horses. He did get support from a few members of Congress such as Minnesota Rep. Angie Craig and Washington Rep. Pramila Jayapal of the Congressional Progressive Caucus, as well as encouragement from labor unions. In the end, Walz’s background as a governor experienced in working with Democrats and Republicans and his roots in rural Minnesota made him an appealing choice for Harris.
 
 Walz was also a surprise to Republicans.
 
 “Tim Walz doesn’t even register on the fear-o-meter,” Minnesota Republican strategist Kevin Poindexter said before the announcement, adding that Republicans had been more worried about Harris picking either Arizona Sen. Mark Kelly or Pennsylvania Gov. Josh Shapiro. “Him joining the ticket as VP does not bring anything.”
 
-Walz’s selection means that both the Trump and Harris campaigns have vice presidential nominees who their backers hope will help rally support across the Midwest. Democrats hope Walz’s Minnesota roots will attract a wide swath of voters throughout the region, while Republicans feel that Ohio Sen. JD Vance’s history of growing up in Ohio, as documented in his memoir “Hillbilly Elegy,” will find appeal in blue states like Michigan or even Minnesota.
+Many of Trump’s allies had feared that Harris would ultimately choose the popular Shapiro as her running mate, potentially giving her an advantage in the critical battleground state. Those allies now are breathing a sigh of relief, with one source close to Trump saying that Pennsylvania “is still definitely up for grabs,” with Harris’ decision to go with Walz.
+
+While Trump has repeatedly said that vice presidential candidates don’t matter, he and his running mate, Ohio Sen. JD Vance, had zeroed in on Shapiro in their recent attacks, an indication of the threat that Shapiro could pose to the campaign.
+
+Walz’s selection means that both the Trump and Harris campaigns have vice presidential nominees who their backers hope will help rally support across the Midwest. Democrats hope Walz’s Minnesota roots will attract a wide swath of voters throughout the region, while Republicans feel that Vance’s history of growing up in Ohio, as documented in his memoir “Hillbilly Elegy,” will find appeal in blue states like Michigan or even Minnesota.
 
 Democratic strategist Raghu Devaguptapu, a former Democratic Governors Association political director, characterized Walz as a “real steady hand” more than anything else as a governor.
 

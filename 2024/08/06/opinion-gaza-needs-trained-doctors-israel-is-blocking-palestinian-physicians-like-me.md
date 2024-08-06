@@ -1,6 +1,6 @@
 # Opinion: Gaza needs trained doctors. Israel is blocking Palestinian physicians like me
 
-Published :`2024-08-06 14:14:14`
+Published :`2024-08-06 14:37:12`
 
 ---
 
