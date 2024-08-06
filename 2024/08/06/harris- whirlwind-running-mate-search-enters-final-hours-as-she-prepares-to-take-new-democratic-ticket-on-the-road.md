@@ -1,6 +1,6 @@
 # Harris’ whirlwind running mate search enters final hours as she prepares to take new Democratic ticket on the road
 
-Published :`2024-08-06 07:36:13`
+Published :`2024-08-06 08:18:53`
 
 ---
 

@@ -1,6 +1,6 @@
 # Opinion: Why there is no such thing as a ‘natural’ disaster
 
-Published :`2024-08-06 07:36:19`
+Published :`2024-08-06 08:18:56`
 
 ---
 

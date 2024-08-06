@@ -1,6 +1,6 @@
 # Emhoff acknowledges affair during first marriage after tabloid report
 
-Published :`2024-08-06 07:36:21`
+Published :`2024-08-06 08:18:58`
 
 ---
 
