@@ -1,6 +1,6 @@
 # Judge overseeing election subversion case against Trump in DC rejects another effort to dismiss case
 
-Published :`2024-08-06 03:17:18`
+Published :`2024-08-06 03:37:18`
 
 ---
 

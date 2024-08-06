@@ -1,6 +1,6 @@
 # ‘Charger hogs’ are ruining the electric vehicle experience. One company is clamping down on bad manners
 
-Published :`2024-08-06 03:17:16`
+Published :`2024-08-06 03:37:18`
 
 ---
 
