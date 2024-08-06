@@ -1,6 +1,6 @@
 # Opinion: I’m a vaccine scientist. The devastating impacts of vaccine hesitancy have touched my life too
 
-Published :`2024-08-06 19:12:01`
+Published :`2024-08-06 19:36:12`
 
 ---
 
@@ -12,7 +12,7 @@ In Saudi Arabia, where we were living at the time, my two younger children recei
 
 The expectation was that many lives would be saved around the globe thanks to the rotavirus vaccine. And indeed, lives were saved — when it was administered.
 
-I have a rare perspective: Both personally and professionally, I can see the impact of serious diseases and the promise of new vaccines as they are being developed. I also have seen how these tools are not universally embraced. I and my colleagues didn’t count on what has come to be known as vaccine hesitancy. Not all of my children’s classmates received the rotavirus shot and we saw them get sick — sometimes, gravely. In many cases, their parents simply didn’t see the value of the vaccines.
+I have a rare perspective: Both personally and professionally, I have seen the impact of serious diseases and the promise of new vaccines as they are being developed. Sadly, I also have seen how these tools are not universally embraced. I and my colleagues didn’t count on what has come to be known as vaccine hesitancy. Not all of my children’s classmates received the rotavirus shot and we saw them get sick — sometimes, gravely. In many cases, their parents simply didn’t see the value of the vaccines.
 
 Reticence against vaccinations — a growing phenomenon in the United States — is now a visible and growing global phenomenon. In my experience, many African parents have turned down vaccines even when they have access to them. But by choosing against immunization, they run the risk that they or their loved ones could contract vaccine-preventable diseases, the consequences of which can be quite serious.
 

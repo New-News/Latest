@@ -1,6 +1,6 @@
 # Republicans rush to try to define Tim Walz
 
-Published :`2024-08-06 19:12:00`
+Published :`2024-08-06 19:36:12`
 
 ---
 
