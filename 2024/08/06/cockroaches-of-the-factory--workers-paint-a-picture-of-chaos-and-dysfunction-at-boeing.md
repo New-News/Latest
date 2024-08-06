@@ -1,12 +1,12 @@
 # ‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing
 
-Published :`2024-08-06 19:36:12`
+Published :`2024-08-06 20:13:44`
 
 ---
 
 Workers on the Boeing 737 Max that lost a door plug on a January flight told federal safety investigators that they felt pressure to do their jobs too fast to avoid mistakes, according to testimony released Tuesday at the start of a two-day investigative hearing.
 
-The revelation came at the start of a two-day hearing Tuesday by the National Transportation Safety Board into the blowout, with investigators questioning Boeing personnel about safety issues at the planemaker and what that might mean for passengers on its ubiquitous planes.
+The revelation came at the start of the hearing by the National Transportation Safety Board into the blowout, with investigators questioning Boeing personnel about safety issues at the planemaker and what that might mean for passengers on its ubiquitous planes.
 
 Previously, the NTSB said the door plug ripped off in mid-flight because the plane left a Boeing factory without the four bolts needed to keep the door plug in place.
 

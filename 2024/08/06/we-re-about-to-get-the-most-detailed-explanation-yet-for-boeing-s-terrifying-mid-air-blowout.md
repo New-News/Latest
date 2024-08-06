@@ -1,6 +1,6 @@
 # We’re about to get the most detailed explanation yet for Boeing’s terrifying mid-air blowout
 
-Published :`2024-08-06 19:36:15`
+Published :`2024-08-06 20:13:47`
 
 ---
 

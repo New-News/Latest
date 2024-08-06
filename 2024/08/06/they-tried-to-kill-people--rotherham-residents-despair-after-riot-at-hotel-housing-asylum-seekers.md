@@ -1,6 +1,6 @@
 # ‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers
 
-Published :`2024-08-06 19:36:11`
+Published :`2024-08-06 20:13:44`
 
 ---
 
@@ -76,9 +76,9 @@ In a YouGov poll published late last year, fewer than half of people thought pol
 
 Britain’s court backlog has also swelled, particularly since the Covid-19 pandemic, making sentencing the convicted rioters more difficult. Jail space is also a problem: The new Labour government recently announced plans to release some prisoners early to free up space for new convicts.
 
-Hundreds of people have been arrested following the riots, and on Tuesday a court in Sheffield, convicted the first of those arrested in relation to the violence at Rotherham, PA Media reported.
+Hundreds of people have been arrested following the riots, and on Tuesday a court in Sheffield convicted the first of those arrested in relation to the violence at Rotherham, PA Media reported.
 
-With more demonstrations planned for this week, do the residents near the Rotherham hotel fear more violence? “After seeing our community come out today, no,” said the man who lived through the London riots. “This community came out in numbers and looked after ourselves.”
+With more demonstrations planned for this week, do the residents near the Rotherham hotel fear more violence?
 
 “After seeing our community come out today, no,” said the man who lived through the London riots. “This community came out in numbers and looked after ourselves.”
 

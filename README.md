@@ -1,18 +1,22 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-06 19:36:15`
+#### Latest Update : `2024-08-06 20:13:49`
 
 ## Latest News Grabbing 
 
 ---
 
-- [Hamas names Yahya Sinwar, alleged Oct. 7 ‘mastermind’, as head of political bureau](https://new-news.github.io/Latest/2024/08/06/hamas-names-yahya-sinwar-alleged-oct-7-mastermind--as-head-of-political-bureau 'Hamas names Yahya Sinwar, alleged Oct. 7 ‘mastermind’, as head of political bureau')
+- [‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing](https://new-news.github.io/Latest/2024/08/06/cockroaches-of-the-factory--workers-paint-a-picture-of-chaos-and-dysfunction-at-boeing '‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing')
+
+- [‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers](https://new-news.github.io/Latest/2024/08/06/they-tried-to-kill-people--rotherham-residents-despair-after-riot-at-hotel-housing-asylum-seekers '‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers')
 
 - [Pakistani national with ties to Iran charged in connection to a foiled assassination plot potentially targeting Trump](https://new-news.github.io/Latest/2024/08/06/pakistani-national-with-ties-to-iran-charged-in-connection-to-a-foiled-assassination-plot-potentially-targeting-trump 'Pakistani national with ties to Iran charged in connection to a foiled assassination plot potentially targeting Trump')
 
-- [‘The Sixth Sense’ turns 25. Here’s a list of M. Night Shyamalan’s freak movie endings, from ridiculous to incredible](https://new-news.github.io/Latest/2024/08/06/the-sixth-sense-turns-25-here-s-a-list-of-m-night-shyamalan-s-freak-movie-endings-from-ridiculous-to-incredible '‘The Sixth Sense’ turns 25. Here’s a list of M. Night Shyamalan’s freak movie endings, from ridiculous to incredible')
+- [Opinion: I’m a vaccine scientist. The devastating impacts of vaccine hesitancy have touched my life too](https://new-news.github.io/Latest/2024/08/06/opinion-i-m-a-vaccine-scientist-the-devastating-impacts-of-vaccine-hesitancy-have-touched-my-life-too 'Opinion: I’m a vaccine scientist. The devastating impacts of vaccine hesitancy have touched my life too')
 
-- [‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers](https://new-news.github.io/Latest/2024/08/06/they-tried-to-kill-people--rotherham-residents-despair-after-riot-at-hotel-housing-asylum-seekers '‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers')
+- [Hamas names Yahya Sinwar, alleged Oct. 7 ‘mastermind’, as head of political bureau](https://new-news.github.io/Latest/2024/08/06/hamas-names-yahya-sinwar-alleged-oct-7-mastermind--as-head-of-political-bureau 'Hamas names Yahya Sinwar, alleged Oct. 7 ‘mastermind’, as head of political bureau')
+
+- [‘The Sixth Sense’ turns 25. Here’s a list of M. Night Shyamalan’s freak movie endings, from ridiculous to incredible](https://new-news.github.io/Latest/2024/08/06/the-sixth-sense-turns-25-here-s-a-list-of-m-night-shyamalan-s-freak-movie-endings-from-ridiculous-to-incredible '‘The Sixth Sense’ turns 25. Here’s a list of M. Night Shyamalan’s freak movie endings, from ridiculous to incredible')
 
 - [Elon Musk’s X sues ad industry group over alleged advertising ‘boycott’](https://new-news.github.io/Latest/2024/08/06/elon-musk-s-x-sues-ad-industry-group-over-alleged-advertising-boycott 'Elon Musk’s X sues ad industry group over alleged advertising ‘boycott’')
 
@@ -25,8 +29,6 @@
 - [Charles Barkley cancels his retirement plans, says he’ll stay with TNT Sports for long term](https://new-news.github.io/Latest/2024/08/06/charles-barkley-cancels-his-retirement-plans-says-he-ll-stay-with-tnt-sports-for-long-term 'Charles Barkley cancels his retirement plans, says he’ll stay with TNT Sports for long term')
 
 - [Ryan Reynolds had a few questions for Blake Lively’s ‘It Ends with Us’ leading man](https://new-news.github.io/Latest/2024/08/06/ryan-reynolds-had-a-few-questions-for-blake-lively-s-it-ends-with-us-leading-man 'Ryan Reynolds had a few questions for Blake Lively’s ‘It Ends with Us’ leading man')
-
-- [‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing](https://new-news.github.io/Latest/2024/08/06/cockroaches-of-the-factory--workers-paint-a-picture-of-chaos-and-dysfunction-at-boeing '‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing')
 
 - [‘Going to a very bad place’: Israeli reservists who refuse to return to Gaza cite military’s destructive approach](https://new-news.github.io/Latest/2024/08/06/going-to-a-very-bad-place--israeli-reservists-who-refuse-to-return-to-gaza-cite-military-s-destructive-approach '‘Going to a very bad place’: Israeli reservists who refuse to return to Gaza cite military’s destructive approach')
 
@@ -59,8 +61,6 @@
 - [Walz could help Harris shore up the ‘blue wall’ on the way to the White House](https://new-news.github.io/Latest/2024/08/06/walz-could-help-harris-shore-up-the-blue-wall-on-the-way-to-the-white-house 'Walz could help Harris shore up the ‘blue wall’ on the way to the White House')
 
 - [‘White Dudes for Harris’ said their account was targeted by X for the second time](https://new-news.github.io/Latest/2024/08/06/white-dudes-for-harris-said-their-account-was-targeted-by-x-for-the-second-time '‘White Dudes for Harris’ said their account was targeted by X for the second time')
-
-- [Opinion: I’m a vaccine scientist. The devastating impacts of vaccine hesitancy have touched my life too](https://new-news.github.io/Latest/2024/08/06/opinion-i-m-a-vaccine-scientist-the-devastating-impacts-of-vaccine-hesitancy-have-touched-my-life-too 'Opinion: I’m a vaccine scientist. The devastating impacts of vaccine hesitancy have touched my life too')
 
 - [Google has an illegal monopoly on search, judge rules. Here’s what’s next](https://new-news.github.io/Latest/2024/08/06/google-has-an-illegal-monopoly-on-search-judge-rules-here-s-what-s-next 'Google has an illegal monopoly on search, judge rules. Here’s what’s next')
 

@@ -1,6 +1,6 @@
 # ‘The Sixth Sense’ turns 25. Here’s a list of M. Night Shyamalan’s freak movie endings, from ridiculous to incredible
 
-Published :`2024-08-06 19:36:11`
+Published :`2024-08-06 20:13:44`
 
 ---
 

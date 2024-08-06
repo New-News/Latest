@@ -1,6 +1,6 @@
 # Hamas names Yahya Sinwar, alleged Oct. 7 ‘mastermind’, as head of political bureau
 
-Published :`2024-08-06 19:36:11`
+Published :`2024-08-06 20:13:44`
 
 ---
 
