@@ -1,6 +1,6 @@
 # Rioters carry out violent, racist attacks across several British cities. What happened, and what comes next?
 
-Published :`2024-08-06 15:36:30`
+Published :`2024-08-06 16:18:54`
 
 ---
 
@@ -12,7 +12,9 @@ The latest outbreak of violence came after crowds of far-right agitators set fir
 
 Protests first broke out late last month, after an anti-immigrant misinformation campaign stoked outrage over a stabbing attack that left three children dead in Southport, northern England.
 
-Prime Minister Keir Starmer chaired his first COBRA session on Monday morning – an emergency meeting of national agencies and branches of government – to discuss the response to the disorder. “This is not protest,” he said on Sunday, adding: “It is organized, violent thuggery and it has no place on our streets, or online.”
+The UK’s Crown Prosecution Service said on Tuesday that prosecutors have already charged around 100 people over the violent unrest.
+
+Prime Minister Keir Starmer chaired his first COBRA session on Monday morning – an emergency meeting of national agencies and branches of government – to discuss the response to the disorder, and Downing Street said he would host another on Tuesday evening. “This is not protest,” he said on Sunday. “It is organized, violent thuggery and it has no place on our streets, or online.”
 
 The riots are ﻿the first crisis for Starmer, who became Britain’s leader a month ago after his Labour Party unseated the Conservatives in a general election. His next steps will be closely watched by lawmakers and the public.
 
@@ -81,6 +83,8 @@ A long list of locations of migration centers around the country has been circul
 ITV News reported that a man convicted of being a member of a banned neo-Nazi organization in 2018 was among those present at last week’s Southport protests, which sparked the wave of far-right action around the country.
 
 Many leading figures in right-wing or far-right circles have meanwhile encouraged the organization of anti-migrant protests online, using heated anti-Muslim or anti-immigrant rhetoric, while distancing themselves from the violence and attacks on police after they have occurred.
+
+In a video posted to X, Andrew Tate, a self-proclaimed misogynist influencer, falsely said the Southport stabbings last month were committed by “an undocumented migrant” who arrived in the UK “on a boat,” when in fact the suspect arrested by police was born in the UK. That video remains on X, and has been viewed 15 million times.
 
 ### Starmer faces first crisis
 
