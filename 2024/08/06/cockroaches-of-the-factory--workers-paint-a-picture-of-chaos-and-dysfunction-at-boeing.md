@@ -1,6 +1,6 @@
 # ‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing
 
-Published :`2024-08-06 16:18:54`
+Published :`2024-08-06 16:40:12`
 
 ---
 
@@ -16,9 +16,9 @@ Many of those documents were transcripts of interviews conducted by NTSB investi
 
 “As far as the workload, I feel like we were definitely trying to put out too much product, right?” said the unidentified Boeing worker. “That’s how mistakes are made. People try to work too fast. I mean, I can’t speak for anybody else, but we were busy. We were working a lot.”
 
-One transcript showed that a Boeing employee, identified as a Door Master Lead, told investigators there planes required much of the work during the assembly process to be redone because of problems that are discovered, as happened with the door plug that was removed to fix some rivets. The worker said there was no special training to open, close, remove, a door plug versus a regular door.
+One transcript showed that a Boeing employee, identified as a Door Master Lead, told investigators there planes required much of the work during the assembly process to be redone because of problems that are discovered, as happened with the door plug that was removed to fix some rivets. The worker said there was no special training to open, close, or remove a door plug versus a regular door.
 
-That worker told the NTSB that his team was “put in uncharted waters to where… we were replacing doors like we were replacing our underwear.
+That worker told the NTSB that his team was “put in uncharted waters to where… we were replacing doors like we were replacing our underwear.”
 
 “The planes come in jacked up every day. Every day,” the second worker added.
 
@@ -47,6 +47,10 @@ The accident did serious damage to the public’s confidence in plane manufactur
 Boeing executives in charge of quality control are facing the safety board for questions, including Boeing Commercial Airplanes’ senior vice president of quality Elizabeth Lund. Alongside Lund for half of Tuesday’s hearing is Doug Ackerman, vice president of supplier quality for Boeing Commercial Airplanes.
 
 The rare, two-day-long investigative hearing is key to closing the case on the January 5 incident, which led to a 19-day-long grounding of 737 MAX 9s in the United States. The NTSB says it will “use the information gathered to complete the investigation, determine probable cause, and make recommendations to improve transportation safety.”
+
+But Homendy was clearly frustrated and ready to push back on Boeing in early testimony, telling Lund that “this is not a PR campaign for Boeing.” She said the hearing is being held to find out what was done ahead of the accident, not the tougher training and quality improvements made since then.
+
+“You can talk about where we are today, but this is an investigation on what happened on January 5th,” Homendy said.
 
 A final report is still months away.
 
