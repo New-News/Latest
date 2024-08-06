@@ -1,6 +1,6 @@
 # Bangladesh’s ‘Gen Z revolution’ toppled a veteran leader. Why did they hit the streets and what happens now?
 
-Published :`2024-08-06 23:15:23`
+Published :`2024-08-06 23:36:40`
 
 ---
 
