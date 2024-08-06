@@ -1,6 +1,6 @@
 # Japanese stocks crash in biggest one-day drop since 1987 as global market rout intensifies
 
-Published :`2024-08-06 04:39:58`
+Published :`2024-08-06 05:15:16`
 
 ---
 
