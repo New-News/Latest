@@ -1,6 +1,6 @@
 # ‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing
 
-Published :`2024-08-06 17:36:39`
+Published :`2024-08-06 18:21:33`
 
 ---
 
@@ -82,7 +82,7 @@ The FAA has also increased scrutiny of Boeing’s manufacturing process and is l
 
 Boeing’s sales have plunged 70% in the first six months of the this year. In June it sold just three passenger jets, and one of those was to Alaska Airlines to replace the plane used in the January 5 flight, which Boeing has repurchased from the airline.
 
-CNN’s Owen Dahlkamp, Danya Gainor, Celine Tabor, Nicki Brown, Ramisha Maruf contributed to this report.
+CNN’s Owen Dahlkamp, Danya Gainor, Celina Tebor, Nicki Brown, Ramishah Maruf contributed to this report.
 
 ---
 
