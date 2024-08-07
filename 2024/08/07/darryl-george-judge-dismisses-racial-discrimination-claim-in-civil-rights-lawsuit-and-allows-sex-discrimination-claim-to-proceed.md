@@ -1,6 +1,6 @@
 # Darryl George: Judge dismisses racial discrimination claim in civil rights lawsuit and allows sex discrimination claim to proceed
 
-Published :`2024-08-07 19:12:42`
+Published :`2024-08-07 19:36:09`
 
 ---
 
@@ -16,7 +16,11 @@ Regarding the claims of sex discrimination, Brown said while the school district
 
 The judge dismissed all of the family’s other claims, including infringement of George’s First Amendment free expression rights and request for “compensatory damages and injunctive and declaratory relief” for claims of “mental anguish.”
 
-CNN has reached out to attorneys for Barbers Hill Independent School District and George for comment.
+CNN has reached out to George’s attorneys for comment.
+
+Barbers Hill Independent School District Superintendent Greg Poole said in a statement Wednesday the decision to dismiss the racial claims “validates what our district has maintained throughout this ordeal … high expectations for all students in all things are not racist.”
+
+“Our policies and our procedures for 95 years have been established by our community via a locally elected board of trustees. Having high expectations for all students in all things is why we are one of the highest achieving districts in the state and it is why parents of all ethnicities continue to move to our district in record numbers,” Poole wrote. “Our district will not succumb to a cancerous cancel culture that seeks to intimidate, falsely accuse and use race in a disingenuous way to serve a political end.”
 
 The ruling comes months after a separate federal judge ruled the state’s CROWN Act – a law that prohibits discrimination against hair texture and protective hairstyles like locs and braids that are “commonly or historically associated with race” – does not make it unlawful for school dress codes to limit a student’s hair length, meaning it did not violate state law for the district to continue punishing George for the length of his locs hairstyle.
 
