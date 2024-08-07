@@ -1,6 +1,6 @@
 # ‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers
 
-Published :`2024-08-07 10:16:00`
+Published :`2024-08-07 10:38:15`
 
 ---
 
