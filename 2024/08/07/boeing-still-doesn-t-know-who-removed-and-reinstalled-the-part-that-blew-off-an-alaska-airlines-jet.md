@@ -1,6 +1,6 @@
 # Boeing still doesn’t know who removed and reinstalled the part that blew off an Alaska Airlines jet
 
-Published :`2024-08-07 13:19:07`
+Published :`2024-08-07 13:37:03`
 
 ---
 
@@ -34,7 +34,7 @@ Boeing executives and those from supplier Spirit AeroSystems did their best to a
 
 But she and other Boeing executives faced tough questions and criticisms from board members.
 
-“I just want, a word of caution here. This is not a PR campaign for Boeing,” Homendy said at one point in the hearing, chastising the company for focusing too much on what has happened since the accident and not enough on the problems that allowed the accident to occur.
+“I just want a word of caution here. This is not a PR campaign for Boeing,” Homendy said at one point in the hearing, chastising the company for focusing too much on what has happened since the accident and not enough on the problems that allowed the accident to occur.
 
 “You can talk all about where you are today, there’s going to be plenty of time for that,” she said. “This is an investigation on what happened on January 5. Understand?”
 
@@ -44,7 +44,7 @@ Workers, many of them not identified in the transcripts released by the NTSB, sp
 
 The problems with the planes put the workers “in uncharted waters to where… we were replacing doors like we were replacing our underwear,” one worker told NTSB investigators.
 
-“The planes come in jacked up every day. Every day,” a second worker added.
+“The planes come in jacked up every day. Every day,” the worker added.
 
 ### ‘Lean manufacturing’ eliminates inspections
 
@@ -54,7 +54,7 @@ One former FAA official told investigators that he blamed problems on Boeing mov
 
 Phoenix told the NTSB it took two fatal crashes of the 737 Max in 2018 and 2019 for Boeing to give in to FAA demands to restore inspections it had stopped doing.
 
-“That really didn’t change until the Max 9 accidents where it brought a lot of things to light. So you need a lot of leverage to get Boeing to change and then when Boeing changes, it’s very slow and it took a long time for them to really understand that their quality system needed to improve.” .﻿
+“That really didn’t change until the Max 9 accidents where it brought a lot of things to light. So you need a lot of leverage to get Boeing to change and then when Boeing changes, it’s very slow and it took a long time for them to really understand that their quality system needed to improve.”
 
 Lund defended Boeing’s use of lean manufacturing, saying it’s not at odds with the goal of safer, better quality aircraft.
 
