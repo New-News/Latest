@@ -1,6 +1,6 @@
 # Colin Farrell launches foundation in honor of son, who has a rare neurogenetic disorder
 
-Published :`2024-08-07 17:36:28`
+Published :`2024-08-07 18:20:29`
 
 ---
 

@@ -1,6 +1,6 @@
 # Boeing Starliner astronauts have now been in space more than 60 days with no end in sight
 
-Published :`2024-08-07 17:36:28`
+Published :`2024-08-07 18:20:29`
 
 ---
 
@@ -8,13 +8,17 @@ Butch Wilmore and Suni Williams — two veteran NASA astronauts piloting the fir
 
 There is still no clear return date in sight.
 
-As testing to understand the root cause of the issues Starliner experienced en route to the International Space Station continues, NASA is exploring various contingency options, the space agency confirmed during a news conference Wednesday. Those contingencies include keeping Williams and Wilmore on the orbiting laboratory for another six months and bringing them home on a SpaceX Crew Dragon vehicle in 2025.
+As analysis to understand the issues that Starliner experienced en route to the International Space Station continues, NASA is exploring various contingency options, the space agency confirmed during a news conference Wednesday. Those contingencies include keeping Williams and Wilmore on the orbiting laboratory for another six months and bringing them home on a SpaceX Crew Dragon vehicle in 2025.
 
 CNN confirmed on Tuesday that NASA has not yet started a “flight readiness review” for the Starliner crew’s return from the space station. The agency had said on July 26 that it would begin that process in the first couple days of August.
 
-But Boeing and NASA teams are still working on a potential return date as officials evaluate testing data and conduct analyses about the propulsion issues and helium leaks that hampered the first leg of the Starliner capsule’s flight.
+But Boeing and NASA teams are still working on a potential return date as officials evaluate testing data and conduct analyses about the propulsion issues and helium leaks that hampered the first leg of the Starliner capsule’s flight. The ground testing that mission teams carried out in New Mexico as it worked to understand the problems led to surprising results, Steve Stich, NASA’s Commercial crew program manager, said Wednesday.
 
-NASA indicated Wednesday that Starliner’s return remains uncertain as officials work to come to an agreement on how the rest of the mission that had launched June 5 should play out.
+The space agency had previously confirmed it found excess heat around some of the Starliner thrusters that was causing teflon seals to bulge, restricting the flow of propellant and triggering the thruster issues. Uncertainty about whether those bulging seals are indeed the root cause of the issue — and how the problem might affect the Starliner vehicle in space — are the basis for disagreements within NASA about how safe it is for crew to return on the Starliner, officials revealed at the news conference.
+
+Starliner’s return remains uncertain as officials work to come to an agreement on how the rest of the mission that had launched June 5 should play out.
+
+“I would say that our chances of an uncrewed star liner return have increased a little bit based on where things have gone over the last week or two,” said Ken Bowersox, associate administrator for NASA’s Space Operations Mission Directorate, referring to NASA’s internal review processes that need to be completed before a return date for Starliner is decided. “But again, new data coming in, new analysis, different discussion — We could find ourselves shift in another way.”
 
 NASA has always considered returning Williams and Wilmore on a SpaceX vehicle as a mission contingency, but the primary goal is to bring the two astronauts home on Starliner. Boeing maintains that its spacecraft is safe for astronauts.
 

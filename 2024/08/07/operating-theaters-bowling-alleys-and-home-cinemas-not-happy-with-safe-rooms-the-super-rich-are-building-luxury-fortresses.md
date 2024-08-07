@@ -1,6 +1,6 @@
 # Operating theaters, bowling alleys and home cinemas: Not happy with safe rooms, the super-rich are building luxury fortresses
 
-Published :`2024-08-07 17:36:28`
+Published :`2024-08-07 18:20:30`
 
 ---
 
