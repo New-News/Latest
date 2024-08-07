@@ -1,10 +1,10 @@
 # Stocks turn lower as Wall Street struggles to stage a comeback
 
-Published :`2024-08-07 18:40:10`
+Published :`2024-08-07 19:12:41`
 
 ---
 
-US stocks wavered Wednesday midday, giving back earlier gains as investors tried to recover from the week’s bruising losses.
+US stocks wavered Wednesday, giving back earlier gains as investors tried to recover from the week’s bruising losses.
 
 The Dow was lower by 204 points, or 0.5%, Wednesday afternoon after gaining more than 400 points earlier in the day. The S&P 500 fell 0.5% and the Nasdaq Composite lost 0.7%.
 

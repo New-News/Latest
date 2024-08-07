@@ -1,6 +1,6 @@
 # Rioters carry out violent, racist attacks across several British cities. What happened, and what comes next?
 
-Published :`2024-08-07 18:40:11`
+Published :`2024-08-07 19:12:42`
 
 ---
 

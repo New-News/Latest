@@ -1,6 +1,6 @@
 # Russia says Ukrainian troops crossed into its territory and launched ‘massive attack’
 
-Published :`2024-08-07 18:40:10`
+Published :`2024-08-07 19:12:41`
 
 ---
 
@@ -16,15 +16,31 @@ The extent of the attack, including whether Ukrainian troops took over any settl
 
 Russian authorities and military bloggers said Ukrainian forces attacked by land and air to enter Russia near the town of Sudzha, a town of 5,000 that lies about 6 miles (10 kilometers) from the border.
 
-Geolocated video shows extensive destruction at the border crossing southeast of Sudzha, in addition to damage from shelling in the town itself. Another geolocated video shows Ukrainian forces on the approaches to the town, although it’s unclear whether they have entered or control it.
+The Russian Ministry of Health says that 31 people, including six children, were injured as a result of Ukrainian shelling in the Kursk region.
 
-The Russian Ministry of Defense said that about 300 troops, supported by tanks and armored vehicles, attacked Russian positions near the villages of Nikolayevo-Daryino and Oleshnya.
+The mayor of the town, Vitaly Slashchev, described a “very tense” atmosphere, telling Russian state news agency RIA Novosti: “There is no time to talk, many people are calling about evacuation.”
+
+The available geolocated videos do not indicate that Ukrainian troops have entered the town. Slashchev had earlier told state news outlet RT that the town was not under the control of the Ukrainian Armed Forces.
+
+Border guards were “putting up serious resistance to the advancing enemy troops,” according to one unofficial Russian Telegram channel, Dya Mayora. “Unfortunately, enemy reconnaissance groups are penetrating further,” the post added.
+
+CNN is unable to confirm the account, but geolocated video shows that parts of Sudzha have been heavily shelled. Drone footage geolocated by CNN shows some 20 men who appear to have surrendered at the heavily damaged border crossing south-west of Sudzha.
+
+CNN is unable to confirm the identity of those shown in the video. Sternenko, an unofficial Ukrainian social media channel that distributed the video, said it showed a at least 22 Russian soldiers “surrender” in the Kursk region.
+
+The acting governor of Russia’s Kursk region, Aleksey Smirnov, says he has “decided to introduce an emergency situation in the Kursk region from August 7th.” He added in a Telegram post that the “operational situation in the border areas remains difficult. To eliminate the consequences of the entry of enemy forces into the territory of the region, I decided to introduce an emergency situation.”
+
+It came after the Russian Ministry of Defense said that about 300 troops, supported by tanks and armored vehicles, attacked Russian positions near the villages of Nikolayevo-Daryino and Oleshnya.
 
 Initially, the ministry said the attack was repelled, but that statement was later corrected to say that “the enemy is being inflicted with fire damage.”
 
 Later on Wednesday, state news agency RIA Novosti quoted the Chief of the General Staff of the Russian Armed Forces Valery Gerasimov as telling Putin that “the advance of the Ukrainian Armed Forces deep into Russian territory has been stopped.”
 
 Aleksey Smirnov, the acting head of Kursk region, said Wednesday that several thousand people left the area over the past 24 hours.
+
+On Wednesday, the Russian National Guard said it has strengthened security measures at a nuclear power plant in the region. Rosgvardia said in a Telegram post that “within the framework of ensuring security of a particularly important guarded facility, Rosgvardia units took additional measures to protect the Kursk nuclear power plant.”
+
+The plant is about 50 kilometers north of where clashes and shelling are taking place around the town of Sudzha.
 
 It is unclear why Ukrainian forces would launch an attack of the scale described by Russian authorities.
 

@@ -1,6 +1,6 @@
 # ‘Going to a very bad place’: Israeli reservists who refuse to return to Gaza cite military’s destructive approach
 
-Published :`2024-08-07 18:40:12`
+Published :`2024-08-07 19:12:42`
 
 ---
 
