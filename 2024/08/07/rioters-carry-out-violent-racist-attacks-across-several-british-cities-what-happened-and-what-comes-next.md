@@ -1,6 +1,6 @@
 # Rioters carry out violent, racist attacks across several British cities. What happened, and what comes next?
 
-Published :`2024-08-07 11:36:35`
+Published :`2024-08-07 12:30:31`
 
 ---
 
@@ -14,7 +14,11 @@ Hundreds of people have been arrested so far and some 6,000 specialist officers 
 
 After chairing a second meeting of the government’s emergency response committee UK Prime Minister Keir Starmer sought to reassure communities, saying riot perpetrators are “likely to be dealt with within a week” and warning anyone involved “you will feel the full force of the law.”
 
-The UK’s Crown Prosecution Service said on Tuesday that prosecutors have already charged around 100 people over the violent unrest. Jordan Parlour, 28, became the first person convicted of using threatening words or behavior intended to stir up racial hatred, Britain’s PA Media news agency reported. Appearing at Leeds Magistrates’ Court, he indicated admitting posting on Facebook between August 1 and 5 in relation to the disorder across the country and is due to be sentenced on Friday.
+The UK’s Crown Prosecution Service said on Tuesday that prosecutors have already charged around 100 people over the violent unrest.
+
+A number of rioters who took part in the instances of violent disorder across the UK have been handed lengthy prison sentences, Britain’s PA Media news agency reported. One man was sentenced to three years in prison after admitting to violent disorder and assaulting an emergency worker in Southport last Tuesday.
+
+Another was sentenced to 30 months in prison after he pleaded guilty to violent disorder in Liverpool last Saturday and sending a malicious communication last year. The cases were due to appear at Liverpool Crown Court later this month but were fast-tracked.
 
 The riots are ﻿the first crisis for Starmer, who became Britain’s leader a month ago after his Labour Party unseated the Conservatives in a general election. His next steps will be closely watched by lawmakers and the public.
 
