@@ -1,6 +1,6 @@
 # CrowdStrike fires back at Delta, claiming the airline ignored offers of help during service meltdown
 
-Published :`2024-08-07 04:19:18`
+Published :`2024-08-07 04:39:20`
 
 ---
 
