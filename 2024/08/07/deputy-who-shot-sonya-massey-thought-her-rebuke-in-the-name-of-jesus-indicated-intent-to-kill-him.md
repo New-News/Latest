@@ -1,6 +1,6 @@
 # Deputy who shot Sonya Massey thought her rebuke ‘in the name of Jesus’ indicated intent to kill him
 
-Published :`2024-08-07 06:21:36`
+Published :`2024-08-07 06:43:14`
 
 ---
 

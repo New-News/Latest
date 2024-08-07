@@ -1,6 +1,6 @@
 # 5.2 magnitude earthquake rumbles through Los Angeles area
 
-Published :`2024-08-07 06:21:31`
+Published :`2024-08-07 06:43:09`
 
 ---
 

@@ -1,6 +1,6 @@
 # Who is Muhammad Yunus, the Nobel laureate leader of Bangladesh’s interim government?
 
-Published :`2024-08-07 06:21:31`
+Published :`2024-08-07 06:43:09`
 
 ---
 
@@ -70,11 +70,33 @@ Speaking to CNN in February while on bail appealing his prison sentence, Yunus 
 
 In a separate interview with Reuters in June, he said Bangladesh had turned into a “one-party” state, with the ruling party stamping out all political competition.
 
-In an interview with CNN after Hasina’s resignation on Monday, Yunus said he wanted to see the army hand control of the country to a civilian government. He lambasted Hasina, saying she has “tortured us, she has made this country unlivable for people.”
+### What comes next?
+
+In an interview with CNN after Hasina’s resignation on Monday, before his appointment as a caretaker leader, Yunus said he wanted to see the army hand control of the country to a civilian government. He lambasted Hasina, saying she has “tortured us, she has made this country unlivable for people.”
 
 “People are celebrating on the street and millions and millions of people all over Bangladesh [are] celebrating as if this is our liberation day,” he said.
 
 Addressing his message to the protest movement in Bangladesh, he added: “You have done a great job.”
+
+But, experts say, Yunus faces a long and complicated road ahead as the government reforms itself.
+
+His first challenge will be to re-establish law and order after the deadly protests of the past weeks, and to “address the trust deficit that exists in society” between the people and the state, said Mubashar Hasan, who studies Asian authoritarianism at the University of Oslo.
+
+That includes deep public mistrust toward Bangladesh’s police, judiciary, and other state-run institutes, he said.
+
+Another pressing task will be to declare free and fair elections – the lack of which is one reason Bangladesh was plunged into protests in the first place.
+
+Yunus will also have to address the fallout from the past month, with Hasina’s government having cracked down with deadly force on the protesters with around 300 killed according to local media and agencies. Critics and human rights groups have accused authorities of using excessive violence, a charge the government denied at the time.
+
+Now, the interim leader will likely face pressure to “start setting up some sort of judicial procedures that will address the gross human rights violation in the past few weeks and in the past decade,” Hasan said.
+
+Niloy Biswas, a professor of international relations at the University of Dhaka, echoed this point – saying the government’s new leaders must “initiate investigations to ensure justice for hundreds of innocent people who have lost their lives.”
+
+“The students who have led the movement strongly demand this,” he told CNN on Wednesday. “The interim government will have to pay attention to this to ensure the large student community sustains its support to run the government.”
+
+As the interim government moves forward, reforming Bangladesh’s economy will be a key task – where Yunus’ economic background could play a role. These reforms will be “vital” in combating corruption and helping the nation grow, Biswas said.
+
+But he may face opposition in government, too – including from those who had supported Hasina, potentially including figures in the judiciary and law enforcement, Hasan said.
 
 ---
 
