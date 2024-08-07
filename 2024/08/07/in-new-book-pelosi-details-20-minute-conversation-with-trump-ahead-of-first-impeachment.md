@@ -1,6 +1,6 @@
 # In new book, Pelosi details 20-minute conversation with Trump ahead of first impeachment
 
-Published :`2024-08-07 21:36:55`
+Published :`2024-08-07 22:14:40`
 
 ---
 
