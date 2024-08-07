@@ -1,6 +1,6 @@
 # Three Taylor Swift concerts in Vienna cancelled over alleged planned terrorist attack
 
-Published :`2024-08-07 23:14:40`
+Published :`2024-08-07 23:36:27`
 
 ---
 
