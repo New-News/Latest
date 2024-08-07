@@ -1,6 +1,6 @@
 # Two sons of ‘El Chapo’ made agreement before one flew to the US and was arrested, Mexican official says
 
-Published :`2024-08-07 20:16:12`
+Published :`2024-08-07 20:37:40`
 
 ---
 
@@ -10,17 +10,21 @@ Mexico Secretary of Security Rosa Icela Rodriguez told reporters Tuesday that Jo
 
 “In the United States, there was an agreement between the individuals who were, shall we say, in custody, with those who are free,” Rodriguez told reporters. “And there was a deal between them for the respective surrender. So that they would go to the United States to surrender.”
 
-Rodriguez was then asked if she was referring to an agreement reached between the Guzman Lopez brothers Ovidio and Joaquín.
+Rodriguez was then asked if she was referring to an agreement reached between the Guzmán López brothers Ovidio and Joaquín.
 
 “That is correct,” she replied.
 
-The comments raise further questions about last month’s stunning arrest of Joaquín Guzmán López and the Sinaloa cartel co-founder Ismael “El Mayo” Zambada after they flew from Mexico to Texas.
+However, an attorney for Ovidio Guzmán López told CNN that Rodriguez’s claim was “a complete and utter fabrication.”
+
+“Ovidio has had no contact with his brother since he’s been in custody in America for the past year, and previously since he was imprisoned in Mexico,” defense attorney Jeffrey Lichtman said.
+
+The Mexican official’s comments raise further questions about last month’s stunning arrest of Joaquín Guzmán López and the Sinaloa cartel co-founder Ismael “El Mayo” Zambada after they flew from Mexico to Texas.
 
 They face several charges for allegedly leading the criminal operations of what is considered to be one of the world’s most powerful and deadly drug trafficking operations.
 
 An attorney for Zambada said he “neither surrendered nor negotiated any terms with the US government” and described the flight to the US as a violent kidnapping.
 
-Guzmán López has pleaded not guilty to narcotics, money laundering and firearms charges, and his attorney Jeffrey Lichtman has said he made no deal with US officials. Lichtman also noted he has not faced an allegation of kidnapping. “When the government accuses him, then I’ll take notice,” he said.
+Guzmán López has pleaded not guilty to narcotics, money laundering and firearms charges, and Lichtman has said he made no deal with US officials. Lichtman also noted he has not faced an allegation of kidnapping. “When the government accuses him, then I’ll take notice,” he said.
 
 It remains unclear whether Joaquin Guzmán López fully fleshed out a deal with federal prosecutors before his arrest. Still, one official previously told CNN that he had been in touch with Homeland Security Investigation agents for several months over the plan to turn himself and Zambada in.
 

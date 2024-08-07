@@ -1,6 +1,6 @@
 # Walz could help Harris shore up the ‘blue wall’ on the way to the White House
 
-Published :`2024-08-07 20:16:20`
+Published :`2024-08-07 20:37:43`
 
 ---
 

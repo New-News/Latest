@@ -1,6 +1,6 @@
 # Boeing Starliner astronauts have now been in space more than 60 days with no end in sight
 
-Published :`2024-08-07 20:16:12`
+Published :`2024-08-07 20:37:40`
 
 ---
 
