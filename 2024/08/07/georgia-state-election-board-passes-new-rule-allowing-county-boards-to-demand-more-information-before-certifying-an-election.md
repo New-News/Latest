@@ -1,6 +1,6 @@
 # Georgia State Election Board passes new rule allowing county boards to demand more information before certifying an election
 
-Published :`2024-08-07 01:09:44`
+Published :`2024-08-07 02:25:03`
 
 ---
 
@@ -33,6 +33,10 @@ Ahead of the meeting, King told CNN that the board’s consideration of rule cha
 She said critics who are worried about potential interference by the Trump campaign is laughable.
 
 “Saying our name and saying we’re doing a good job doesn’t mean anything. It just means we’re doing a good job in his eyes,” King said of Trump’s rally mention.
+
+State Rep. Sam Park, the Democratic minority whip, criticized the board, saying it is using politics to potentially disrupt certifying the election results.
+
+“These certification rules directly conflict with Georgia law, which states in multiple places that local election board officials shall perform their duties – meaning their duties are mandatory, not discretionary,” said Park, an Atlanta-area attorney.
 
 Ahead of the meeting, Georgia Secretary of State Brad Raffensperger, who was the chairman of the state’s board during the 2020 election, called the panel “a mess.” His office would not offer additional comment.
 

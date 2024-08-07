@@ -1,6 +1,6 @@
 # Israeli minister says it may be ‘moral’ to starve 2 million Gazans, but ‘no one in the world would let us’
 
-Published :`2024-08-07 01:09:45`
+Published :`2024-08-07 02:25:05`
 
 ---
 

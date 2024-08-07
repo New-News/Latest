@@ -1,10 +1,14 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-07 01:09:47`
+#### Latest Update : `2024-08-07 02:25:10`
 
 ## Latest News Grabbing 
 
 ---
+
+- [D’Vontaye Mitchell death: Four people are charged with felony murder](https://new-news.github.io/Latest/2024/08/07/dvontayemitchelldeathfourpeoplearechargedwithfelonymurder 'D’Vontaye Mitchell death: Four people are charged with felony murder')
+
+- [Georgia State Election Board passes new rule allowing county boards to demand more information before certifying an election](https://new-news.github.io/Latest/2024/08/07/georgia-state-election-board-passes-new-rule-allowing-county-boards-to-demand-more-information-before-certifying-an-election 'Georgia State Election Board passes new rule allowing county boards to demand more information before certifying an election')
 
 - [Darryl George: Judge dismisses racial discrimination claim in civil rights lawsuit and allows sex discrimination claim to proceed](https://new-news.github.io/Latest/2024/08/07/darryl-george-judge-dismisses-racial-discrimination-claim-in-civil-rights-lawsuit-and-allows-sex-discrimination-claim-to-proceed 'Darryl George: Judge dismisses racial discrimination claim in civil rights lawsuit and allows sex discrimination claim to proceed')
 
@@ -14,11 +18,7 @@
 
 - [Harris decides on Tim Walz as running mate](https://new-news.github.io/Latest/2024/08/07/harris-decides-on-tim-walz-as-running-mate 'Harris decides on Tim Walz as running mate')
 
-- [D’Vontaye Mitchell death: Four people are charged with felony murder](https://new-news.github.io/Latest/2024/08/07/dvontayemitchelldeathfourpeoplearechargedwithfelonymurder 'D’Vontaye Mitchell death: Four people are charged with felony murder')
-
 - [The ‘Blue Walz’: How a low-key Midwestern governor shot to the top to be Harris’ VP pick](https://new-news.github.io/Latest/2024/08/07/the-blue-walz- how-a-low-key-midwestern-governor-shot-to-the-top-to-be-harris-vp-pick 'The ‘Blue Walz’: How a low-key Midwestern governor shot to the top to be Harris’ VP pick')
-
-- [Georgia State Election Board passes new rule allowing county boards to demand more information before certifying an election](https://new-news.github.io/Latest/2024/08/07/georgia-state-election-board-passes-new-rule-allowing-county-boards-to-demand-more-information-before-certifying-an-election 'Georgia State Election Board passes new rule allowing county boards to demand more information before certifying an election')
 
 - [NASA delays SpaceX astronaut mission as rumors swirl about Boeing Starliner’s safety](https://new-news.github.io/Latest/2024/08/07/nasa-delays-spacex-astronaut-mission-as-rumors-swirl-about-boeing-starliner-s-safety 'NASA delays SpaceX astronaut mission as rumors swirl about Boeing Starliner’s safety')
 
