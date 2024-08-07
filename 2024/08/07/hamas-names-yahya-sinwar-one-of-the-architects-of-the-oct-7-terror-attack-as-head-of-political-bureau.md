@@ -1,6 +1,6 @@
 # Hamas names Yahya Sinwar, one of the architects of the Oct. 7 terror attack, as head of political bureau
 
-Published :`2024-08-07 06:43:10`
+Published :`2024-08-07 07:14:08`
 
 ---
 
