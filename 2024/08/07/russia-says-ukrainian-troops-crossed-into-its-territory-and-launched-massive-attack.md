@@ -1,6 +1,6 @@
 # Russia says Ukrainian troops crossed into its territory and launched ‘massive attack’
 
-Published :`2024-08-07 15:15:48`
+Published :`2024-08-07 15:36:34`
 
 ---
 
@@ -30,7 +30,9 @@ It is unclear why Ukrainian forces would launch an attack of the scale described
 
 Ukrainian troops have found themselves under increased pressure along the 600-mile frontline as Moscow continues its slow, grinding offensive, so it could be an attempt to divert Russian resources elsewhere. Given the spate of more negative developments from the frontline, the news of a successful incursion help Kyiv boost the morale of its troops and civilian population.
 
-A Russian military blogger known as Rybar reported that the Ukrainian military had established control over a gas transit station near the border. The blogger said the station is the only one through which gas from Russia flows to Ukraine and then to Europe. CNN cannot confirm that reporting.
+A Russian military blogger Rybar reported that the Ukrainian military had established control over a gas transit station near the border. The blogger said the station is the only one through which gas from Russia flows to Ukraine and then to Europe. CNN cannot confirm that reporting.
+
+The European Union has imposed wide-ranging economic sanctions on Russia – with the exception of key natural gas imports. The EU was dependent on Russian gas and while it has slashed imports from Russia from 45% of all gas imports in 2021, to 15% of EU gas imports in 2023, some Russian gas still continues to flow to Europe through Ukraine, despite the war.
 
 If confirmed, the attack would be a major development in the conflict – even if its immediate impact is limited.
 

@@ -1,6 +1,6 @@
 # Boeing still doesn’t know who removed and reinstalled the part that blew off an Alaska Airlines jet
 
-Published :`2024-08-07 15:15:48`
+Published :`2024-08-07 15:36:35`
 
 ---
 

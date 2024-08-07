@@ -1,6 +1,6 @@
 # Elon Musk’s X sues ad industry group over alleged advertising ‘boycott’
 
-Published :`2024-08-07 15:15:49`
+Published :`2024-08-07 15:36:34`
 
 ---
 
@@ -16,7 +16,7 @@ The lawsuit is the latest effort by X to revive its core ad business, which has 
 
 X leaders have alternately portrayed the platform’s ad business as recovering, then struggling, then recovering again. But X CEO Linda Yaccarino painted a dire picture in a video posted to the platform Monday. “They conspired to boycott X, which threatens our ability to thrive in the future,” she said of the GARM members, adding that the loss in advertising dollars placed the company “at long-term risk.”
 
-GARM did not immediately respond to a request for comment on the suit.
+A spokesperson for the World Federation of Advertisers declined to comment on the lawsuit.
 
 GARM members “agree to adopt, implement, and enforce GARM’s brand safety standards, including by withholding advertising from social media platforms deemed by GARM to be non-compliant with the brand safety standards,” the lawsuit states. After GARM publicly called on X, then known as Twitter, to comply with its brand safety standards after Musk’s takeover, many GARM-affiliated companies “abruptly discontinued or sharply curtailed their purchases of advertising,” the suit alleges.
 
