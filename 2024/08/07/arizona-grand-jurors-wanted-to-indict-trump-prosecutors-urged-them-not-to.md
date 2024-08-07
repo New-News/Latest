@@ -1,6 +1,6 @@
 # Arizona grand jurors wanted to indict Trump, prosecutors urged them not to
 
-Published :`2024-08-07 22:37:07`
+Published :`2024-08-07 23:14:41`
 
 ---
 
