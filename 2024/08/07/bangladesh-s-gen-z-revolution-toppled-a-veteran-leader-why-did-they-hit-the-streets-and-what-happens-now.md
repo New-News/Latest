@@ -1,6 +1,6 @@
 # Bangladesh’s ‘Gen Z revolution’ toppled a veteran leader. Why did they hit the streets and what happens now?
 
-Published :`2024-08-07 03:37:32`
+Published :`2024-08-07 04:19:14`
 
 ---
 
@@ -52,7 +52,7 @@ Meanwhile, images appeared online of young people guarding Hindu temples as misi
 
 The demonstrations became the ultimate challenge to Hasina since she secured a fourth consecutive term in January elections, which were boycotted by the main opposition party to protest what they said was a widespread crackdown on their ranks.
 
-On Tuesday, Bangladesh President Mohammed Shahabuddin announced the release of opposition leader and former Prime Minister Khaleda Zia – a longtime Hasina rival – who had been jailed in 2018 on graft charges which she denies. Other student protesters and those arrested on “false cases,” were also released, the president said.
+On Tuesday, Bangladesh President Mohammed Shahabuddin dissolved parliament and announced the release of opposition leader and former Prime Minister Khaleda Zia – a longtime Hasina rival – who had been jailed in 2018 on graft charges, which she denies. Other student protesters and those arrested on “false cases,” were also released, the president said.
 
 Hasina’s political career spanned decades since returning from exile in the early 1980s following the assassination of her father and most of her family. In 1990 she led a popular democratic uprising against military rule and has survived several assassination attempts in the years since.
 

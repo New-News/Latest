@@ -1,6 +1,6 @@
 # Seven US personnel injured in Monday rocket attack at Al Asad airbase in Iraq, including two evacuated for further care
 
-Published :`2024-08-07 03:37:33`
+Published :`2024-08-07 04:19:15`
 
 ---
 
