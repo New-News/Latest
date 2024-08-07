@@ -1,6 +1,6 @@
 # ‘Squad’ member Cori Bush loses Democratic primary in Missouri
 
-Published :`2024-08-07 14:14:13`
+Published :`2024-08-07 14:37:17`
 
 ---
 

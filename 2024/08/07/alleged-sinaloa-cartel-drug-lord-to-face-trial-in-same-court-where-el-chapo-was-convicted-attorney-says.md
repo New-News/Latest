@@ -1,6 +1,6 @@
 # Alleged Sinaloa cartel drug lord to face trial in same court where ‘El Chapo’ was convicted, attorney says
 
-Published :`2024-08-07 14:14:13`
+Published :`2024-08-07 14:37:17`
 
 ---
 

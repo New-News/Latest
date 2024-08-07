@@ -1,12 +1,12 @@
 # Hamas names Oct. 7 architect Yahya Sinwar new political leader. What does it mean for ceasefire talks?
 
-Published :`2024-08-07 14:14:13`
+Published :`2024-08-07 14:37:16`
 
 ---
 
 Hamas has named Yahya Sinwar – its leader in Gaza and one of the planners of the October 7 terror attack on Israel – as the new head of its political bureau, following the assassination of Ismail Haniyeh last week.
 
-Israel has publicly accused Sinwar of being the “mastermind” behind Hamas’ terror attack against Israel on October 7 – though experts say he is likely one of several – making him one of the key targets of its war in Gaza.
+Israel has publicly accused Sinwar of being the “mastermind” behind Hamas’ attack – though experts say he is likely one of several – making him one of the key targets of its war in Gaza.
 
 He has remained at large in the vast warren of tunnels trenched beneath Gaza, moving frequently and possibly surrounded by hostages as human shields, US officials believe. Sinwar has not been seen in public since October 7.
 
@@ -26,13 +26,13 @@ Two of Hamas’ principal allies – Hezbollah and Palestinian Islamic Jihad –
 
 The move raised immediate questions on the next steps for ceasefire and hostage negotiations with Israel.
 
-Basem Naim, a member of Hamas’ political bureau told CNN late Tuesday that the selection of Sinwar to replace Haniyeh means, “you [Israel] chose to assassinate those who negotiate, and we chose those who can oblige you to sign the agreement,” he said.
+Basem Naim, a member of Hamas’ political bureau, told CNN late Tuesday that the selection of Sinwar to replace Haniyeh means, “you [Israel] chose to assassinate those who negotiate, and we chose those who can oblige you to sign the agreement,” he said.
 
-And one man who spent many years in Israeli prisons with Sinwar, Esmat Mansour told CNN that his new role spells trouble for any future deal.
+And one man who spent many years in Israeli prisons with Sinwar, Esmat Mansour, told CNN that his new role spells trouble for any future deal.
 
 “As far as Israel is concerned, this is not good news regarding the deal, because it has considered the military wing and Sinwar to be the hardliners,” he said. “It’s Sinwar who holds the captives. Now all decisions are within his authority, the military as well as the political decisions, and the decision [whether to hold] negotiations.”
 
-He added that Sinwar’s close relationship with Iran could mean other negotiating parties, like Qatar and Turkey, which have good relations with the United States, may “lose their ability to influence the deal, or at least weaken their ability to influence.”
+He added that Sinwar’s close relationship with Iran could mean other negotiating parties, like Qatar and Turkey, which have good relations with the United States, “lose their ability to influence the deal, or at least weaken their ability to influence.”
 
 Analysts say that while Sinwar’s viewpoint has always been critically influential in the negotiations, his difficulty in communicating with the outside world means that the details of negotiating with mediators from Qatar and Egypt have fallen to other Hamas officials, led by Haniyeh until his assassination last week.
 
@@ -50,15 +50,15 @@ He has been designated a global terrorist by the US Department of State since 20
 
 Mansour told CNN that “Sinwar is a unifying name, there is consensus on that name internally for Hamas…They need a unified movement. Symbolically and politically Sinwar unifies the movement.”
 
-Mansour said that other candidates who might have been in the frame would have run into opposition from Hamas’ international allies. “Sinwar has returned the decision-making to Gaza, and in this way they get rid of pressure from the host countries,” Mansour said.
+Mansour said that other candidates who might have been in the frame would have run into opposition from Hamas’ international allies. “Sinwar has returned the decision-making to Gaza, and in this way they get rid of pressure from the host countries.”
 
 At the same time “because he’s on the run, it means that the leadership will be collective,” meaning that other Hamas figures would have leading roles, Mansour said.
 
 Some analysts say that Sinwar’s elevation now blurs or even extinguishes the distinction between Hamas’ political and military wings.
 
-Devorah Margolin of the Washington Institute, who studies Hamas, posted on X that: “Prior to Oct 7, Hamas long tried to differentiate between its political and military wings. Today’s decision to announce Yahya Sinwar – [who] masterminded the Oct. 7 attacks - as the new politburo chief ends all misconceptions surrounding the group’s structure.”
+Devorah Margolin of the Washington Institute, who studies Hamas, posted on X that: “Prior to Oct 7, Hamas long tried to differentiate between its political and military wings. Today’s decision to announce Yahya Sinwar – [who] masterminded the Oct. 7 attacks – as the new politburo chief ends all misconceptions surrounding the group’s structure.”
 
-Abu Hein said that Sinwar appointment as Hamas’ political leader “signifies, firstly, that the Palestinian cause is in a very dangerous stage, especially with the ongoing war on Gaza. Secondly, it shows that Hamas is a crucial player in the Palestinian arena on the international level.”
+Abu Hein said that Sinwar’s appointment as Hamas’ political leader “signifies, firstly, that the Palestinian cause is in a very dangerous stage, especially with the ongoing war on Gaza. Secondly, it shows that Hamas is a crucial player in the Palestinian arena on the international level.”
 
 This story has been updated with additional information.
 
