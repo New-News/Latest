@@ -1,6 +1,6 @@
 # Americans just can’t quit their giant, gas-burning trucks
 
-Published :`2024-08-07 13:37:03`
+Published :`2024-08-07 14:14:14`
 
 ---
 
