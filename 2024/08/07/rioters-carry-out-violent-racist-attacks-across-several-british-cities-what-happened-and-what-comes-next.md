@@ -1,20 +1,20 @@
 # Rioters carry out violent, racist attacks across several British cities. What happened, and what comes next?
 
-Published :`2024-08-07 09:16:51`
+Published :`2024-08-07 09:36:19`
 
 ---
 
-Riots have swept Britain over recent days, and more outbreaks of far-right, anti-immigrant violence are feared this week, leaving the new UK government scrambling to control the worst disorder in more than a decade.
-
-Police officers were injured in Plymouth on Monday night as angry crowds descended on the coastal city in southwest England.
-
-The latest outbreak of violence came after crowds of far-right agitators set fire to hotels housing asylum seekers over the weekend in two cities, leaving those inside trapped and terrified, while throngs of rioters in other cities damaged public buildings and clashed with police, throwing objects at officers and smashing their vehicles.
+The UK is facing the worst disorder it has seen in more than a decade, after outbreaks of far-right, anti-immigrant violence swept the country.
 
 Protests first broke out late last month, after an anti-immigrant misinformation campaign stoked outrage over a stabbing attack that left three children dead in Southport, northern England.
 
-The UK’s Crown Prosecution Service said on Tuesday that prosecutors have already charged around 100 people over the violent unrest.
+Over the weekend crowds of far-right agitators set fire to hotels housing asylum seekers in two cities, leaving those inside trapped and terrified, while throngs of rioters in other cities damaged public buildings and clashed with police, throwing objects at officers and smashing their vehicles.
 
-Prime Minister Keir Starmer chaired his first COBRA session on Monday morning – an emergency meeting of national agencies and branches of government – to discuss the response to the disorder, and Downing Street said he would host another on Tuesday evening. “This is not protest,” he said on Sunday. “It is organized, violent thuggery and it has no place on our streets, or online.”
+Hundreds of people have been arrested so far and some 6,000 specialist officers have been mobilized, the UK government says, as police prepare for more potential riots on Wednesday.
+
+After chairing a second meeting of the government’s emergency response committee UK Prime Minister Keir Starmer sought to reassure communities, saying riot perpetrators are “likely to be dealt with within a week” and warning anyone involved “you will feel the full force of the law.”
+
+The UK’s Crown Prosecution Service said on Tuesday that prosecutors have already charged around 100 people over the violent unrest. Jordan Parlour, 28, became the first person convicted of using threatening words or behavior intended to stir up racial hatred, Britain’s PA Media news agency reported. Appearing at Leeds Magistrates’ Court, he indicated admitting posting on Facebook between August 1 and 5 in relation to the disorder across the country and is due to be sentenced on Friday.
 
 The riots are ﻿the first crisis for Starmer, who became Britain’s leader a month ago after his Labour Party unseated the Conservatives in a general election. His next steps will be closely watched by lawmakers and the public.
 
@@ -46,7 +46,7 @@ Many more suspects have yet to be identified, and authorities have pledged to us
 
 The violence was most immediately triggered by the stabbing of a number of children in Southport, northwest England, earlier in the week – a rare and shocking incident that left three young girls dead and the country reeling.
 
-The far-right seized on and spread a wave of disinformation about that incident, including false claims the suspected attacker was an immigrant, to mobilize anti-Muslim and anti-immigrant protests. Police say the suspect was born in Britain.
+The far right seized on and spread a wave of disinformation about that incident, including false claims the suspected attacker was an immigrant, to mobilize anti-Muslim and anti-immigrant protests. Police say the suspect was born in Britain.
 
 But anti-migrant rhetoric has become increasingly widespread in Britain in recent years, with critics saying that trend has emboldened far-right sympathizers and contributed to scenes like those seen over the weekend.
 
