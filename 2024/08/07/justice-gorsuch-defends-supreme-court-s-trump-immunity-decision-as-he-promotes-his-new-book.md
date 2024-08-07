@@ -1,6 +1,6 @@
 # Justice Gorsuch defends Supreme Court’s Trump immunity decision as he promotes his new book
 
-Published :`2024-08-07 15:36:36`
+Published :`2024-08-07 16:19:16`
 
 ---
 

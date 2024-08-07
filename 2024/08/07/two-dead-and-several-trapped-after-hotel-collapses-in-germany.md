@@ -1,6 +1,6 @@
 # Two dead and several trapped after hotel collapses in Germany
 
-Published :`2024-08-07 15:36:35`
+Published :`2024-08-07 16:19:15`
 
 ---
 
@@ -24,7 +24,7 @@ The lower part of the building dates from the 17th century, while the two upper 
 
 Construction was being carried out on the building until Tuesday, police said, adding that three houses in the immediate vicinity of the hotel have been evacuated.
 
-This is a breaking story and has been updated.
+This story has been updated with developments.
 
 ---
 
