@@ -1,12 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-07 05:14:58`
+#### Latest Update : `2024-08-07 05:36:59`
 
 ## Latest News Grabbing 
 
 ---
 
-- [5.3 magnitude earthquake rumbles through Los Angeles area](https://new-news.github.io/Latest/2024/08/07/53magnitudeearthquakerumblesthroughlosangelesarea '5.3 magnitude earthquake rumbles through Los Angeles area')
+- [5.2 magnitude earthquake rumbles through Los Angeles area](https://new-news.github.io/Latest/2024/08/07/52magnitudeearthquakerumblesthroughlosangelesarea '5.2 magnitude earthquake rumbles through Los Angeles area')
 
 - [After a rash of stolen cars, Hyundai and Kia’s new anti-theft software is showing results](https://new-news.github.io/Latest/2024/08/07/after-a-rash-of-stolen-cars-hyundai-and-kia-s-new-anti-theft-software-is-showing-results 'After a rash of stolen cars, Hyundai and Kia’s new anti-theft software is showing results')
 
