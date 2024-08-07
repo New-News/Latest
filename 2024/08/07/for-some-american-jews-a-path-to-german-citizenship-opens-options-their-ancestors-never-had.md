@@ -1,12 +1,12 @@
 # For some American Jews, a path to German citizenship opens options their ancestors never had
 
-Published :`2024-08-07 20:37:41`
+Published :`2024-08-07 21:16:10`
 
 ---
 
-Scott Mayerowitz grew up in New York with deep resentment toward Germany, his family’s motherland.
+Scott Mayerowitz grew up in New Jersey in a household with resentment toward Germany, his family’s motherland.
 
-He has ancestors who were killed in the Holocaust, and his Jewish grandparents were forced to flee their homes there in the 1920s as Nazi influence started to grow.
+He has ancestors who were killed in the Holocaust, and his Jewish grandparents were forced to flee their homes there in the 1930s because of the Nazis.
 
 “There was always this sense not just that the Nazis had killed the family, but that the whole country had,” said Mayerowitz, 46, whose parents refused to have German-made products in the family home or drive a German car.
 
@@ -36,7 +36,7 @@ All four of Susan’s grandparents were killed at the Auschwitz concentration ca
 
 “My parents must be turning over in their graves. My mother swore she would never set foot in Germany again,” she said.
 
-Scott, who visited Auschwitz with his parents during an Eastern Europe trip several decades ago, said he explained to her that his desire to get German citizenship was about the options that come with European Union citizenship.
+Scott, who visited Auschwitz with his parents during an Eastern Europe trip in 2006, said he explained to her that his desire to get German citizenship was about the options that come with European Union citizenship.
 
 “I told her it’s not even so much for me as for your granddaughter,” he said.
 
@@ -100,7 +100,7 @@ Levi said it took her at least a year after that to get all of the additional re
 
 ### Looking to the future
 
-Levi said she thinks her grandfather – who died in 2007 at the age of 96 but with whom she got to travel to Germany with in the 1990s on a family trip to the town where he grew up – would be proud and happy for her.
+Levi said she thinks her grandfather – who died in 2007 at the age of 96 but with whom she got to travel to Germany in the 1990s on a family trip to the town where he grew up – would be proud and happy for her.
 
 And she said that while she hasn’t received any pushback from her Jewish American friends for becoming a German citizen, Levi said some German family members who aren’t Jewish wondered why she’d even want a German passport since she already has an American one.
 

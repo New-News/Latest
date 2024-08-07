@@ -1,6 +1,6 @@
 # Boeing still doesn’t know how a plane missing four bolts was sent to Alaska Airlines
 
-Published :`2024-08-07 20:37:40`
+Published :`2024-08-07 21:16:10`
 
 ---
 
@@ -26,7 +26,7 @@ Homendy also suggested that the problem could occur again during questioning of 
 
 “I want to ask, are you 100% sure a defect will not occur tomorrow? Yes or no?” she asked.
 
-“No,” replied Hector Silva, director of quality for Boeing.
+“No,” replied Hector Silva, vice president of regulatory compliance and core quality for Boeing.
 
 “Are you 100% sure there will never be an unauthorized removal (of a door plug)?” Homendy asked.
 

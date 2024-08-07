@@ -1,6 +1,6 @@
 # Jack Black says Tenacious D will ‘be back when it feels right’ after cancelling tour amid backlash
 
-Published :`2024-08-07 20:37:41`
+Published :`2024-08-07 21:16:10`
 
 ---
 
