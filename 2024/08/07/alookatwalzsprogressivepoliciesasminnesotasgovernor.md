@@ -1,6 +1,6 @@
 # A look at Walz’s progressive policies as Minnesota’s governor
 
-Published :`2024-08-07 12:30:33`
+Published :`2024-08-07 13:19:08`
 
 ---
 

@@ -1,6 +1,6 @@
 # Harrison Butker of the Kansas City Chiefs reportedly becoming highest paid NFL kicker
 
-Published :`2024-08-07 12:30:39`
+Published :`2024-08-07 13:19:12`
 
 ---
 

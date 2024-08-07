@@ -1,6 +1,6 @@
 # Colorado funeral home owners who allegedly mishandled 190 bodies ordered to pay nearly $1 billion to families of the deceased
 
-Published :`2024-08-07 12:30:34`
+Published :`2024-08-07 13:19:08`
 
 ---
 

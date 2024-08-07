@@ -1,6 +1,6 @@
 # Maryland assault weapons ban upheld by appeals court as sparring over Supreme Court precedent continues
 
-Published :`2024-08-07 12:30:35`
+Published :`2024-08-07 13:19:08`
 
 ---
 

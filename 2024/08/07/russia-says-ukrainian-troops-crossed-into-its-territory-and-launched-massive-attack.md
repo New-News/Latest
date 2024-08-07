@@ -1,6 +1,6 @@
 # Russia says Ukrainian troops crossed into its territory and launched ‘massive attack’
 
-Published :`2024-08-07 12:30:32`
+Published :`2024-08-07 13:19:07`
 
 ---
 
@@ -8,7 +8,9 @@ Russia has accused Ukrainian troops of crossing the border into its Kursk region
 
 The Russian Ministry of Defense, the Russian Investigative Committee and the Russian Ombudsman for Children all said Ukrainian forces had launched a “massive attack” on Tuesday, attempting to break through the Russian defenses on the borders of the Kursk region, which sits just north of Ukraine’s Sumy region.
 
-Ukrainian authorities did not comment on the claims.
+Russian President Vladimir Putin called the alleged incursion a “large-scale provocation,” saying Kyiv conducted “indiscriminate shooting from various types of weapons, including missiles, at civilian buildings, residential buildings, and ambulances.”
+
+Ukrainian authorities did not comment on the claims and CNN cannot independently verify them.
 
 Russian authorities and military bloggers said Ukrainian forces attacked by land and air to enter Russia near the town of Sudzha, about 6 miles (10 kilometers) from the border.
 

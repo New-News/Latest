@@ -1,6 +1,6 @@
 # Polish man found guilty of assaulting Danish prime minister
 
-Published :`2024-08-07 12:30:32`
+Published :`2024-08-07 13:19:08`
 
 ---
 
