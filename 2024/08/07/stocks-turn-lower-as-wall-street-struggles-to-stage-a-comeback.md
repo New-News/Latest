@@ -1,18 +1,18 @@
 # Stocks turn lower as Wall Street struggles to stage a comeback
 
-Published :`2024-08-07 18:20:29`
+Published :`2024-08-07 18:40:10`
 
 ---
 
 US stocks wavered Wednesday midday, giving back earlier gains as investors tried to recover from the week’s bruising losses.
 
-The Dow was lower by 85 points, or 0.2%, midday Wednesday after gaining more than 400 points earlier in the day. The S&P 500 fell 0.2% and the Nasdaq Composite lost 0.4%.
+The Dow was lower by 204 points, or 0.5%, Wednesday afternoon after gaining more than 400 points earlier in the day. The S&P 500 fell 0.5% and the Nasdaq Composite lost 0.7%.
 
-CNN’s Fear & Greed Index, which measures seven barometers of market sentiment, edged higher into “fear” territory after falling to “extreme fear” on Friday.
+CNN’s Fear & Greed Index, which measures seven barometers of market sentiment, is now in “extreme fear” territory. The index signaled “fear” on Wall Street earlier in the session.
 
-Still, the Cboe Volatility Index — Wall Street’s fear gauge — which measures bets on expected stock market volatility, fell to 24. Earlier this week, the index surged above 60.
+The Cboe Volatility Index — Wall Street’s fear gauge — which measures bets on expected stock market volatility, ticked higher to 28.
 
-Oil prices rose on Wednesday. West Texas Intermediate crude futures, the US benchmark for oil, rose 3.5% to $75.76 a barrel. Brent crude futures, the international benchmark, ticked 3% higher to $78.80 a barrel.
+Oil prices rose on Wednesday. West Texas Intermediate crude futures, the US benchmark for oil, rose 2.6% to $75.08 a barrel. Brent crude futures, the international benchmark, ticked 2.3% higher to $78.23 a barrel.
 
 Japanese stocks rose 1.2% on Wednesday, extending their rally after the benchmark Nikkei 225 index on Monday saw its largest daily percentage drop since 1987. Japan was also hit hard by the appreciation of the yen after its central bank last week raised interest rates for the second time in 2024.
 
