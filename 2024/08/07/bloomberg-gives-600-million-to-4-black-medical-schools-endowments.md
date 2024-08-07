@@ -1,6 +1,6 @@
 # Bloomberg gives $600 million to 4 Black medical schools’ endowments
 
-Published :`2024-08-07 14:37:19`
+Published :`2024-08-07 15:15:50`
 
 ---
 

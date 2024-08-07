@@ -1,6 +1,6 @@
 # Pelosi says she has not spoken to Biden since he dropped out of the race
 
-Published :`2024-08-07 14:37:20`
+Published :`2024-08-07 15:15:51`
 
 ---
 

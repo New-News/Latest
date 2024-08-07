@@ -1,6 +1,6 @@
 # Russia says Ukrainian troops crossed into its territory and launched ‘massive attack’
 
-Published :`2024-08-07 14:37:17`
+Published :`2024-08-07 15:15:48`
 
 ---
 
@@ -12,17 +12,25 @@ Russian President Vladimir Putin called the alleged incursion a “large-scale p
 
 Ukrainian authorities did not comment on the claims and CNN cannot independently verify them.
 
-Russian authorities and military bloggers said Ukrainian forces attacked by land and air to enter Russia near the town of Sudzha, about 6 miles (10 kilometers) from the border.
+The extent of the attack, including whether Ukrainian troops took over any settlements or caused damage to any strategic targets, remains unclear. It is also not clear whether any Ukrainian soldiers remained on Russian territory.
+
+Russian authorities and military bloggers said Ukrainian forces attacked by land and air to enter Russia near the town of Sudzha, a town of 5,000 that lies about 6 miles (10 kilometers) from the border.
+
+Geolocated video shows extensive destruction at the border crossing southeast of Sudzha, in addition to damage from shelling in the town itself. Another geolocated video shows Ukrainian forces on the approaches to the town, although it’s unclear whether they have entered or control it.
 
 The Russian Ministry of Defense said that about 300 troops, supported by tanks and armored vehicles, attacked Russian positions near the villages of Nikolayevo-Daryino and Oleshnya.
 
 Initially, the ministry said the attack was repelled, but that statement was later corrected to say that “the enemy is being inflicted with fire damage.”
+
+Later on Wednesday, state news agency RIA Novosti quoted the Chief of the General Staff of the Russian Armed Forces Valery Gerasimov as telling Putin that “the advance of the Ukrainian Armed Forces deep into Russian territory has been stopped.”
 
 Aleksey Smirnov, the acting head of Kursk region, said Wednesday that several thousand people left the area over the past 24 hours.
 
 It is unclear why Ukrainian forces would launch an attack of the scale described by Russian authorities.
 
 Ukrainian troops have found themselves under increased pressure along the 600-mile frontline as Moscow continues its slow, grinding offensive, so it could be an attempt to divert Russian resources elsewhere. Given the spate of more negative developments from the frontline, the news of a successful incursion help Kyiv boost the morale of its troops and civilian population.
+
+A Russian military blogger known as Rybar reported that the Ukrainian military had established control over a gas transit station near the border. The blogger said the station is the only one through which gas from Russia flows to Ukraine and then to Europe. CNN cannot confirm that reporting.
 
 If confirmed, the attack would be a major development in the conflict – even if its immediate impact is limited.
 
