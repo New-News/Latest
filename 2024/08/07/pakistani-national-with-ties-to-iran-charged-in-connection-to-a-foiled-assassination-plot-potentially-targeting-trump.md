@@ -1,6 +1,6 @@
 # Pakistani national with ties to Iran charged in connection to a foiled assassination plot potentially targeting Trump
 
-Published :`2024-08-07 16:42:52`
+Published :`2024-08-07 17:15:49`
 
 ---
 

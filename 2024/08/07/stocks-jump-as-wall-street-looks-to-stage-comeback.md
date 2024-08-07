@@ -1,12 +1,12 @@
 # Stocks jump as Wall Street looks to stage comeback
 
-Published :`2024-08-07 16:42:50`
+Published :`2024-08-07 17:15:46`
 
 ---
 
 US stocks continued to gain Wednesday as investors tried to recover from the week’s bruising losses.
 
-The Dow was 202 points higher, or 0.5%, midday Wednesday after gaining more than 400 points at its session highs. The S&P﻿ 500 gained 0.8% and the Nasdaq Composite added 0.9%.
+The Dow was 93 points higher, or 0.2%, midday Wednesday after gaining more than 400 points at its session highs. The S&P 500 gained 0.5% and the Nasdaq Composite added 0.6.
 
 CNN’s Fear & Greed Index, which measures seven barometers of market sentiment, edged higher into “fear” territory after falling to “extreme fear” on Friday.
 
