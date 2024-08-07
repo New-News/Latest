@@ -1,0 +1,72 @@
+# At least 91 killed in Bangladesh protests as curfew and internet blocks imposed
+
+Published :`2024-08-07 01:09:46`
+
+---
+
+At least 91 people were killed and hundreds injured in clashes in Bangladesh on Sunday as police fired tear gas and rubber bullets to disperse tens of thousands of protesters calling for Prime Minister Sheikh Hasina to resign.
+
+The death toll, which includes at least 13 policemen, was the highest for a single day from any protests in Bangladesh’s recent history, surpassing the 67 deaths reported on July 19 when students took to the streets to demand the scrapping of quotas for government jobs.
+
+The government declared an indefinite nationwide curfew starting at 6 p.m. local time on Sunday, the first time it has taken such a step during the current protests that began last month. It also announced a three-day general holiday starting from Monday.
+
+The unrest, which has prompted the government to shut down internet services, is Hasina’s biggest test in her 20-year regime after she won a fourth straight term in elections that were boycotted by the main opposition Bangladesh Nationalist Party.
+
+Critics of Hasina, along with human rights groups, have accused her government of using excessive force against protesters, a charge she and her ministers deny.
+
+Demonstrators blocked major highways on Sunday as student protesters launched a non-cooperation program to press for the government’s resignation, and violence spread nationwide.
+
+“Those who are carrying out violence are not students but terrorists who are out to destabilize the nation,” Hasina said after a national security panel meeting, attended by the chiefs of the army, navy, air force, police and other agencies.
+
+“I appeal to our countrymen to suppress these terrorists with a strong hand.”
+
+Police stations and ruling party offices were targeted as violence rocked the country of 170 million people.
+
+Thirteen policemen were beaten to death in the north-western district of Sirajganj, police said. Nine others were killed in the district, where two lawmakers’ homes were set on fire.
+
+At least 11 people, including two students and a ruling party leader, were killed and dozens injured amid fierce clashes in several places in the capital, Dhaka, police and witnesses said.
+
+India’s foreign ministry urged its nationals not to travel to Bangladesh until further notice.
+
+### Bullet wounds
+
+Two construction workers were killed on their way to work and 30 injured in the central district of Munsiganj, during a three-way clash of protesters, police and ruling party activists, witnesses said.
+
+“They were brought dead to the hospital with bullet wounds,” said Abu Hena Mohammad Jamal, the superintendent of the district hospital.
+
+Police said they had not fired any live bullets.
+
+In the northeastern district of Pabna, at least three people were killed and 50 injured during a clash between protesters and activists of Hasina’s ruling Awami League party, witnesses said.
+
+Eight each in Feni and Lakshmipur, six in Narsingdi, five in Rangpur, four in Magura and the rest in several other districts, hospital officials said.
+
+“An attack on a hospital is unacceptable,” said Health Minister Samanta Lal Sen after a group vandalised a medical college hospital and set fire to vehicles, including an ambulance, in Dhaka.
+
+At least four garment factories were set on fire in Ashulia, on the outskirts of Dhaka, police said.
+
+For the second time during the recent protests, the government shut down high-speed internet services, mobile operators said. Social media platforms Facebook and WhatsApp were not available, even via broadband connections.
+
+Bangladesh authorities instructed the country’s telecoms providers on Sunday to shut down 4G, effectively disabling internet services, according to a confidential government memo seen by Reuters.
+
+### Government orders
+
+“You are requested to shut down all your 4G services until further notice, only 2G will be effective,” said the document issued by the National Telecommunication Monitoring Center, a government intelligence agency.
+
+Telecoms companies were previously told their licences would be cancelled if they did not comply with government orders, a person with direct knowledge told Reuters.
+
+The telecom regulatory body did not respond to Reuters’ calls.
+
+Last month, at least 150 people were killed and thousands injured in violence touched off by student groups protesting against quotas for government jobs.
+
+The protests paused after the Supreme Court scrapped most quotas, but students returned to the streets in sporadic protests last week, demanding justice for the families of those killed.
+
+“I think the genie is out of the bottle and Hasina may not put it back in the bottle again,” said Shakil Ahmed, associate professor for government and politics at Jahangirnagar University.
+
+Chief of Army Staff General Waker-Uz-Zaman on Saturday directed his officers to ensure the security of people’s lives, properties, and important state installations under all circumstances, a statement said.
+
+“(The) Bangladesh Army is a symbol of the people’s trust. The army is always there and will always be there for the people’s interests and for any needs of the state,” the statement quoted him as saying.
+
+Zaman will brief the media on Monday, an army spokesman said.
+
+---
+
