@@ -1,6 +1,6 @@
 # Boeing Starliner astronauts have now been in space more than 60 days with no end in sight
 
-Published :`2024-08-07 17:15:46`
+Published :`2024-08-07 17:36:28`
 
 ---
 
@@ -8,17 +8,15 @@ Butch Wilmore and Suni Williams — two veteran NASA astronauts piloting the fir
 
 There is still no clear return date in sight.
 
-CNN confirmed on Tuesday that NASA has not yet started a “flight readiness review” for the Starliner crew’s return from the International Space Station. The agency had said on July 26 that it would begin that process in the first couple days of August.
+As testing to understand the root cause of the issues Starliner experienced en route to the International Space Station continues, NASA is exploring various contingency options, the space agency confirmed during a news conference Wednesday. Those contingencies include keeping Williams and Wilmore on the orbiting laboratory for another six months and bringing them home on a SpaceX Crew Dragon vehicle in 2025.
 
-But Boeing and NASA teams appear to be working still on a return date as officials evaluate testing data and conduct analyses about the propulsion issues and helium leaks that hampered the first leg of the Starliner capsule’s flight.
+CNN confirmed on Tuesday that NASA has not yet started a “flight readiness review” for the Starliner crew’s return from the space station. The agency had said on July 26 that it would begin that process in the first couple days of August.
 
-The delay of the flight readiness review process indicates that Starliner’s return remains uncertain as officials work to come to an agreement on how the rest of the mission that had launched June 5 should play out.
+But Boeing and NASA teams are still working on a potential return date as officials evaluate testing data and conduct analyses about the propulsion issues and helium leaks that hampered the first leg of the Starliner capsule’s flight.
 
-NASA will host a briefing about the mission’s status at 12:30 p.m. ET Wednesday.
+NASA indicated Wednesday that Starliner’s return remains uncertain as officials work to come to an agreement on how the rest of the mission that had launched June 5 should play out.
 
-The US space agency is set to face a flurry of questions about recent reporting from media outlets suggesting the space agency is considering returning Wilmore and Williams on a SpaceX vehicle instead.
-
-NASA has always had such a scenario in place as a mission contingency, but the primary goal is to bring the two astronauts home on Starliner. Boeing maintains that its spacecraft is safe for astronauts.
+NASA has always considered returning Williams and Wilmore on a SpaceX vehicle as a mission contingency, but the primary goal is to bring the two astronauts home on Starliner. Boeing maintains that its spacecraft is safe for astronauts.
 
 However, the space agency announced Tuesday that it was delaying the launch of SpaceX’s Crew-9 mission, a routine flight slated to fly with four astronauts to replace the Crew-8 mission on board the International Space Station.
 
