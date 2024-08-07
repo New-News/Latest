@@ -1,6 +1,6 @@
 # State Dept calls for Israel to investigate allegations of ‘horrific’ sexual abuse of Palestinian detainees
 
-Published :`2024-08-07 22:14:35`
+Published :`2024-08-07 22:37:06`
 
 ---
 
@@ -18,11 +18,13 @@ According to Physicians for Human Rights Israel (PHRI), the alleged victim – a
 
 PHRI said it had raised concern about similar allegations at the base in the past, but that this incident came to light and prompted an investigation because the alleged victim was taken to a public hospital away from the detention center.
 
-“When there are alleged violations, the government of Israel needs to take steps to investigate those who are alleged to have committed abuses and, if appropriate, hold them accountable,” said Miller, who called the Israel Defense Forces (IDF)  announcement of arrests of those alleged to have involved and an investigation “appropriate.”
+“When there are alleged violations, the government of Israel needs to take steps to investigate those who are alleged to have committed abuses and, if appropriate, hold them accountable,” said Miller, who called the IDF announcement of arrests of those alleged to have involved and an investigation “appropriate.”
 
 The IDF said it had no comment on either the leaked video or the State Department’s comment.
 
 A report released by the UN Human Rights Office last week said Palestinian detainees from the Gaza Strip and the West Bank have faced torture, mistreatment and sexual abuse since October 7 and that least 53 have died in detention.
+
+On Wednesday, Israeli lawmakers denounced the video leak. Israel’s far-right Finance Minister Bezalel Smotrich called for an “immediate criminal investigation” to find out who leaked the video, which he described as having “hugely damaged Israel internationally.”
 
 ### Widespread allegations of abuse
 
