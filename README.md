@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-07 02:25:10`
+#### Latest Update : `2024-08-07 02:48:59`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Bangladesh’s ‘Gen Z revolution’ toppled a veteran leader. Why did they hit the streets and what happens now?](https://new-news.github.io/Latest/2024/08/07/bangladesh-s-gen-z-revolution-toppled-a-veteran-leader-why-did-they-hit-the-streets-and-what-happens-now 'Bangladesh’s ‘Gen Z revolution’ toppled a veteran leader. Why did they hit the streets and what happens now?')
 
 - [D’Vontaye Mitchell death: Four people are charged with felony murder](https://new-news.github.io/Latest/2024/08/07/dvontayemitchelldeathfourpeoplearechargedwithfelonymurder 'D’Vontaye Mitchell death: Four people are charged with felony murder')
 
@@ -117,8 +119,6 @@
 - [Deputy who shot Sonya Massey thought her rebuke ‘in the name of Jesus’ indicated intent to kill him](https://new-news.github.io/Latest/2024/08/07/deputy-who-shot-sonya-massey-thought-her-rebuke-in-the-name-of-jesus-indicated-intent-to-kill-him 'Deputy who shot Sonya Massey thought her rebuke ‘in the name of Jesus’ indicated intent to kill him')
 
 - [In photos: A photographer’s journey with the Palestinian Bedouin](https://new-news.github.io/Latest/2024/08/07/in-photos-a-photographer-s-journey-with-the-palestinian-bedouin 'In photos: A photographer’s journey with the Palestinian Bedouin')
-
-- [Bangladesh’s ‘Gen Z revolution’ toppled a veteran leader. Why did they hit the streets and what happens now?](https://new-news.github.io/Latest/2024/08/07/bangladesh-s-gen-z-revolution-toppled-a-veteran-leader-why-did-they-hit-the-streets-and-what-happens-now 'Bangladesh’s ‘Gen Z revolution’ toppled a veteran leader. Why did they hit the streets and what happens now?')
 
 - [Bangladesh prime minister flees to India as anti-government protesters storm her residence](https://new-news.github.io/Latest/2024/08/07/bangladesh-prime-minister-flees-to-india-as-anti-government-protesters-storm-her-residence 'Bangladesh prime minister flees to India as anti-government protesters storm her residence')
 

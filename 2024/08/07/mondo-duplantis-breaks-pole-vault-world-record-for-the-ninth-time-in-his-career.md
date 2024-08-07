@@ -1,6 +1,6 @@
 # Mondo Duplantis breaks pole vault world record for the ninth time in his career
 
-Published :`2024-08-07 02:25:04`
+Published :`2024-08-07 02:48:57`
 
 ---
 

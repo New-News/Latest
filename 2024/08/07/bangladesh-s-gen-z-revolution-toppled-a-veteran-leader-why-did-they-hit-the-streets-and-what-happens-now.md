@@ -1,6 +1,6 @@
 # Bangladesh’s ‘Gen Z revolution’ toppled a veteran leader. Why did they hit the streets and what happens now?
 
-Published :`2024-08-07 02:25:05`
+Published :`2024-08-07 02:48:56`
 
 ---
 
@@ -10,9 +10,9 @@ There was jubilation on the streets of the Bangladeshi capital Dhaka on Monday a
 
 Hasina’s abrupt exit ends 15 years in power that has been marked by a stifling of civil freedoms and the heavy-handed use of security forces to crush dissent, critics and rights groups say.
 
-In a national address, Bangladesh’s army chief Gen. Waker-uz-Zaman said the military would form an interim government, but student protest leaders have called for Nobel laureate Muhammad Yunus to lead a temporary administration.
+An interim government headed by Nobel Peace Prize laureate Muhammad Yunus will now lead the country at the request of student protest leaders, the Bangladesh president’s press secretary confirmed to CNN on Tuesday.
 
-Later on Tuesday, a source at the Yunus Centre think tank in Dhaka confirmed to CNN that its founder had agreed to return to Bangladesh to fulfil the protesters’ request for him to serve as head of the interim government, while the country’s main opposition party offered its full support to student protesters.
+Meanwhile, the country’s main opposition party has offered its full support to student protesters.
 
 What began as peaceful protests by students against civil service job quotas morphed into a nationwide push to force Hasina out after demonstrators were met with a government crackdown that killed about 300 people, according to local media and agencies.
 
@@ -78,7 +78,7 @@ On Tuesday, Bangladesh awaited the formation of the interim government and prote
 
 Student leader Muhammad Nahid Islam said they hadn’t met all of their goals, and after Hasina’s resignation, the group wanted to “abolish fascist systems forever.” The leaders say they won’t accept a military-led or supported government.
 
-The protest group say the interim government should be led by Yunus, a social entrepreneur and banker who won the 2006 Nobel Peace Prize for his pioneering microfinance work that helped alleviate poverty in Bangladesh.
+Yunus, the student-backed head of the interim government, is an 84-year-old social entrepreneur and banker who won the 2006 Nobel Peace Prize for his pioneering microfinance work that helped alleviate poverty in Bangladesh.
 
 Yunus will soon return to Bangladesh with the intention to take up the post “after a minor medical procedure in Paris,” a source told CNN. The Students Against Discrimination group also confirmed his return, telling CNN in a text message: “We are very delighted to say that Dr. Yunus has agreed to accept this challenge to save Bangladesh as per our student’s request.”
 
