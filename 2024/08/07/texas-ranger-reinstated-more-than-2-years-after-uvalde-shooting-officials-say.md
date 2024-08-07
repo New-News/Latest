@@ -1,6 +1,6 @@
 # Texas Ranger reinstated more than 2 years after Uvalde shooting, officials say
 
-Published :`2024-08-07 11:12:40`
+Published :`2024-08-07 11:36:39`
 
 ---
 
