@@ -1,6 +1,6 @@
 # Usha Vance defends husband’s ‘childless cat ladies’ comment as a ‘quip’ in first solo interview
 
-Published :`2024-08-07 04:39:20`
+Published :`2024-08-07 05:14:57`
 
 ---
 
