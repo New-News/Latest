@@ -1,6 +1,6 @@
 # ‘Squad’ member Cori Bush will lose Democratic primary in Missouri, CNN projects
 
-Published :`2024-08-07 03:17:19`
+Published :`2024-08-07 03:37:32`
 
 ---
 
@@ -31,6 +31,10 @@ Bush’s infrastructure vote and her early, strident advocacy for a halt to the 
 An ad by the Mainstream Democrats PAC also attacked her for being the subject of a federal investigation over alleged misuse of campaign funds for security services. Bush has denied any wrongdoing and maintains that she complied with House rules.
 
 Bell had no shortage of local endorsers, but, in addition the United Democracy Project’s big outlay, big spenders on his behalf included the Democratic Majority for Israel, the pro-crypto Fairshake PAC and billionaire Reid Hoffman’s Mainstream Democrats.
+
+Bush is the fourth House member to lose a primary this year. In March, Rep. Jerry Carl lost an all-incumbent Republican primary in Alabama to Rep. Barry Moore after both ran for the same seat following redistricting. Bowman lost his primary in June, and last week, Virginia Rep. Bob Good, the chair of the hard-line House Freedom Caucus, conceded his Republican primary after a recount upheld his June defeat.
+
+This story has been updated with additional information.
 
 ---
 
