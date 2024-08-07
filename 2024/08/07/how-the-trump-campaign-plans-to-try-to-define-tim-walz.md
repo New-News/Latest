@@ -1,6 +1,6 @@
 # How the Trump campaign plans to try to define Tim Walz
 
-Published :`2024-08-07 05:36:49`
+Published :`2024-08-07 06:21:32`
 
 ---
 

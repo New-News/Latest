@@ -1,0 +1,80 @@
+# Who is Muhammad Yunus, the Nobel laureate leader of Bangladesh’s interim government?
+
+Published :`2024-08-07 06:21:31`
+
+---
+
+A Nobel laureate known as the “banker to the poor” will aim to bring stability to Bangladesh after he answered a call by student protesters for him to temporarily lead the restive country following weeks of deadly anti-government demonstrations.
+
+Muhammad Yunus, 84, will head an interim government following the toppling of the South Asian country’s prime minister and dissolution of parliament, according to the Bangladesh president’s press secretary.
+
+Yunus is a social entrepreneur and banker who won the 2006 Nobel Peace Prize for his pioneering microfinance work that helped alleviate poverty in Bangladesh and was widely adopted around the world.
+
+He is also a longtime critic of former prime minister Sheikh Hasina, who resigned earlier this week and fled the country following years of increasingly authoritarian rule.
+
+Her departure brought jubilation to the student movement that forced her out – but also some trepidation over whether the military would step in to fill the leadership vacuum.
+
+A source told CNN this week that Yunus was in France for a minor medical procedure – but will return to Bangladesh soon to take up the post of interim leader.
+
+The Students Against Discrimination group also confirmed his return, telling CNN in a text message: “We are very delighted to say that Dr. Yunus has agreed to accept this challenge to save Bangladesh as per our students’ request.”
+
+### Who is Muhammad Yunus?
+
+Yunus was born in 1940 in Chittagong, a port city in southeastern Bangladesh, according to his profile on the Nobel Prize website.
+
+He studied at Dhaka University, before receiving the prestigious Fulbright scholarship to attend Vanderbilt University in the United States, where he received a Ph.D. in economics.
+
+In 1972, a year after Bangladesh won independence from Pakistan, he returned to teach at Chittagong University.
+
+But disaster soon struck. A severe famine swept the country in 1974, wiping out an estimated 1.5 million people.
+
+“I found it difficult to teach elegant theories of economics in the university classroom, in the backdrop of a terrible famine in Bangladesh. Suddenly, I felt the emptiness of those theories in the face of crushing hunger and poverty,” Yunus said in his 2006 Nobel lecture after receiving the award.
+
+“I wanted to do something immediate to help people around me, even if it was just one human being, to get through another day with a little more ease,” he said.
+
+He began providing small loans out of pocket to the poorest residents in his community – eventually founding the Grameen Bank in 1983, which would become a world leader in alleviating poverty through microlending.
+
+The bank quickly grew, with different branches and similar models now operating worldwide.
+
+Yunus and the Grameen Bank were awarded the Nobel Peace Prize in 2006, after lending a total of about $6 billion in housing, student and micro-enterprise loans, and specifically in support of Bangladeshi women.
+
+He is also the founder of the Yunus Centre, a Dhaka-based think tank that helps develop new social businesses.
+
+Some critics have cast a skeptical eye on Yunus and the Grameen Bank, arguing that some microlenders’ high interest rates had impoverished borrowers as the lenders made big profits from small loans.
+
+Yunus has pushed back on those claims, telling CNN earlier this year that the Grameen Bank doesn’t aim to earn money – but to help the poor and empower small businesses.
+
+### Frictions with Hasina’s government
+
+Over the years, Yunus has repeatedly gone head-to-head with former prime minister Hasina – who has accused him of “sucking blood from the poor,” according to Reuters.
+
+Yunus briefly proposed forming a new political party in 2007 ahead of parliamentary elections – which Hasina decried at the time, saying political newcomers were “dangerous elements … to be viewed with suspicion,” Reuters reported.
+
+Yunus ultimately did not move forward with forming the party.
+
+In 2011, Bangladesh’s government-controlled central bank removed Yunus as managing director of Grameen Bank, saying he had exceeded the mandatory retirement age.
+
+In the following years, Yunus was embroiled in multiple legal cases that his supporters said were the result of him being unfairly targeted by the authorities.
+
+They include a defamation suit, a food safety case, and allegations of tax irregularities, which he denied.
+
+In January, a court in Bangladesh sentenced Yunus to six months in prison for labor law violations – with the banker again denying any wrongdoing.
+
+In a separate case, he was indicted in June on embezzlement charges.
+
+Hasina’s government had insisted its actions against Yunus were not politically motivated, but the banker disagreed. It is not currently clear what will happen to those prosecutions now Hasina is out of power.
+
+Speaking to CNN in February while on bail appealing his prison sentence, Yunus said the corruption allegations against him had no basis, describing them as harassment.
+
+“I am not in the political field, there is no evidence that I am involved in politics,” Yunus said at the time, warning that Bangladesh was becoming a “self-destructing civilization.”
+
+In a separate interview with Reuters in June, he said Bangladesh had turned into a “one-party” state, with the ruling party stamping out all political competition.
+
+In an interview with CNN after Hasina’s resignation on Monday, Yunus said he wanted to see the army hand control of the country to a civilian government. He lambasted Hasina, saying she has “tortured us, she has made this country unlivable for people.”
+
+“People are celebrating on the street and millions and millions of people all over Bangladesh [are] celebrating as if this is our liberation day,” he said.
+
+Addressing his message to the protest movement in Bangladesh, he added: “You have done a great job.”
+
+---
+

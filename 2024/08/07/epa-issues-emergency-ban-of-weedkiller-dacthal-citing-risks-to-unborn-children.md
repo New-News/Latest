@@ -1,6 +1,6 @@
 # EPA issues emergency ban of weedkiller Dacthal, citing risks to unborn children
 
-Published :`2024-08-07 05:36:50`
+Published :`2024-08-07 06:21:32`
 
 ---
 
