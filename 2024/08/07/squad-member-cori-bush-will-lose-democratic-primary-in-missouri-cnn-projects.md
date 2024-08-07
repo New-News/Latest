@@ -1,6 +1,6 @@
 # ‘Squad’ member Cori Bush will lose Democratic primary in Missouri, CNN projects
 
-Published :`2024-08-07 07:14:07`
+Published :`2024-08-07 07:37:31`
 
 ---
 

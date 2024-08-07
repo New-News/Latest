@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-07 07:14:11`
+#### Latest Update : `2024-08-07 07:37:34`
 
 ## Latest News Grabbing 
 
 ---
+
+- [‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers](https://new-news.github.io/Latest/2024/08/07/they-tried-to-kill-people--rotherham-residents-despair-after-riot-at-hotel-housing-asylum-seekers '‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers')
 
 - [5.2 magnitude earthquake near Bakersfield rumbles through Southern California](https://new-news.github.io/Latest/2024/08/07/52magnitudeearthquakenearbakersfieldrumblesthroughsoutherncalifornia '5.2 magnitude earthquake near Bakersfield rumbles through Southern California')
 
@@ -57,8 +59,6 @@
 - [EPA issues emergency ban of weedkiller Dacthal, citing risks to unborn children](https://new-news.github.io/Latest/2024/08/07/epa-issues-emergency-ban-of-weedkiller-dacthal-citing-risks-to-unborn-children 'EPA issues emergency ban of weedkiller Dacthal, citing risks to unborn children')
 
 - [‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing](https://new-news.github.io/Latest/2024/08/07/cockroaches-of-the-factory--workers-paint-a-picture-of-chaos-and-dysfunction-at-boeing '‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing')
-
-- [‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers](https://new-news.github.io/Latest/2024/08/07/they-tried-to-kill-people--rotherham-residents-despair-after-riot-at-hotel-housing-asylum-seekers '‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers')
 
 - [Opinion: I’m a vaccine scientist. The devastating impacts of vaccine hesitancy have touched my life too](https://new-news.github.io/Latest/2024/08/07/opinion-i-m-a-vaccine-scientist-the-devastating-impacts-of-vaccine-hesitancy-have-touched-my-life-too 'Opinion: I’m a vaccine scientist. The devastating impacts of vaccine hesitancy have touched my life too')
 

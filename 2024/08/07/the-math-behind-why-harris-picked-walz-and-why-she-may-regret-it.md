@@ -1,6 +1,6 @@
 # The math behind why Harris picked Walz and why she may regret it
 
-Published :`2024-08-07 07:14:08`
+Published :`2024-08-07 07:37:32`
 
 ---
 
