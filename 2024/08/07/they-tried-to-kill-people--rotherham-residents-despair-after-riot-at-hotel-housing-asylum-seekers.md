@@ -1,6 +1,6 @@
 # ‘They tried to kill people:’ Rotherham residents despair after riot at hotel housing asylum seekers
 
-Published :`2024-08-07 07:37:31`
+Published :`2024-08-07 08:20:01`
 
 ---
 
@@ -16,7 +16,7 @@ In his former role of England’s chief prosecutor, Starmer presided over Britai
 
 CNN visited the site of the riot in Rotherham to speak to local residents, who woke Monday to see their estate trashed by “far-right scumbags,” as one put it. Community leaders concerned by the prospect of more violence: another set of protests is planned Wednesday at visa processing centers around the country, according to posts on social media.
 
-The organizers were hardly subtle: “A couple of days leading up to the event there were social media posts about ‘bringing the violence,’ ‘it’s time to smart smashing up the hotel,’” another local resident told CNN. “It was obvious it was going to happen.”
+The organizers were hardly subtle: “A couple of days leading up to the event there were social media posts about ‘bringing the violence,’ ‘it’s time to start smashing up the hotel,’” another local resident told CNN. “It was obvious it was going to happen.”
 
 The day after the unrest, the hotel is a ruin. The ground is strewn with broken glass and burnt-out bins. Some kids ride past on bikes out of curiosity: “Nowt happens here. We wanted to see what’s going on,” says one youngster. Differences of opinion swiftly become visible. Some locals chant from their windows as they drive by: “Get ’em out.” Others are more sympathetic. A mother drives past, points at the building and says to her children: “They came here to be safe, not to be tortured like that.”
 
