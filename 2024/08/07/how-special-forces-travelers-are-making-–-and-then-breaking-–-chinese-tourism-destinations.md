@@ -1,6 +1,6 @@
 # How ‘special forces travelers’ are making – and then breaking – Chinese tourism destinations
 
-Published :`2024-08-07 10:38:16`
+Published :`2024-08-07 11:12:39`
 
 ---
 

@@ -1,6 +1,6 @@
 # USA’s Cole Hocker produces one of the upsets of the Paris Olympics to win 1,500-meter gold
 
-Published :`2024-08-07 10:38:15`
+Published :`2024-08-07 11:12:32`
 
 ---
 
@@ -20,7 +20,7 @@ Instead, this was a night for the underdog – though Hocker said never saw it t
 
 “Winning gold was my goal this entire year. I wrote that down and I repeated it to myself even if I didn’t believe it. My performances showed me that I was capable of running 3:27, whatever it took. I knew I was a medal contender, and I knew that if I get it right, it would be a gold medal. I’ve been saying that.”
 
-When Ingebrigtsen, who set an Olympic record in this event three years ago, set off at a strong pace and Kerr followed not far behind, it looked like the race would play out as many expected, a straight shootout between the two fierce rivals.
+When Ingebrigtsen, who set an Olympic record in this event three years ago, set off at a strong pace and Kerr followed not far behind, it looked like the race would play out as many expected, a straight shootout between the two fierce rivals who have been trading barbs for months.
 
 And when Kerr moved past the Norwegian in the last 100 meters, victory was squarely in his sights, a repeat result of last year’s world championships in Budapest.
 
