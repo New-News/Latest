@@ -1,6 +1,6 @@
 # Two sons of ‘El Chapo’ made agreement before one flew to the US and was arrested, Mexican official says
 
-Published :`2024-08-07 19:36:09`
+Published :`2024-08-07 20:16:12`
 
 ---
 

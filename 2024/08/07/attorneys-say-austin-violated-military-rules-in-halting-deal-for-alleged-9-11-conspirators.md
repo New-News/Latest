@@ -1,6 +1,6 @@
 # Attorneys say Austin violated military rules in halting deal for alleged 9/11 conspirators
 
-Published :`2024-08-07 19:36:09`
+Published :`2024-08-07 20:16:12`
 
 ---
 
@@ -20,7 +20,7 @@ A senior defense official declined on Wednesday to provide specifics about any p
 
 The defendants’ defense teams, as well as outside legal experts, argued this week that such a move was potentially unlawful and violated the military’s own military commission regulations.
 
-“What he did was illegal,” Eugene Fidell, a professor at Yale University who teaches military law and co-founded the National Institute of Military Justice, told CNN.
+“What he did was illegal,” Eugene Fidell, who teaches military justice at Yale University and co-founded the National Institute of Military Justice, told CNN.
 
 One of the primary issues pointed to on Wednesday by defense counsel was a regulation laid out in the military’s Manual for Military Commissions, which says the convening authority can withdraw a pretrial agreement before the accused begins “performance of promises” or if the accused does not hold up their end of the deal. Gary Sowards, a defense attorney for Mohammad, said in court that Austin did not have authority under that regulation because his client had “begun very important, substantive, specific performance.”
 
@@ -53,6 +53,8 @@ Dixon said Khan’s case showed if any military commission case goes to trial an
 “If Secretary Austin says that a 9/11 case is going to proceed to trial, and a verdict, and possibly a sentencing,” Dixon said, “then he is either hopelessly ill-informed or is lying to victim family members.”
 
 This story has been updated with additional developments.
+
+CORRECTION: This story has been updated to correctly characterize Eugene Fidell’s role at Yale University.
 
 ---
 

@@ -1,6 +1,6 @@
 # NASA delays SpaceX astronaut mission as rumors swirl about Boeing Starliner’s safety
 
-Published :`2024-08-07 19:36:10`
+Published :`2024-08-07 20:16:17`
 
 ---
 

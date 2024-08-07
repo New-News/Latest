@@ -1,6 +1,6 @@
 # Hungry and displaced Gazans see their misery continuing with Hamas’ new leadership
 
-Published :`2024-08-07 19:36:09`
+Published :`2024-08-07 20:16:14`
 
 ---
 

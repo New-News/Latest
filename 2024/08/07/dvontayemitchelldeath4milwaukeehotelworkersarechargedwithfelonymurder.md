@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell death: 4 Milwaukee hotel workers are charged with felony murder
 
-Published :`2024-08-07 19:36:09`
+Published :`2024-08-07 20:16:12`
 
 ---
 
@@ -8,7 +8,11 @@ Four hotel workers were charged Tuesday with felony murder in connection with th
 
 The charges relate to the June 30 death of 43-year-old D’Vontaye Mitchell, who was held down for about eight to nine minutes outside the Hyatt Regency, according to the charging documents. Arrest warrants have been issued for the four charged in the case, the office of Milwaukee County District Attorney John Chisholm said Tuesday.
 
-Security manager Todd Alan Erickson, front desk agent Devin W. Johnson-Carson, security guard Brandon LaDaniel Turner and bellman Herbert T. Williamson are the defendants, court documents show. CNN has sought comment from them and reached out to prosecutors to see whether they have attorneys.
+Security manager Todd Alan Erickson, front desk agent Devin W. Johnson-Carson, security guard Brandon LaDaniel Turner and bellman Herbert T. Williamson are the defendants, court documents show.
+
+Erickson turned himself in Wednesday, according to court records. CNN has reached out to his attorney for comment.
+
+CNN has also sought comment from the other workers and reached out to prosecutors to see whether they have attorneys.
 
 After Hyatt called for the employees involved in the incident with Mitchell to be terminated and criminally charged, Aimbridge Hospitality, which operates the hotel, announced it had fired several associates. Williamson was fired July 10 due to “violation of standards of conduct and code of conduct,” a copy of the letter of termination he shared with CNN shows; it was not immediately clear if the others fired were charged in the case.
 

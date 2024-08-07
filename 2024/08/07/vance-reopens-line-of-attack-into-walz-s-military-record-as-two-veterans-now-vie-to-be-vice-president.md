@@ -1,6 +1,6 @@
 # Vance reopens line of attack into Walz’s military record as two veterans now vie to be vice president
 
-Published :`2024-08-07 19:36:09`
+Published :`2024-08-07 20:16:12`
 
 ---
 

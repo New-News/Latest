@@ -1,6 +1,6 @@
 # Georgia State Election Board passes new rule allowing county boards to demand more information before certifying an election
 
-Published :`2024-08-07 19:36:10`
+Published :`2024-08-07 20:16:17`
 
 ---
 

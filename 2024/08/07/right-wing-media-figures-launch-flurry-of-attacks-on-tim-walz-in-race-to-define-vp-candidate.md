@@ -1,6 +1,6 @@
 # Right-wing media figures launch flurry of attacks on Tim Walz in race to define VP candidate
 
-Published :`2024-08-07 19:36:09`
+Published :`2024-08-07 20:16:14`
 
 ---
 
