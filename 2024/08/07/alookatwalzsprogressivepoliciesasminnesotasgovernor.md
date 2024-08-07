@@ -1,6 +1,6 @@
 # A look at Walz’s progressive policies as Minnesota’s governor
 
-Published :`2024-08-07 21:16:11`
+Published :`2024-08-07 21:36:53`
 
 ---
 
@@ -113,6 +113,16 @@ Last year, Walz signed a bill into law that restored voting rights to more than 
 Minnesota is now one of 23 states that automatically restores voting rights following incarceration of those who have been convicted of a felony, according to the Voting Rights Lab.
 
 The passage of the bill followed several years of legal challenges to the constitutionality of the state’s former law, which prohibited people who were on felony supervision or probation from voting even if their prison term has been completed or they have never spent a day in prison.
+
+### Period products in school bathrooms
+
+Walz signed a bill last year that mandates that school districts and charter schools provide free menstrual products in all restrooms – for both girls and boys – regularly used by students in grades 4 to 12.
+
+The measure has led some Republicans to label Walz “Tampon Tim” for his support of transgender students.
+
+Not including a reference to girls was deliberate. In a state House committee hearing last year, the bill’s sponsor, Democratic Rep. Sandra Feist, said “Not all students who menstruate are female. We need to make sure all students have access to these products.”
+
+This story has been updated with additional information.
 
 ---
 

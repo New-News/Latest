@@ -1,6 +1,6 @@
 # Deadlier strain of mpox spreads to more countries, raising officials’ alarm
 
-Published :`2024-08-07 21:16:10`
+Published :`2024-08-07 21:36:53`
 
 ---
 
@@ -36,9 +36,7 @@ Stopping transmission will require a comprehensive and international response, T
 
 The organization has also called for international support and cooperation to quell the outbreak.
 
-“It was frankly amazing that even in the large-scale outbreak we had around the world, there was no funding made available for the control of that at international level,” said Dr. Michael Ryan, executive director of WHO’s Health Emergencies Program. “We’re having to, once again, dip into the contingency fund for emergencies to begin the process. It’s very important that we have a better understanding of this virus.
-
-It’s a virus that can be contained. It can be contained quite straightforwardly, if we do the right things at the right time.”
+“It was frankly amazing that even in the large-scale outbreak we had around the world, there was no funding made available for the control of that at international level,” said Dr. Michael Ryan, executive director of WHO’s Health Emergencies Program. “We’re having to, once again, dip into the contingency fund for emergencies to begin the process. It’s very important that we have a better understanding of this virus. It’s a virus that can be contained. It can be contained quite straightforwardly, if we do the right things at the right time.”
 
 ---
 
