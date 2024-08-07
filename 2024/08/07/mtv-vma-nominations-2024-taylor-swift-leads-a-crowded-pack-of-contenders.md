@@ -1,6 +1,6 @@
 # MTV VMA nominations 2024: Taylor Swift leads a crowded pack of contenders
 
-Published :`2024-08-07 09:36:20`
+Published :`2024-08-07 10:16:01`
 
 ---
 

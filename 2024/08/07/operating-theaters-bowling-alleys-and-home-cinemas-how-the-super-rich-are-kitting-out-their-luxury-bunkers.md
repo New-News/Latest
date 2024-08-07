@@ -1,10 +1,10 @@
 # Operating theaters, bowling alleys and home cinemas: How the super rich are kitting out their luxury bunkers
 
-Published :`2024-08-07 09:36:20`
+Published :`2024-08-07 10:16:00`
 
 ---
 
-Few things appear to soothe the existential anxieties of the super rich like a bunker designed to withstand anything short of total nuclear Armageddon. Yet it’s no longer enough for the security-conscious billionaire to stick an impenetrable safe room in the basement where it might sit empty forever. In today’s uber-prime properties, bunkers have gone seriously upmarket and hi-tech, in some cases growing to the extent that whole homes are becoming 21st century fortresses.
+Few things appear to soothe the existential anxieties of the super-rich like a bunker designed to withstand anything short of total nuclear Armageddon. Yet it’s no longer enough for the security-conscious billionaire to stick an impenetrable safe room in the basement where it might sit empty forever. In today’s uber-prime properties, bunkers have gone seriously upmarket and hi-tech, in some cases growing to the extent that whole homes are becoming 21st century fortresses.
 
 “We’ve seen a lot more of a focus on entertainment,” said Al Corbi, who has been at the forefront of secure luxury for 50 years as the president and founder of SAFE (Strategically Armored & Fortified Environments), based in Virginia, in the US. “If you’re going to be able to survive underground, we want you to be having fun.”
 

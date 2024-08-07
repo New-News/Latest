@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell death: Four Milwaukee hotel workers are charged with felony murder
 
-Published :`2024-08-07 09:36:20`
+Published :`2024-08-07 10:16:00`
 
 ---
 
@@ -16,9 +16,15 @@ While the four defendants tackled Mitchell to the ground outside the hotel, one 
 
 The four defendants then used “various means of force” to hold Mitchell in place while he was on the ground, “including pushing down on (Mitchell’s) back, shoulders and arms,” and including one defendant appearing to strike Mitchell with a collapsable baton, court documents say.
 
-“These charges are based on an extensive review of the evidence collected by the Milwaukee Police Department, the autopsy conducted and the report produced by the Milwaukee County medical examiner’s office, and information received from members of the community, the DA’s office said in a statement accompanying the release of criminal complaints.
+“These charges are based on an extensive review of the evidence collected by the Milwaukee Police Department, the autopsy conducted and the report produced by the Milwaukee County medical examiner’s office, and information received from members of the community,” the DA’s office said in a statement accompanying the release of criminal complaints.
 
-The encounter unfolded as the use of force – particularly against people of color – by police and others in authority roles remains under scrutiny nearly four years after protests flared nationwide following the murder of George Floyd by a Minneapolis police officer.
+Williamson, the bellman who was charged, told CNN affiliate WTMJ-TV he got involved in the incident because he was told to by his superiors.
+
+“All I did was come out of the hotel; I was told by management to hold him down, and I did what I was told to do,” Williamson said in an interview shortly after the charges were announced.
+
+“I deeply, truly apologize to D’Vontaye Mitchell’s family,” Williamson said. “I didn’t know that this was going to happen this way.”
+
+The encounter unfolded as the use of force –particularly against people of color – by police and others in authority roles remains under scrutiny nearly four years after protests flared nationwide following the murder of George Floyd by a Minneapolis police officer.
 
 Mitchell’s death had nothing to do with substance use, weight or high blood pressure, an attorney for his family, William Sulton, said Tuesday. “What caused his death was the fact that four people beat him to death on the sidewalk and jumped on top of him,” he said. “That is why he’s dead.”
 

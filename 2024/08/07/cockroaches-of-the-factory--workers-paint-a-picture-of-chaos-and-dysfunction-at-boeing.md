@@ -1,6 +1,6 @@
 # ‘Cockroaches of the factory’: Workers paint a picture of chaos and dysfunction at Boeing
 
-Published :`2024-08-07 09:36:20`
+Published :`2024-08-07 10:16:01`
 
 ---
 

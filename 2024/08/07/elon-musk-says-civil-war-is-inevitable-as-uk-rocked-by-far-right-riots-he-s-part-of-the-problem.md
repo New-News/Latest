@@ -1,6 +1,6 @@
 # Elon Musk says ‘civil war is inevitable’ as UK rocked by far-right riots. He’s part of the problem
 
-Published :`2024-08-07 09:36:21`
+Published :`2024-08-07 10:16:00`
 
 ---
 
@@ -10,7 +10,9 @@ And agitator-in-chief Elon Musk is not sitting on the sidelines.
 
 The Tesla chief executive and owner of X posted to the platform Sunday that “civil war is inevitable” in response to a post blaming the violent demonstrations on the effects of “mass migration and open borders.”
 
-On Monday, a spokesperson for the UK prime minister addressed Musk’s comment, telling reporters “there’s no justification for that.”
+On Monday, a spokesperson for UK Prime Minister Keir Starmer addressed Musk’s comment, telling reporters “there’s no justification for that.”
+
+But Musk is digging his heels in. On Tuesday, he labeled Starmer #TwoTierKier in an apparent reference to a debunked claim spread by conspiracy theorists and populist politicians such as Nigel Farage that “two-tier policing” means right-wing protests are dealt with more forcefully than those organized by the left. He also likened Britain to the Soviet Union for attempting to restrict offensive speech on social media.
 
 Musk’s decision to amplify the anti-immigrant rhetoric highlights the role that false information spread online is playing in fomenting real-world violence — an issue of growing concern to the UK government, which vowed Tuesday to bring those responsible for the riots, as well as their online cheerleaders, to justice.
 
@@ -44,15 +46,17 @@ For example, shortly after the October 7 Hamas attack on Israel and the ensuing 
 
 On his watch, X has also relaxed its content moderation policies and reinstated several previously blocked accounts. That includes far-right figureheads like Tommy Robinson, who has published a stream of posts stoking the UK protests while criticizing violent attacks.
 
+In 2018, before Musk bought Twitter, as X used to be known, Robinson was banned from the platform for violating its rules governing hateful “conduct.”
+
 The UK government this week vowed to prosecute “online criminality” and has pushed social media companies to take action against the spread of false information.
 
 “Social media has put rocket boosters under… not just the misinformation but the encouragement of violence,” UK Home Secretary Yvette Cooper said Monday.
 
 “That is a total disgrace and we cannot carry on like this,” she told BBC Radio 5 Live in an interview, adding that the police will be pursing “online criminality” as well as “offline criminality.”
 
-During a cabinet meeting Tuesday, UK Prime Minister Keir Starmer said those involved in the riots — in person and online — “will feel the full force of the law and be subject to swift justice,” according to a readout seen by CNN.
+During a cabinet meeting Tuesday, Starmer said those involved in the riots — in person and online — “will feel the full force of the law and be subject to swift justice,” according to a readout seen by CNN.
 
-At the same meeting, Peter Kyle, the minister for science and technology, said that in conversations with social media companies he had made clear their responsibility to help “stop the spread of hateful disinformation and incitement.”
+At the same meeting, Peter Kyle, the minister for science and technology, said that in conversations with social media companies he had made clear their responsibility to help “stop the spread of hateful disinformation and incitement.” At a briefing following the meeting, Starmer dodged questions from reporters about Musk’s comments.
 
 X, Facebook owner Meta and TikTok have not responded to CNN’s requests for comment.
 
