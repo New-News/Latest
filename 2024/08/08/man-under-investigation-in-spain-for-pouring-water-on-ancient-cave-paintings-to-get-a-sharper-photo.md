@@ -1,6 +1,6 @@
 # Man under investigation in Spain for pouring water on ancient cave paintings to get a sharper photo
 
-Published :`2024-08-08 12:56:49`
+Published :`2024-08-08 13:20:42`
 
 ---
 

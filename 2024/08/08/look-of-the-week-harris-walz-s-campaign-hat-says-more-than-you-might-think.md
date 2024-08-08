@@ -1,6 +1,6 @@
 # Look of the Week: Harris-Walz’s campaign hat says more than you might think
 
-Published :`2024-08-08 12:56:52`
+Published :`2024-08-08 13:20:45`
 
 ---
 

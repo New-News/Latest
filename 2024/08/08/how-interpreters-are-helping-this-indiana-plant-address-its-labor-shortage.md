@@ -1,6 +1,6 @@
 # How interpreters are helping this Indiana plant address its labor shortage
 
-Published :`2024-08-08 12:56:53`
+Published :`2024-08-08 13:20:46`
 
 ---
 

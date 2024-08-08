@@ -1,6 +1,6 @@
 # Democrats lean on Walz’s biography at Philadelphia rally introducing new ticket to voters
 
-Published :`2024-08-08 12:56:54`
+Published :`2024-08-08 13:20:47`
 
 ---
 
