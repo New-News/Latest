@@ -1,6 +1,6 @@
 # Tropical Storm Debby spawns deadly tornado and life-threatening flooding in North Carolina after 2nd US landfall
 
-Published :`2024-08-08 17:13:04`
+Published :`2024-08-08 17:35:43`
 
 ---
 
@@ -10,19 +10,19 @@ At least six people have now died because of the storm after it spawned a destru
 
 Track the storm: Debby’s path
 
-Since crashing into Florida as a Category 1 hurricane on Monday, Debby has dumped more than a foot of rain over parts of Florida, Georgia and South Carolina. The deluges have engorged rivers, flooded roadways and trapped people in cars, homes and boats – and potentially dangerous heat is expected across the region in the coming days, threatening to complicate the recovery process.
+Since crashing into Florida as a Category 1 hurricane on Monday, Debby has dumped more than a foot of rain over parts of Florida, Georgia, South Carolina and North Carolina. The deluges have engorged rivers, flooded roadways and trapped people in cars, homes and boats – and potentially dangerous heat is expected across the region in the coming days, threatening to complicate the recovery process.
 
 Even more chaos is on the horizon as the storm, a reflection of the amplifying consequences of human-fueled climate change, heads toward the Northeast. Here’s the latest:
 
 • Debby’s death toll climbs: One person is dead after a tornado spawned by Debby tore through part of North Carolina’s Wilson County in the earliest hours of Thursday morning, leaving behind damage to a middle school, a church and multiple homes. A man was killed after his home in the town of Lucama collapsed, a county spokesperson told CNN. At least four people in Florida and one in Georgia were also killed by Debby.
 
-• At least 11 tornadoes confirmed: Debby has whipped up at least 11 tornadoes confirmed by the National Weather Service as of early Thursday. That includes four tornadoes in Florida, four in South Carolina and three in North Carolina. In addition to the Wilson County tornado, the service warned of a tornado in Snow Hill, North Carolina, early Thursday, describing it as “large, extremely dangerous and potentially deadly.” Another tornado was observed Thursday morning near Louisburg in the northern part of the state. A tornado watch remains in effect for than 5 million people in parts of eastern North Carolina and southeastern Virginia, including the cities of Raleigh and Virginia Beach.
+• At least 11 tornadoes confirmed: Debby has whipped up at least 11 tornadoes confirmed by the National Weather Service as of early Thursday. That includes four tornadoes in Florida, four in South Carolina and three in North Carolina. In addition to the Wilson County tornado, the service warned of a tornado in Snow Hill, North Carolina, early Thursday, describing it as “large, extremely dangerous and potentially deadly.” Another tornado was observed Thursday morning near Louisburg in the northern part of the state. A tornado watch is in effect for than 6.8 million people in parts of eastern North Carolina and southern Virginia, including the cities of Raleigh, Virginia Beach and Richmond.
 
 • Flash flood emergency: Debby’s torrential rainfall cut off one North Carolina town from its surrounding areas after up to 8 inches of rain fell in just a few hours Wednesday night, according to a rare flash flood emergency issued by the National Weather Service. Officials in Bladenboro – located in the southern part of the state – reported 3 foot deep floodwater.
 
-• Debby’s current path: The storm started to pick up speed and lost some strength Thursday morning after landfall as a 50 mph storm near Bulls Bay, South Carolina. It will continue to weaken as it moves into North Carolina by Thursday evening and into northern Virginia by Friday morning. Debby will accelerate through Pennsylvania and New York by Friday evening and through New England by early Saturday afternoon, bringing heavy rains and flash flooding to a region drenched by storms earlier this week.
+• Debby’s current path: The system will pick up additional speed and lose more  strength Thursday as it moves through North Carolina and into northern Virginia by Friday morning. Debby will accelerate through Pennsylvania and New York Friday and move through New England by early Saturday afternoon, bringing heavy rain and flash flooding to a region drenched by storms earlier this week.
 
-• ‘Be prepared for a deluge,’ North Carolina governor says: Gov. Roy Cooper warned residents Wednesday to brace for major rain and flooding. “All North Carolinians across our state need to be prepared for a deluge,” Cooper said, describing the incoming threat as “more rain than most of us see in a month, or even several months.” Rainfall totals across the state could reach as high as 15 inches. Dangerous rip currents and storm surge up to 3 feet will persist along the Carolinas’ coasts Thursday.
+• ‘Be prepared for a deluge,’ North Carolina governor says: Gov. Roy Cooper warned residents Wednesday to brace for major rain and flooding. “All North Carolinians across our state need to be prepared for a deluge,” Cooper said, describing the incoming threat as “more rain than most of us see in a month, or even several months.” Rainfall totals across the state surpassed a foot by early Thursday afternoon. Dangerous rip currents and storm surge up to 3 feet will persist along the Carolinas’ coasts Thursday.
 
 • Disaster declarations across the Southeast: President Joe Biden has approved disaster declarations for Florida, Georgia and the Carolinas – all of which have been pummeled by Debby this week. More than 700 Federal Emergency Management Agency personnel have been deployed to the Southeast, and search and rescue teams are on standby to assist as needed, the agency said Wednesday.
 
