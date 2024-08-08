@@ -1,6 +1,6 @@
 # Victims of sexual assault and harassment in the Coast Guard call for major changes after Senate committee’s new report
 
-Published :`2024-08-08 21:37:40`
+Published :`2024-08-08 22:14:18`
 
 ---
 

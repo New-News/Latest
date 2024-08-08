@@ -1,6 +1,6 @@
 # No, Taylor Swift did not endorse Kamala Harris in a photo
 
-Published :`2024-08-08 21:37:39`
+Published :`2024-08-08 22:14:18`
 
 ---
 
