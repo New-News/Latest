@@ -1,12 +1,12 @@
 # Alleged Taylor Swift terror plot fits a worrying trend as ISIS targets teens online
 
-Published :`2024-08-08 04:20:20`
+Published :`2024-08-08 04:39:39`
 
 ---
 
 The details emerging of the alleged terror plot aimed at Taylor Swift’s three Vienna concerts are scant, but already adhere to a chilling pattern familiar to European counterterrorism officials.
 
-Austrian police said Wednesday that a 19-year-old man was arrested in Ternitz, about an hour’s drive from where Swift was scheduled to perform Thursday, Friday and Saturday at the 50,000-capacity Ernst Happel Stadium.
+Austrian police said Wednesday that a 19-year-old man was arrested in Ternitz, about an hour’s drive from where Swift was scheduled to perform Thursday, Friday and Saturday for an expected 65,000 fans each night at the Ernst Happel Stadium.
 
 “Chemical substances” possibly linked to bomb-making were discovered in a search of the Austrian citizen’s home, police said, declaring that “specific preparatory measures have been undertaken” to target Swift’s concerts.
 

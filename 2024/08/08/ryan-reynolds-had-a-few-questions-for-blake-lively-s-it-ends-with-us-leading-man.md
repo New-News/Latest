@@ -1,6 +1,6 @@
 # Ryan Reynolds had a few questions for Blake Lively’s ‘It Ends with Us’ leading man
 
-Published :`2024-08-08 04:20:25`
+Published :`2024-08-08 04:39:42`
 
 ---
 

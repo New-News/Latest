@@ -1,6 +1,6 @@
 # Three Taylor Swift concerts in Vienna canceled over alleged planned terrorist attack
 
-Published :`2024-08-08 04:20:20`
+Published :`2024-08-08 04:39:39`
 
 ---
 
@@ -14,25 +14,25 @@ Swift was scheduled to play three shows in the European city from Thursday to Sa
 
 Swift’s official website also listed the concerts as canceled. CNN has reached out to Taylor Swift’s representatives for a comment.
 
-Speaking at a press conference in the capital, police said a 19-year-old Austrian citizen, who they identify as a sympathizer of Islamic State, was arrested Wednesday morning in Ternitz, lower Austria, while another arrest was carried out later that morning in Vienna.
+Speaking at a press conference in the capital, police said a 19-year-old Austrian citizen, who they identified as a sympathizer of ISIS, was arrested Wednesday morning in Ternitz, lower Austria, while another arrest was made later in Vienna.
 
 They had become “radicalized by the internet,” with the 19-year-old pledging his allegiance to the leader of ISIS in July, police said.
 
 The two suspects had undertaken “concrete preparatory measures” for a terrorist attack after police suspected explosives were stored at the home of the suspect in Ternitz, authorities said.
 
-Police also said that chemical substances were secured at the home of the 19-year-old and were being evaluated, Associated Press reported.
+Police also said that chemical substances were secured at the home of the 19-year-old and were being evaluated, the Associated Press reported.
 
 “From the current standpoint of the investigation we assume that the target of the attack were events in the Vienna region,” police said.
 
 Barracuda Music said all tickets for the canceled shows will be automatically refunded within the next 10 business days.
 
-Swift’s Eras Tour began in Glendale, Arizona on March 18, 2023, has been extended several times since it was first announced. It has since passed through the United States, South America, Asia and Australia, and is currently on its European leg before it makes a return to North America.
+Swift’s Eras Tour began in Glendale, Arizona on March 18, 2023, and has been extended several times. It has since passed through the United States, South America, Asia and Australia, and is currently on its European leg before it makes a return to North America.
 
-The Vienna concerts were the penultimate venue of the current European leg, with Swift slated to play five nights at London’s Wembley Stadium next week before moving on to Canada for the tour’s final dates in November and December.
+Vienna was scheduled to be the penultimate venue of the European leg, with Swift slated to play five nights at London’s Wembley Stadium next week before moving on to Canada for the tour’s final dates in November and December.
 
 Just a day before the announcement of the Vienna cancelation, Swift posted on Instagram after performing in Warsaw, Poland: “I can’t believe we have 2 cities left on the European leg of The Eras Tour. It’s truly flown by. See you soon Vienna!”
 
-The cancelation has left fans both shaken and disappointed, including many who had flown in to Vienna from other places for the concert.
+The cancelation has left fans both shaken and disappointed, including many who had flown in to Vienna for the shows.
 
 Vanessa Szombathelyi, 24, had traveled from Ireland to Hungary – where she and her best friend had planned to drive to Vienna for the show. It would have been her first Taylor Swift concert since she first became a fan in 2018, and she’d been excitedly waiting since buying the ticket last summer.
 
