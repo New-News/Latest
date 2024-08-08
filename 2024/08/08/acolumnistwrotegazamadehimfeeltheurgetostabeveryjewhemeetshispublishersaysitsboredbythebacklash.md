@@ -1,6 +1,6 @@
 # A columnist wrote Gaza made him feel the urge to stab ‘every Jew’ he meets. His publisher says it’s ‘bored’ by the backlash
 
-Published :`2024-08-08 20:16:59`
+Published :`2024-08-08 20:36:15`
 
 ---
 
