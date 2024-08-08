@@ -1,6 +1,6 @@
 # Trump in 2020 praised Tim Walz’s handling of George Floyd protests
 
-Published :`2024-08-08 16:40:32`
+Published :`2024-08-08 17:13:03`
 
 ---
 
