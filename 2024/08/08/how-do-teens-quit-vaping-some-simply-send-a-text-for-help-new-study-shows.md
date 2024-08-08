@@ -1,6 +1,6 @@
 # How do teens quit vaping? Some simply send a text for help, new study shows
 
-Published :`2024-08-08 02:49:30`
+Published :`2024-08-08 03:17:09`
 
 ---
 
