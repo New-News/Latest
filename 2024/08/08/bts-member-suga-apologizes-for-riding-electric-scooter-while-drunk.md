@@ -1,6 +1,6 @@
 # BTS member Suga apologizes for riding electric scooter while drunk
 
-Published :`2024-08-08 03:37:15`
+Published :`2024-08-08 04:20:23`
 
 ---
 
