@@ -1,6 +1,6 @@
 # July ends 13-month streak of global heat records as El Niño ebbs, but experts warn against relief
 
-Published :`2024-08-08 22:37:22`
+Published :`2024-08-08 23:15:43`
 
 ---
 

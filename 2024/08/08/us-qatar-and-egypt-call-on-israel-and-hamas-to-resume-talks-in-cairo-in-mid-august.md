@@ -1,6 +1,6 @@
 # US, Qatar and Egypt call on Israel and Hamas to resume talks in Cairo in mid August
 
-Published :`2024-08-08 22:37:21`
+Published :`2024-08-08 23:15:39`
 
 ---
 

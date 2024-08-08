@@ -1,6 +1,6 @@
 # Debby weakens to a tropical depression, threatening more flooding and tornadoes in North Carolina
 
-Published :`2024-08-08 22:37:21`
+Published :`2024-08-08 23:15:39`
 
 ---
 
@@ -39,6 +39,12 @@ Even more chaos is on the horizon as the storm, a reflection of the amplifying 
 Debby’s deluge has been a clear illustration of the impact of global warming caused by fossil fuel pollution, which is causing storms to get wetter and strengthen more quickly. Debby, for instance, tracked through near-record warm waters in the Gulf of Mexico, which helped it rapidly intensify before making landfall as a hurricane in Florida.
 
 As Debby has churned through the Southeast, the storm has left behind disastrous scenes. Homes have been shredded by winds and swamped by floodwaters, and roads have been washed out or submerged, creating hazardous conditions for impacted communities.
+
+Three children were rescued by emergency crews from a flooded Marsh Creek in Raleigh after getting stuck while trying to cross the water on Thursday, CNN affiliate WRAL reported.
+
+The children were part of a group of five who were riding bikes when they said they came across the creek. The children said the creek appeared to be calm, and so they attempted to cross it – two made it across, when suddenly the last three got caught in the surging waters.
+
+An 11-year-old held onto a tree branch with his 8-year-old sister and their 10-year-old friend as they waited for rescuers, WRAL reported. They were rescued within five minutes of rescuers’ arrival, the station reported.
 
 In South Carolina’s Lowcountry, a home in Bluffton has become an alligator’s paradise as floodwaters turned Adrienne LeBlanc’s yard into an inviting swampland.
 
