@@ -1,6 +1,6 @@
 # Trump and Harris agree to debate on ABC on September 10, network says
 
-Published :`2024-08-08 21:14:20`
+Published :`2024-08-08 21:37:39`
 
 ---
 
@@ -18,7 +18,7 @@ Trump said “minor details” were still being worked out, including audience a
 
 “The other side has to agree to the terms. They may or may not agree. I don’t know if they’re going to agree. (Harris) hasn’t done an interview. She can’t do an interview. She’s barely competent, and she can’t do an interview, I look forward to the debates because I think we have to set the record straight,” he said.
 
-CNN has reached out to the Harris campaign for comment.
+CNN has reached out to the Harris campaign for comment. Harris was in Michigan on Thursday with her running mate, Minnesota Gov. Tim Walz, and both spoke at a local union hall in the Detroit area. The vice president declined to answer when asked by CNN if she would commit to three debates against Trump in September.
 
 Harris previously agreed to the ABC debate on September 10 – which was originally accepted by Trump and former President Joe Biden before the latter dropped out of the race. Earlier this week, Trump had said that he would not debate Harris if she did not agree to attend the proposed Fox News debate on September 4.
 
@@ -27,6 +27,8 @@ An ABC source was confident that the network’s debate would be the first one b
 A source familiar with the NBC negotiations said September 25 was “one of the dates” given to the campaigns. While the network has been in discussions with both camps, the Harris campaign has not formally accepted.
 
 Details on location, rules and moderators will be determined closer to the debate date.
+
+This story has been updated with additional information.
 
 ---
 

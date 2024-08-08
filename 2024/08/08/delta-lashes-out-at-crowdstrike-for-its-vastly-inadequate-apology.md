@@ -1,6 +1,6 @@
 # Delta lashes out at CrowdStrike for its ‘vastly inadequate’ apology
 
-Published :`2024-08-08 21:14:20`
+Published :`2024-08-08 21:37:39`
 
 ---
 

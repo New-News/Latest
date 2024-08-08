@@ -1,6 +1,6 @@
 # Russia says it halted a Ukrainian incursion into its territory. Evidence suggests it hasn’t
 
-Published :`2024-08-08 21:14:21`
+Published :`2024-08-08 21:37:39`
 
 ---
 
@@ -12,7 +12,23 @@ The intention, say US and Ukrainian officials, is multifaceted, in part to disru
 
 This comes after Russia claimed on Thursday to have halted a Ukrainian incursion into its territory, although latest evidence from the ground suggests fighting continues in the Kursk region.
 
-The Russian Ministry of Defense said units of the “North” group of its forces, together with the Russian Federal Security Service, the FSB, “continue to destroy Ukrainian armed forces formations in the Sudzhensky and Korenevsky districts of the Kursk region, which are directly adjacent to the Russian-Ukrainian border.”
+Earlier on Thursday, the Russian Ministry of Defense said units of the “North” group of its forces, together with the Russian Federal Security Service, the FSB, “continue to destroy Ukrainian armed forces formations in the Sudzhensky and Korenevsky districts of the Kursk region, which are directly adjacent to the Russian-Ukrainian border.”
+
+Kursk residents, who live in the Sudzhansky District, recorded a video address to Russian President Vladimir Putin on Thursday asking for his help, saying he has been misinformed about the situation on the ground and the Russian Defense Ministry’s statements about things being under control are untrue.
+
+The address was published on a local Telegram channel that is dedicated to covering the latest news out of the town of Sudzha in Kursk region, which has been under Ukrainian attack for several days.
+
+“These lies enable the local residents to die. The Chief of the General staff recently told you that the situation is under control, but today huge furious battles are underway in the Sudzhansky and Korenevsky districts,” one of the residents said.
+
+“Sudzha was attacked, turned into ruins in a matter of hours. Local administration wasn’t working,” another resident said.
+
+People complained that there was no organized evacuation, the Ukrainian incursion caught them by surprise, and they left their homes without belongings and documents in the middle of the night. They said they have many relatives left behind, but they cannot contact them because the mobile network is not working in the area.
+
+“We escaped under shelling. We were running surrounded by ruins,” one resident said.
+
+“We are left alone with children without a place to go, without a compensation, without any money. We escaped with only clothes on our backs,” one woman said bursting into tears.
+
+According to the phone calls received from the residents of the Malaya Loknya village in the Kursk region, almost 90% of the village is under the control of the Ukrainian armed forces at the moment, another resident said.
 
 Ukraine has not officially confirmed its forces conducted a ground operation inside Russia. Neither the Ukrainian military nor the government in Kyiv has publicly commented on the operation.
 
@@ -22,7 +38,7 @@ The extent of the attack, including whether Ukrainian troops took over any settl
 
 The Russian state news agency TASS on Thursday quoted the Russian Health Ministry as saying 34 people were injured in the shelling of the Kursk region were “undergoing inpatient treatment,” with nine evacuated to Moscow for treatment.
 
-Russian President Vladimir Putin announced on Thursday that residents of the region who have been forced to leave their homes would be given a one-time payment of 10,000 rubles ($115).
+Russian President Putin announced on Thursday that residents of the region who have been forced to leave their homes would be given a one-time payment of 10,000 rubles ($115).
 
 CNN has geolocated video footage from inside a car that is being driven quickly through the deserted and damaged streets of the town of Sudzha, 6 miles (10 kilometers) from the border. Some wrecked vehicles are also seen in the video as the car moves north out of the town. It’s unclear whether the video was shot Wednesday or Thursday.
 
@@ -67,6 +83,8 @@ It could also be a message to Russia’s civilian population – a demonstration
 A Russian military blogger Rybar reported on Wednesday that the Ukrainian military had established control over a gas transit station near the border. The blogger said the station is the only one through which gas from Russia flows to Ukraine and then to Europe. CNN cannot confirm that reporting.
 
 The European Union has imposed wide-ranging economic sanctions on Russia – with the exception of key natural gas imports. The EU was dependent on Russian gas and while it has slashed imports from Russia from 45% of all gas imports in 2021, to 15% of EU gas imports in 2023, some Russian gas still continues to flow to Europe through Ukraine, despite the war.
+
+CNN’s Mariya Knight and Olga Voitovych contributed to this report.
 
 ---
 
