@@ -1,6 +1,6 @@
 # Watch the glacier outburst that sent a surge of water into Juneau, causing ‘unprecedented’ flooding
 
-Published :`2024-08-08 18:41:34`
+Published :`2024-08-08 19:11:59`
 
 ---
 

@@ -1,6 +1,6 @@
 # Tropical Storm Debby spawns deadly tornado and life-threatening flooding in North Carolina after 2nd US landfall
 
-Published :`2024-08-08 18:41:31`
+Published :`2024-08-08 19:11:57`
 
 ---
 
@@ -16,7 +16,7 @@ Even more chaos is on the horizon as the storm, a reflection of the amplifying 
 
 • Debby’s death toll climbs: One person is dead after a tornado spawned by Debby tore through part of North Carolina’s Wilson County in the earliest hours of Thursday morning, leaving behind damage to a middle school, a church and multiple homes. A man was killed after his home in the town of Lucama collapsed, a county spokesperson told CNN. At least four people in Florida and one in Georgia were also killed by Debby.
 
-• At least 11 tornadoes confirmed: Debby has whipped up at least 11 tornadoes confirmed by the National Weather Service as of early Thursday. That includes four tornadoes in Florida, four in South Carolina and three in North Carolina. In addition to the Wilson County tornado, the service warned of a tornado in Snow Hill, North Carolina, early Thursday, describing it as “large, extremely dangerous and potentially deadly.” Another tornado was observed Thursday morning near Louisburg in the northern part of the state. A tornado watch is in effect for than 6.8 million people in parts of eastern North Carolina and southern Virginia, including the cities of Raleigh, Virginia Beach and Richmond.
+• At least a dozen tornadoes confirmed: Debby has whipped up at least a dozen tornadoes as of Thursday that have roared through parts of Florida, South Carolina, North Carolina and Virginia. A tornado in Snow Hill, North Carolina early Thursday was described as “large, extremely dangerous and potentially deadly.” A tornado watch is in effect through 8 p.m. ET for 6.8 million people in parts of eastern North Carolina and southern Virginia, including the cities of Raleigh, Virginia Beach and Richmond.
 
 • Flash flood emergency: Debby’s torrential rainfall cut off one North Carolina town from its surrounding areas after up to 8 inches of rain fell in just a few hours Wednesday night, according to a rare flash flood emergency issued by the National Weather Service. Officials in Bladenboro – located in the southern part of the state – reported 3 foot deep floodwater.
 
@@ -28,7 +28,7 @@ Even more chaos is on the horizon as the storm, a reflection of the amplifying 
 
 • Georgia dam at risk of ‘imminent failure’: A dam in Bulloch County, Georgia – about 50 miles northwest of Savannah – is in danger of “imminent failure” as a result of Debby’s torrential rainfall, the National Weather Service in Charleston, South Carolina, said. Parts of the county have already suffered serious flooding, requiring water rescues in a mobile home park. But if the dam breaks, communities immediately downstream are at the greatest risk for more flooding and may be asked to evacuate.
 
-• Triple-digit heat in store for Southeast: Potentially dangerous heat has been hovering over the Southeast in Debby’s wake and is expected to persist Thursday and through the weekend as storm recovery continues. While high temperatures in the upper 80s and lower 90s are expected, the heat indices – how the body feels under combined heat and humidity – could exceed 110 degrees, including in Steinhatchee, Florida, near where Debby made its first landfall.
+• Triple-digit heat in store for Southeast: Potentially dangerous heat has been hovering over the Southeast in Debby’s wake and is expected to persist through the weekend as storm recovery continues. While high temperatures in the upper 80s and lower 90s are expected, the heat indices – how the body feels under combined heat and humidity – could exceed 110 degrees, including in Steinhatchee, Florida, near where Debby made its first landfall.
 
 ### ‘It’s like National Geographic in our backyard’
 
