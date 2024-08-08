@@ -1,6 +1,6 @@
 # Trump team targets Walz and his military record in attempt to slow down Harris
 
-Published :`2024-08-08 14:14:00`
+Published :`2024-08-08 14:35:55`
 
 ---
 
@@ -22,7 +22,7 @@ Trump’s team, meanwhile, tipped its hand on how it plans to halt Harris’ mom
 
 The former president has struggled to find a way to respond to the sudden change in his opponent after President Joe Biden bowed to Democratic fears that he was too old to serve a second term. Trump’s claims that Harris is not really Black and his deliberate mangling of her name in juvenile social media posts as “Kamabla” only underscore how he seems adrift.
 
-The Republican nominee will make a new attempt to reset the narrative of the race and to interrupt Harris’ strong start on Thursday. He announced on Truth Social that he’ll hold a press conference at Mar-A-Lago at 2 p.m. ET.
+The Republican nominee will make a new attempt to reset the narrative of the race and to interrupt Harris’ strong start on Thursday. He said on Truth Social that he’ll hold a press conference at Mar-A-Lago at 2 p.m. ET.
 
 Trump on Wednesday called into his safe space on Fox News from his Florida club to claim he was “thrilled” that Harris had chosen Walz, billing the Democratic team as radical and too far left for America. “This is a ticket that would want this country to go communist immediately, if not sooner,” Trump said. His attacks, however, were mostly unfocused and of only limited effectiveness as he again failed to spell out a clear and concise case against his rival.
 
