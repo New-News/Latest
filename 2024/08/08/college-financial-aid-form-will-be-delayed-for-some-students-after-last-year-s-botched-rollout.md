@@ -1,6 +1,6 @@
 # College financial aid form will be delayed for some students after last year’s botched rollout
 
-Published :`2024-08-08 05:15:08`
+Published :`2024-08-08 05:37:15`
 
 ---
 

@@ -1,16 +1,16 @@
 # ‘More of us than you’: Thousands of anti-racist protesters turn out to counter far-right rallies in UK
 
-Published :`2024-08-08 05:15:07`
+Published :`2024-08-08 05:37:14`
 
 ---
 
-Thousands of anti-racist protesters have taken to the streets across the United Kingdom to counter a spate of far-right rallies planned to target immigration centers, seeming to thwart what looked set to be another day of rioting.
+Thousands of anti-racism protesters have taken to the streets across the United Kingdom to counter a spate of far-right rallies planned to target immigration centers, seeming to thwart what looked set to be another day of rioting.
 
 After days of violence spurred by disinformation around a deadly stabbing attack, police had braced for another night of unrest on Wednesday. Far-right groups on social media had called for protests to target visa processing centers and immigration lawyers’ offices at more than 100 sites around the country at 8 p.m. local time (3 p.m. ET).
 
 But by the early evening, thousands of counter-protesters had gathered at more than a dozen cities to guard the immigration centers and prevent them being targeted by the far right.
 
-“There are many, many more of us than you,” crowds chanted at anti-racist demonstrations across the country, bolstered by a markedly stronger police presence than over the weekend, and with virtually no sign of any far-right supporters.
+“There are many, many more of us than you,” crowds chanted at the anti-racism demonstrations across the country, bolstered by a markedly stronger police presence than over the weekend, and with virtually no sign of any far-right supporters.
 
 Whether Wednesday’s counter-protests represent a turning point is not yet clear, but fears of another night of unrest have abated for now. The fizzling out of the planned protests will come as a major relief for the new Labour government, and for communities that had prepared for the worst.
 
