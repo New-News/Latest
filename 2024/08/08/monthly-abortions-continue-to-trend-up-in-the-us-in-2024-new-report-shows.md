@@ -1,6 +1,6 @@
 # Monthly abortions continue to trend up in the US in 2024, new report shows
 
-Published :`2024-08-08 03:17:10`
+Published :`2024-08-08 03:37:14`
 
 ---
 
