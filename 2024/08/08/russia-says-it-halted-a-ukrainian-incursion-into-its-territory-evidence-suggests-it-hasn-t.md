@@ -1,6 +1,6 @@
 # Russia says it halted a Ukrainian incursion into its territory. Evidence suggests it hasn’t
 
-Published :`2024-08-08 14:35:56`
+Published :`2024-08-08 15:16:28`
 
 ---
 
@@ -17,6 +17,8 @@ Russia accused Ukrainian troops of crossing the border into its Kursk region on 
 The extent of the attack, including whether Ukrainian troops took over any settlements or caused damage to any strategic targets, remains unclear.
 
 The Russian state news agency TASS on Thursday quoted the Russian Health Ministry as saying 34 people were injured in the shelling of the Kursk region were “undergoing inpatient treatment,” with nine evacuated to Moscow for treatment.
+
+Russian President Vladimir Putin announced on Thursday that residents of the region who have been forced to leave their homes would be given a one-time payment of 10,000 rubles ($115).
 
 CNN has geolocated video footage from inside a car that is being driven quickly through the deserted and damaged streets of the town of Sudzha, 6 miles (10 kilometers) from the border. Some wrecked vehicles are also seen in the video as the car moves north out of the town. It’s unclear whether the video was shot Wednesday or Thursday.
 
@@ -50,7 +52,15 @@ It remains unclear why Ukrainian forces would launch an attack of the scale desc
 
 Ukrainian troops have found themselves under increased pressure along the 600-mile frontline as Moscow continues its slow, grinding offensive.
 
+Russian troops have recently made incremental advances towards the strategically important city of Pokrovsk in eastern Ukraine, threatening a vital Ukrainian supply line. At the same time, Russian forces claim to have seized the village of Niu York and are getting closer to Toretsk.
+
 Kyiv has started receiving new tranches of the long-delayed US military assistance in May, but is still facing troop shortages because many of its newly recruited soldiers are still in training.
+
+The Ukraine Military Intelligence said on Thursday that its forces raided the Russian-occupied Tendra Spit on Tuesday, destroying Russian armoured vehicles, an electronic warfare system, and fortifications. The narrow island in the northern part of the Black Sea is about 40 miles long and about 1 mile wide.
+
+Ukrainian special forces destroyed Russian “equipment, personnel, and fortifications” during the raid, HUR said, adding that among the destroyed were armored vehicles, in particular MT-LB amphibious personnel carriers, electronic warfare complex and fortifications.
+
+HUR claimed Russian forces suffered losses among the personnel, without providing any further details. There were no losses among the Ukrainian forces, it said.
 
 An incursion into Russia could be an attempt by Kyiv to divert Russian resources elsewhere. Given the spate of more negative developments from the frontline, the news of a successful incursion help Kyiv boost the morale of its troops and civilian population.
 
