@@ -1,6 +1,6 @@
 # Happy warriors Harris and Walz propose an antidote to Trump’s American carnage
 
-Published :`2024-08-08 08:39:36`
+Published :`2024-08-08 09:16:16`
 
 ---
 

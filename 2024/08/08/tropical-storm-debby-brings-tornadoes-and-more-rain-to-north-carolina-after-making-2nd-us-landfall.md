@@ -1,6 +1,6 @@
 # Tropical storm Debby brings tornadoes and more rain to North Carolina after making 2nd US landfall
 
-Published :`2024-08-08 08:39:30`
+Published :`2024-08-08 09:16:13`
 
 ---
 
@@ -16,7 +16,7 @@ Even more chaos is on the horizon as the storm heads toward the Northeast. Here�
 
 • “Be prepared for a deluge,” North Carolina governor says: North Carolina Gov. Roy Cooper warned residents Wednesday to brace for major rains and flooding. “All North Carolinians across our state need to be prepared for a deluge,” Cooper said, describing the incoming threat as “more rain than most of us see in a month, or even several months.” Rainfall totals across the state could reach as high as 15 inches and South Carolina could see totals approaching 25 inches. Dangerous rip currents and storm surges of up to 3 feet are possible along the Carolinas’ coasts.
 
-• At least 10 tornadoes confirmed: Debby has whipped up at least 10 tornadoes that have been confirmed by the National Weather Service as of early Thursday. That includes four tornadoes in Florida, four in South Carolina and two in North Carolina. The service warned of a tornado in Snow Hill, North Carolina, early Thursday, describing it as “large, extremely dangerous and potentially deadly.” About 30 miles north, in Wilson County, a tornado scattered roads with debris and damaged multiple buildings, including a middle school and homes, officials said. There were no injuries reported, county officials said in a social media post early Thursday.
+• At least 10 tornadoes confirmed: Debby has whipped up at least 10 tornadoes that have been confirmed by the National Weather Service as of early Thursday. That includes four tornadoes in Florida, four in South Carolina and two in North Carolina. The service warned of a tornado in Snow Hill, North Carolina, early Thursday, describing it as “large, extremely dangerous and potentially deadly.” About 30 miles north, in Wilson County, a tornado scattered roads with debris and damaged multiple buildings, including a middle school and at least 10 homes, officials said. There were no injuries reported, county officials said in a social media post early Thursday.
 
 • Tornado watches issued in North Carolina and Virginia: Tornado watches have been issued for parts of eastern North Carolina and southeastern Virginia. More than 5 million people are impacted, including the cities of Raleigh and Virginia Beach. “The tornado threat with Debby is expected to gradually expand northward and somewhat westward through midday, while lingering for several more hours,” the Storm Prediction Center said. Tornado warnings were also in effect across portions of North Carolina early Thursday. Damage has been reported in Wilson, Wade, Nash and Green counties.
 

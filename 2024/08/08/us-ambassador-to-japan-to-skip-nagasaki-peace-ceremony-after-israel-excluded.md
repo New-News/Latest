@@ -1,6 +1,6 @@
 # US Ambassador to Japan to skip Nagasaki peace ceremony after Israel excluded
 
-Published :`2024-08-08 08:39:30`
+Published :`2024-08-08 09:16:13`
 
 ---
 
@@ -12,7 +12,7 @@ Nagasaki Mayor Shiro Suzuki told reporters last week that Israel would be exclud
 
 “Should Israel be excluded, it would become difficult for us to have high-level participation in this event,” said a July 19 letter to the mayor signed by ambassadors from France, Germany, Italy and the US, as well as the chargé d’affaires from Canada, the United Kingdom and the European Union.
 
-The German embassy told CNN Thursday its ambassador Clemens von Goetze will not attend and it would send its minister counselor instead. CNN has sought to confirm the attendance or otherwise of the other signatories to the letter.
+Britain, Germany, and Italy will also not send their ambassadors to Nagasaki, their embassies told CNN on Thursday. CNN has reached out to the other remaining signatories.
 
 The bombing of Hiroshima on August 6, 1945, and Nagasaki three days later led to Japan’s unconditional surrender and brought an end to World War II. But it also killed tens of thousands of people, both instantly and in the months and years to come due to radiation sickness.
 
@@ -26,11 +26,9 @@ Russia and Belarus were both disinvited from the ceremonies over Moscow’s inva
 
 On Thursday, a US embassy spokesperson told CNN the ambassador wrote to the Nagasaki mayor on Tuesday, calling the decision to exclude Israel political and saying he would be left with no other choice but to pull out.
 
-The US embassy also said Emanuel’s absence can be explained by the “letter that like-minded G6 and EU ambassadors sent to the Nagasaki mayor.”
-
 “He will attend a peace ceremony at Zojoji Temple in Tokyo in addition to holding a moment of silence at the embassy,” the spokesperson said. The temple holds a memorial service on Friday.
 
-The ambassador had directed other US consulates in Japan to do the same, except for the outpost in Fukuoka, located in the same Kyushu prefecture as Nagasaki, according to the embassy.
+The ambassador had directed other US consulates in Japan to do the same, according to the embassy.
 
 “The US government will be represented at Nagasaki by the Principal Officer of Consulate Fukuoka,” the spokesperson said.
 
@@ -45,6 +43,8 @@ On Thursday, Mayor Suzuki reiterated that the decision was unrelated to politics
 He said the authorities would “continue to seek their understanding by persistently explaining the situation.”
 
 Japan’s Chief Cabinet Secretary Yoshimasa Hayashi said the foreign affairs ministry had been in touch with Nagasaki to explain international affairs, but local authorities make ultimate decisions on events they organize.
+
+This article has been updated.
 
 ---
 
