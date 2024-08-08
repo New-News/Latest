@@ -1,6 +1,6 @@
 # Connie Chiume, ‘Black Panther’ actress, dead at 72
 
-Published :`2024-08-08 08:19:43`
+Published :`2024-08-08 08:39:36`
 
 ---
 
