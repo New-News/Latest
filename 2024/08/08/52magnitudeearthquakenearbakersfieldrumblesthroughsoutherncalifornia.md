@@ -1,6 +1,6 @@
 # 5.2 magnitude earthquake near Bakersfield rumbles through Southern California
 
-Published :`2024-08-08 06:41:45`
+Published :`2024-08-08 07:14:27`
 
 ---
 

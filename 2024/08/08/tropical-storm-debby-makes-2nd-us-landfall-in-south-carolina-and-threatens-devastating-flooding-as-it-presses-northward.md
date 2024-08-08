@@ -1,6 +1,6 @@
 # Tropical storm Debby makes 2nd US landfall in South Carolina and threatens devastating flooding as it presses northward
 
-Published :`2024-08-08 06:41:42`
+Published :`2024-08-08 07:14:21`
 
 ---
 
@@ -12,9 +12,11 @@ Since crashing into Florida as a Category 1 hurricane on Monday, Debby has dumpe
 
 Even more chaos is on the horizon as the storm heads toward the Northeast. Here’s the latest:
 
-• Debby’s current path: After landfall, the storm will finally begin to pick up speed. It is on track to move into North Carolina by Thursday evening and into northern Virginia by Friday morning. Debby is then forecasted to accelerate through Pennsylvania by Friday evening and through New England by Saturday morning, bringing heavy rains and flash flooding to a region drenched by storms earlier this week.
+• Debby’s current path: After landfall, the storm will finally begin to pick up speed. It is on track to move into North Carolina by Thursday evening and into northern Virginia by Friday morning. Debby is then forecasted to accelerate into Pennsylvania and New York by Friday evening and through New England by early Saturday afternoon, bringing heavy rains and flash flooding to a region drenched by storms earlier this week.
 
 • “Be prepared for a deluge,” North Carolina governor says: North Carolina Gov. Roy Cooper warned residents on Wednesday to brace for major rains and flooding. “All North Carolinians across our state need to be prepared for a deluge,” Cooper said, describing the incoming threat as “more rain than most of us see in a month, or even several months.” A tornado watch has been issued for eastern North Carolina until 8 a.m. Thursday. Rainfall totals across the state could reach as high as 15 inches and South Carolina could see totals approaching 25 inches. Dangerous rip currents and storm surges of up to 3 feet are possible along the Carolinas’ coasts.
+
+• At least 10 tornadoes confirmed: Debby has whipped up at least 10 tornadoes that have been confirmed by the National Weather Service as of early Thursday. That includes four tornadoes in Florida, four in South Carolina and two in North Carolina. The service warned of a tornado in Snow Hill, North Carolina, early Thursday, describing it as “large, extremely dangerous and potentially deadly.”
 
 • Disaster declarations across the Southeast: President Joe Biden has approved disaster declarations for Florida, Georgia and the Carolinas – all of which have been pummeled by Debby this week. More than 700 Federal Emergency Management Agency personnel have been deployed to the Southeast, and search and rescue teams are on standby to assist as needed, the agency said Wednesday.
 
