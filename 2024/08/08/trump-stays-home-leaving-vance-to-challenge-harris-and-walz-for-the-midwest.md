@@ -1,6 +1,6 @@
 # Trump stays home, leaving Vance to challenge Harris and Walz for the Midwest
 
-Published :`2024-08-08 10:38:11`
+Published :`2024-08-08 11:13:34`
 
 ---
 
