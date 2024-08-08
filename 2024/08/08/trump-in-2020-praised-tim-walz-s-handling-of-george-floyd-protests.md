@@ -1,6 +1,6 @@
 # Trump in 2020 praised Tim Walz’s handling of George Floyd protests
 
-Published :`2024-08-08 15:36:52`
+Published :`2024-08-08 16:18:51`
 
 ---
 
@@ -50,7 +50,7 @@ During the June 2020 call, Trump said he had directed Walz to call in the Nation
 
 “I said you gotta use the National Guard,” Trump said, referring to Minneapolis. “They didn’t at first, then they did, and I’ll tell you that’s true, I don’t know what it was … those guys, third night, fourth night, they walked through that stuff like it was butter. They walked right through and you haven’t had any problems since.”
 
-The governor faced some bipartisan criticism for the timing of his order to activate the Guard. Minneapolis Mayor Jacob Frey, a Democrat who was facing scrutiny over chaos in his city, said in August 2020 that he had verbally asked Walz on the evening of May 27 to send in the Guard but that the governor hesitated. Walz refuted Frey’s account at the time, saying the ask did not constitute an official request, which he said came the next day. (Any tension between the two seems to have cooled.)
+The governor faced some bipartisan criticism for the timing of his order to activate the Guard. Minneapolis Mayor Jacob Frey, a Democrat who was facing scrutiny over chaos in his city, said in August 2020 that he had verbally asked Walz on the evening of May 27 to send in the Guard but that the governor hesitated. Walz refuted Frey’s account at the time, saying the ask did not constitute an official request, which he said came the next day.  The Minneapolis police chief also sent an email on the night of May 27 to the state’s public safety commissioner that included an attachment asking for Guard assistance, according to The Minneapolis Star-Tribune.
 
 Some of the most notable instances of violence in Minneapolis, including the ransacking and burning of a city police precinct, took place the night of May 28 – after Walz had already activated a portion of the Guard. Walz and Trump spoke the same day. The governor activated the entire guard on May 30.
 
@@ -63,6 +63,8 @@ Trump said he believed that was a good idea, though he added he thought “that 
 “I wish they had an occupying force in there,” Trump added.
 
 Later that day, federal law enforcement would forcibly clear peaceful protesters from a park outside the White House, making way for Trump to cross the park and pose for a photo op with a Bible outside St. John’s Church.
+
+CLARIFICATION: This story has been updated to clarify that the Minneapolis police chief sent an email asking for Minnesota National Guard assistance on the night of May 27.
 
 ---
 

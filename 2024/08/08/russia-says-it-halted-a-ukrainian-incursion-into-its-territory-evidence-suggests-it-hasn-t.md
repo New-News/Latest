@@ -1,6 +1,6 @@
 # Russia says it halted a Ukrainian incursion into its territory. Evidence suggests it hasn’t
 
-Published :`2024-08-08 15:36:49`
+Published :`2024-08-08 16:18:51`
 
 ---
 
@@ -42,9 +42,7 @@ The White House was taken by surprise by the developments, with Press Secretary 
 
 Jean-Pierre said the US was “supportive of Ukraine as they are defending themselves against Russia’s aggression.”
 
-And so, we’re going to continue to do that. And they are going to take actions … to certainly to protect themselves from these attacks,” she added.
-
-And they are going to take actions — right? —  commonsense actions to — certainly to protect themselves from these attacks.
+“And so, we’re going to continue to do that. And they are going to take actions … to certainly to protect themselves from these attacks,” she added.
 
 But as for the specific operation, we’re going to reach out to them to see what their objective is and continue to stay focused.  We are going to continue to stay focused on making sure they have what they need to defend themselves against Russia’s aggression.
 

@@ -1,6 +1,6 @@
 # More than 385,000 Camp Lejeune contamination claims have been filed. So far, the US government has offered to pay 114 of them
 
-Published :`2024-08-08 15:36:50`
+Published :`2024-08-08 16:18:51`
 
 ---
 
@@ -61,6 +61,10 @@ She, like many other families, feels caught in legal limbo.
 “These folks are not looking to win some sort of lawsuit lottery here. They just want a little bit of resources to seek the medical care that they need and live out their final days to the best of their ability,” Van Arsdale said.
 
 Last year, an email from Navy attorney Jennifer Tennile Karnes to plaintiffs’ attorneys blamed the delays on lack of manpower and funding to handle the claims. Karnes said the Navy hoped to double the number of staff in the tort claims unit by the end of last summer and had been setting up an online claims portal. The email was first reported by Bloomberg Law.
+
+In May 2023, Florida Senator Marco Rubio wrote to Navy Secretary Carlos Del Toro, asking why the process for settling claims was taking so long. In a letter obtained by CNN, Del Toro explained that the Navy unit responsible for processing the claims had been overwhelmed by the “unprecedented number of claims received.”
+
+Del Toro explained that normally, the Tort Claims Unit of the Judge Advocate General’s office operates with a full-time staff of 22 people and handles about 2,000 claims a year. In the first year of the Camp Lejeune Justice Act, the Navy had received 70,000 claims and counting. The volume required them to create a separate task force and hire additional staff just to handle the Camp Lejeune claims. Due to the timing of the passage of the Act, Del Toro said the Navy had not initially been able to request additional funding to do that.
 
 The Navy now says it has “drastically increased” the scale of its processing operations by creating the Camp Lejeune Claims Unit, which includes 100 civilian personnel and 53 contractors. It has also finished the online management portal that allows people to track their claims and communicate directly with personnel processing their file.
 

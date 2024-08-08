@@ -1,6 +1,6 @@
 # Dow adds 500 points after latest jobless data brings better news for America’s labor market
 
-Published :`2024-08-08 15:36:49`
+Published :`2024-08-08 16:18:52`
 
 ---
 
