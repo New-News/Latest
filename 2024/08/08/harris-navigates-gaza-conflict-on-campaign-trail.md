@@ -1,6 +1,6 @@
 # Harris navigates Gaza conflict on campaign trail
 
-Published :`2024-08-08 16:18:51`
+Published :`2024-08-08 16:40:32`
 
 ---
 
