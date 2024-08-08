@@ -1,6 +1,6 @@
 # For some American Jews, a path to German citizenship opens options their ancestors never had
 
-Published :`2024-08-08 18:21:14`
+Published :`2024-08-08 18:41:33`
 
 ---
 

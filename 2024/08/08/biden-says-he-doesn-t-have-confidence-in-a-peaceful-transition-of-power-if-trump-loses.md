@@ -1,6 +1,6 @@
 # Biden says he doesn’t have confidence in a peaceful transition of power if Trump loses
 
-Published :`2024-08-08 18:21:14`
+Published :`2024-08-08 18:41:32`
 
 ---
 
