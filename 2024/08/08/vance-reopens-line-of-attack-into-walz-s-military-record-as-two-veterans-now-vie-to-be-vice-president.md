@@ -1,6 +1,6 @@
 # Vance reopens line of attack into Walz’s military record as two veterans now vie to be vice president
 
-Published :`2024-08-08 02:23:57`
+Published :`2024-08-08 02:49:29`
 
 ---
 
@@ -24,13 +24,13 @@ Walz filed paperwork with the Federal Election Commission as a candidate for C
 
 “As Command Sergeant Major I have a responsibility not only to ready my battalion for Iraq, but also to serve if called on. I am dedicated to serving my country to the best of my ability, whether that is in Washington DC or in Iraq,” he continued, adding: “I don’t want to speculate on what shape my campaign will take if I am deployed, but I have no plans to drop out of the race. I am fortunate to have a strong group of enthusiastic supporters and a very dedicated and intelligent wife. Both will be a major part of my campaign, whether I am in Minnesota or Iraq.”
 
-Walz retired from the Army National Guard in May 2005, according to the Minnesota National Guard. Service members often submit their paperwork for retirement months before their retirement date. It’s unclear when Walz submitted his papers for retirement.
+Walz retired from the Army National Guard in May 2005, according to the Minnesota National Guard. In a 2009 interview for the Library of Congress, Walz said he left the guard to focus full time on running for Congress, citing concerns about trying to serve at the same time and the Hatch Act, which limits political activities for federal employees.
+
+Service members often submit their paperwork for retirement months before their retirement date. It’s unclear when Walz submitted his papers for retirement.
 
 The Harris campaign did not immediately respond when asked about when Walz submitted his retirement paperwork.
 
 A National Guard article on his unit’s deployment states that it received alert orders to deploy to Iraq in July 2005, two months after Walz retired. The unit first mobilized in the fall of 2005 to Camp Shelby Mississippi to prepare for deployment, according to the unit’s history, and then deployed in March 2006 for 22 months, which the Guard said was the longest continuous deployment of any military unit during US operations in Iraq.
-
-Walz filed paperwork with the Federal Election Commission as a candidate for Congress on February 10, 2005.
 
 In his comments Wednesday, Vance also went after Walz for claiming he had served in combat, accusing the governor of being “dishonest” with his claims about his service.
 

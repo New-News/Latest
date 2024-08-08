@@ -1,6 +1,6 @@
 # USA’s Cole Hocker produces one of the upsets of the Paris Olympics to win 1,500-meter gold
 
-Published :`2024-08-08 02:23:59`
+Published :`2024-08-08 02:49:31`
 
 ---
 

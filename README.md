@@ -1,18 +1,20 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-08 02:24:01`
+#### Latest Update : `2024-08-08 02:49:32`
 
 ## Latest News Grabbing 
 
 ---
 
-- [Three Taylor Swift concerts in Vienna cancelled over alleged planned terrorist attack](https://new-news.github.io/Latest/2024/08/08/three-taylor-swift-concerts-in-vienna-cancelled-over-alleged-planned-terrorist-attack 'Three Taylor Swift concerts in Vienna cancelled over alleged planned terrorist attack')
+- [Vance reopens line of attack into Walz’s military record as two veterans now vie to be vice president](https://new-news.github.io/Latest/2024/08/08/vance-reopens-line-of-attack-into-walz-s-military-record-as-two-veterans-now-vie-to-be-vice-president 'Vance reopens line of attack into Walz’s military record as two veterans now vie to be vice president')
 
-- [Prosecutors claim Hunter Biden once agreed to lobby US on behalf of Romanian businessman](https://new-news.github.io/Latest/2024/08/08/prosecutors-claim-hunter-biden-once-agreed-to-lobby-us-on-behalf-of-romanian-businessman 'Prosecutors claim Hunter Biden once agreed to lobby US on behalf of Romanian businessman')
+- [Who is Muhammad Yunus, the Nobel laureate leader of Bangladesh’s interim government?](https://new-news.github.io/Latest/2024/08/08/who-is-muhammad-yunus-the-nobel-laureate-leader-of-bangladesh-s-interim-government 'Who is Muhammad Yunus, the Nobel laureate leader of Bangladesh’s interim government?')
 
 - [Russia says Ukrainian troops crossed into its territory and launched ‘massive attack’](https://new-news.github.io/Latest/2024/08/08/russia-says-ukrainian-troops-crossed-into-its-territory-and-launched-massive-attack 'Russia says Ukrainian troops crossed into its territory and launched ‘massive attack’')
 
-- [Vance reopens line of attack into Walz’s military record as two veterans now vie to be vice president](https://new-news.github.io/Latest/2024/08/08/vance-reopens-line-of-attack-into-walz-s-military-record-as-two-veterans-now-vie-to-be-vice-president 'Vance reopens line of attack into Walz’s military record as two veterans now vie to be vice president')
+- [Three Taylor Swift concerts in Vienna cancelled over alleged planned terrorist attack](https://new-news.github.io/Latest/2024/08/08/three-taylor-swift-concerts-in-vienna-cancelled-over-alleged-planned-terrorist-attack 'Three Taylor Swift concerts in Vienna cancelled over alleged planned terrorist attack')
+
+- [Prosecutors claim Hunter Biden once agreed to lobby US on behalf of Romanian businessman](https://new-news.github.io/Latest/2024/08/08/prosecutors-claim-hunter-biden-once-agreed-to-lobby-us-on-behalf-of-romanian-businessman 'Prosecutors claim Hunter Biden once agreed to lobby US on behalf of Romanian businessman')
 
 - [Man charged with murder in connection with 3 strangulation deaths in Southern California in 1977](https://new-news.github.io/Latest/2024/08/08/man-charged-with-murder-in-connection-with-3-strangulation-deaths-in-southern-california-in-1977 'Man charged with murder in connection with 3 strangulation deaths in Southern California in 1977')
 
@@ -99,8 +101,6 @@
 - [The way NFL games start has drastically changed. Here’s everything you need to know](https://new-news.github.io/Latest/2024/08/08/the-way-nfl-games-start-has-drastically-changed-here-s-everything-you-need-to-know 'The way NFL games start has drastically changed. Here’s everything you need to know')
 
 - [Hamas names Oct. 7 architect Yahya Sinwar new political leader. What does it mean for ceasefire talks?](https://new-news.github.io/Latest/2024/08/08/hamas-names-oct-7-architect-yahya-sinwar-new-political-leader-what-does-it-mean-for-ceasefire-talks 'Hamas names Oct. 7 architect Yahya Sinwar new political leader. What does it mean for ceasefire talks?')
-
-- [Who is Muhammad Yunus, the Nobel laureate leader of Bangladesh’s interim government?](https://new-news.github.io/Latest/2024/08/08/who-is-muhammad-yunus-the-nobel-laureate-leader-of-bangladesh-s-interim-government 'Who is Muhammad Yunus, the Nobel laureate leader of Bangladesh’s interim government?')
 
 - [You need to focus on your pelvic health. A doctor explains why](https://new-news.github.io/Latest/2024/08/08/you-need-to-focus-on-your-pelvic-health-a-doctor-explains-why 'You need to focus on your pelvic health. A doctor explains why')
 

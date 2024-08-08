@@ -1,6 +1,6 @@
 # Disney hikes price for Disney+, Hulu and ESPN+ subscription services
 
-Published :`2024-08-08 02:24:00`
+Published :`2024-08-08 02:49:32`
 
 ---
 
