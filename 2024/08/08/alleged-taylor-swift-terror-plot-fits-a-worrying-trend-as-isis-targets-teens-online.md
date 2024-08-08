@@ -1,6 +1,6 @@
 # Alleged Taylor Swift terror plot fits a worrying trend as ISIS targets teens online
 
-Published :`2024-08-08 13:36:13`
+Published :`2024-08-08 14:14:00`
 
 ---
 
@@ -10,7 +10,7 @@ The prime suspect is a 19-year-old who was arrested in Ternitz, about an hour’
 
 The head of Austria’s domestic intelligence agency, Omar Haijawi-Pirchner, said the suspect’s aim was to “kill himself and a large number of people.” In a raid on the suspect’s home police found chemical explosives, detonators, ISIS propaganda, knives and machetes. He even had a blue light used by police to attach to their cars, which could have helped him drive to the busy scene.
 
-Two other suspects are being questioned: a 17-year-old who recently broke up with his girlfriend and who worked for a company that provides services to the venue, and a 15-year-old boy who prosecutors are still determining if they were directly involved. All are Austrian citizens and have either Turkish, Croatian or North Macedonian backgrounds.
+Two other suspects are being questioned: a 17-year-old who recently broke up with his girlfriend and who worked for a company that provides services to the venue, and a 15-year-old boy who prosecutors are still determining if they were directly involved. All are Austrian-born and have either Turkish, Croatian or North Macedonian backgrounds.
 
 The 19 and 17-year-old suspects had been radicalized online, police said, adding the 19-year-old had sworn allegiance to ISIS’ new leader last month.
 

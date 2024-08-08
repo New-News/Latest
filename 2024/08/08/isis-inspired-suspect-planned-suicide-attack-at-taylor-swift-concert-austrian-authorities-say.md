@@ -1,6 +1,6 @@
 # ISIS-inspired suspect planned suicide attack at Taylor Swift concert, Austrian authorities say
 
-Published :`2024-08-08 13:36:13`
+Published :`2024-08-08 14:14:00`
 
 ---
 
@@ -20,7 +20,7 @@ Two other suspects were detained, aged 17 and 15. The 17-year-old worked for a f
 
 Little has been revealed about the 15-year-old. Prosecutors will decide later if he was a witness or directly involved in the alleged plot.
 
-The three are all Austrian citizens with either Turkish, North Macedonian or Croatian backgrounds.
+The three are all Austrian-born with either Turkish, North Macedonian or Croatian backgrounds.
 
 The trio were in contact with other individuals who knew about the plan, said the country’s director general for public security, Franz Ruf. No-one else is being sought in direct connection with the plot, Ruf added.
 

@@ -1,6 +1,6 @@
 # Russia says it halted a Ukrainian incursion into its territory. Evidence suggests it hasn’t
 
-Published :`2024-08-08 13:36:13`
+Published :`2024-08-08 14:14:00`
 
 ---
 
@@ -35,6 +35,16 @@ The US-based conflict monitoring group the Institute for the Study of War said i
 The Ukrainian military and the government in Kyiv have remained silent about the cross-border attack, declining to answer questions from CNN.
 
 Ukraine’s allies have not commented on the situation beyond saying the country has the right to defend itself. The EU’s foreign affairs and security policy spokesperson Peter Stano told the Ukrainian public broadcaster Suspilne News that according to the international law, Kyiv “has the legal right to defend itself, including striking an aggressor on its territory.”
+
+The White House was taken by surprise by the developments, with Press Secretary Karine Jean-Pierre telling reporters on Wednesday that it was not told ahead of time, adding that the Biden administration was “going to reach out to the Ukrainian military to learn more about their objectives.”
+
+Jean-Pierre said the US was “supportive of Ukraine as they are defending themselves against Russia’s aggression.”
+
+And so, we’re going to continue to do that. And they are going to take actions … to certainly to protect themselves from these attacks,” she added.
+
+And they are going to take actions — right? —  commonsense actions to — certainly to protect themselves from these attacks.
+
+But as for the specific operation, we’re going to reach out to them to see what their objective is and continue to stay focused.  We are going to continue to stay focused on making sure they have what they need to defend themselves against Russia’s aggression.
 
 It remains unclear why Ukrainian forces would launch an attack of the scale described by Russian authorities.
 

@@ -1,6 +1,6 @@
 # Unemployment claims fall: A welcome sign for America’s slumping job market
 
-Published :`2024-08-08 13:36:13`
+Published :`2024-08-08 14:14:00`
 
 ---
 
@@ -22,7 +22,7 @@ Weekly jobless claims data can be highly volatile and is frequently revised. It 
 
 The latest snapshot of the US labor market comes as Wall Street attempts to bounce back from a market rout triggered by a weaker-than-expected July jobs report that showed unemployment rose to 4.3% from 4.1% and the economy added just 114,000 jobs. Concern that the US economy is slowing down more quickly than expected fueled losses on all three major US indexes on Monday, with the Dow at one point down by more than 2.6%.
 
-US stock futures rose Thursday after the jobs data was released. Futures on the Dow were 177 points, or 0.45% higher.  S&P futures were 0.8% higher and Nasdaq futures were up 1.1%. Treasury yields also moved higher, with the 10-year Treasury edging up to 3.981% after tumbling earlier this week due to the dismal jobs report.
+US stock futures rose Thursday after the jobs data was released, and after the opening bell the Dow was higher by more than 500 points. The S&P 500 and Nasdaq Composite both gained around 1.4%. Treasury yields also moved higher, with the 10-year Treasury edging up to 3.981% after tumbling earlier this week due to the dismal jobs report.
 
 Chris Larkin, managing director of trading and investing at E-Trade, said Thursday’s jobless claims data “may ease some of the concerns raised by last week’s soft jobs report.”
 
