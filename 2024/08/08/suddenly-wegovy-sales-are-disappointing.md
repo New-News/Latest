@@ -1,6 +1,6 @@
 # Suddenly, Wegovy sales are disappointing
 
-Published :`2024-08-08 06:22:25`
+Published :`2024-08-08 06:41:44`
 
 ---
 

@@ -1,22 +1,16 @@
 # Tropical storm Debby makes 2nd US landfall in South Carolina and threatens devastating flooding as it presses northward
 
-Published :`2024-08-08 06:22:23`
+Published :`2024-08-08 06:41:42`
 
 ---
 
-[Breaking news update, published at 1:52 a.m. ET] Tropical Storm Debby has made its second landfall, this time near Bulls Bay, South Carolina, bringing maximum sustained wind speeds of 50 mph as it crawls further inland at 5 mph, according to the National Hurricane Center.
+Tropical Storm Debby made its second US landfall early Thursday – this time in South Carolina – after looming over the Atlantic Ocean, and is set to unleash more torrential rains, tornadoes and destructive flooding as it marches northward through the rest of the week, inundating several already-soaked states.
 
-The storm has killed at least five people since making landfall in Florida on Monday as a hurricane and Debby continues to bring heavy rain and the threat of flooding along its path northward.
+Debby made landfall near Bulls Bay, South Carolina – some 20 miles northeast of Charleston – with maximum sustained wind speeds of 50 mph as it crawled further inland at 5 mph, the National Hurricane Center said shortly before 2 a.m. ET.
 
-[Original story, published at 1:40 a.m. ET]
+Since crashing into Florida as a Category 1 hurricane on Monday, Debby has dumped more than a foot of rain over parts of Florida, Georgia and South Carolina, and has killed at least five people. The deluges have engorged rivers, flooded roadways and trapped people in cars, homes and boats.
 
-Tropical Storm Debby is closing in on the South Carolina coast, where it is expected to make a second landfall early Thursday after looming over the Atlantic Ocean. The storm is set to unleash more torrential rains, tornadoes and destructive flooding as it marches northward through the rest of the week, inundating several already-soaked states.
-
-As of 11 p.m. ET Wednesday, Debby’s center was 25 miles east-northeast of Charleston and inching forward at just 3 mph, a typical walking speed for many people, the National Hurricane Center said.
-
-Since crashing into Florida as a Category 1 hurricane on Monday, Debby has dumped more than a foot of rain over parts of Florida, Georgia and South Carolina. The deluges have engorged rivers, flooded roadways and trapped people in cars, homes and boats.
-
-But even more chaos is on the horizon as the storm heads toward the Northeast. Here’s the latest:
+Even more chaos is on the horizon as the storm heads toward the Northeast. Here’s the latest:
 
 • Debby’s current path: After landfall, the storm will finally begin to pick up speed. It is on track to move into North Carolina by Thursday evening and into northern Virginia by Friday morning. Debby is then forecasted to accelerate through Pennsylvania by Friday evening and through New England by Saturday morning, bringing heavy rains and flash flooding to a region drenched by storms earlier this week.
 
