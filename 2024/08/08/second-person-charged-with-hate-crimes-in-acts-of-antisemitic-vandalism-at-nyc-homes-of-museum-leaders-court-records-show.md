@@ -1,6 +1,6 @@
 # Second person charged with hate crimes in acts of antisemitic vandalism at NYC homes of museum leaders, court records show
 
-Published :`2024-08-08 13:20:45`
+Published :`2024-08-08 13:36:15`
 
 ---
 

@@ -1,6 +1,6 @@
 # Unemployment claims fall: A welcome sign for America’s slumping job market
 
-Published :`2024-08-08 13:20:42`
+Published :`2024-08-08 13:36:13`
 
 ---
 
@@ -10,7 +10,9 @@ Initial claims fell to 233,000 from the prior week’s upwardly revised 250,000,
 
 “Anything in that range tends to suggest a fairly healthy labor market,” wrote economist Joseph Brusuelas on X Thursday morning.
 
-Economists had expected 240,00 initial claims for unemployment insurance for the week ending August 3.
+Economists had expected 240,000 initial claims for unemployment insurance for the week ending August 3.
+
+Nancy Vanden Houten, senior US economist at Oxford Economics, said the latest claims data was a reflection of the dissipating impacts of auto plant shutdowns and Hurricane Beryl.
 
 But the report wasn’t all good news for the job market.
 
@@ -25,8 +27,6 @@ US stock futures rose Thursday after the jobs data was released. Futures on the 
 Chris Larkin, managing director of trading and investing at E-Trade, said Thursday’s jobless claims data “may ease some of the concerns raised by last week’s soft jobs report.”
 
 However, as investors begin to shift their focus from the labor market to next Wednesday’s key Consumer Price Index inflation report, “it’s unclear how much this will move the sentiment needle,” Larkin said in a statement on Thursday.
-
-This is a developing story and will be updated.
 
 ---
 
