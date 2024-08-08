@@ -1,6 +1,6 @@
 # Rate of stroke deaths among middle-age US adults hit two-decade high during Covid pandemic, report shows
 
-Published :`2024-08-08 23:15:43`
+Published :`2024-08-08 23:36:49`
 
 ---
 

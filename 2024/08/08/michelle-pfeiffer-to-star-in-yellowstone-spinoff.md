@@ -1,6 +1,6 @@
 # Michelle Pfeiffer to star in ‘Yellowstone’ spinoff
 
-Published :`2024-08-08 23:15:40`
+Published :`2024-08-08 23:36:49`
 
 ---
 

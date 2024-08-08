@@ -1,6 +1,6 @@
 # Trump attacks Harris and Walz during first news conference since Democratic ticket was announced
 
-Published :`2024-08-08 23:15:39`
+Published :`2024-08-08 23:36:48`
 
 ---
 
