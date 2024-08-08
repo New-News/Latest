@@ -1,6 +1,6 @@
 # Two dead and several trapped after hotel collapses in Germany
 
-Published :`2024-08-08 07:14:26`
+Published :`2024-08-08 07:37:08`
 
 ---
 

@@ -1,30 +1,34 @@
 # Taylor Swift shows in Vienna canceled over alleged planned terrorist attack
 
-Published :`2024-08-08 07:14:21`
+Published :`2024-08-08 07:37:05`
 
 ---
 
-Organizers have canceled three Taylor Swift concerts in Austria after authorities arrested two suspects for allegedly planning a terror attack during the Vienna leg of her blockbuster Eras tour.
+Organizers have canceled three Taylor Swift concerts in Austria after authorities said they foiled a terror attack planned for the Vienna leg of her blockbuster Eras tour.
 
 The extraordinary decision – which could come at significant cost to Vienna’s businesses – has devastated fans and renewed focus on the vulnerability of huge concerts as soft targets for terror networks and spree killers.
 
-Swift was scheduled to play three shows in the European city from Thursday to Saturday – which have all been canceled, according to Barracuda Music, the promoter for Swift’s concerts in Austria.
+Swift was scheduled to play three shows in the European city from Thursday to Saturday – which have all been canceled, according to Barracuda Music, the promoter for her concerts in Austria.
 
-“With confirmation from government officials of a planned terrorist attack at Ernst Happel Stadium, we have no choice but to cancel the three scheduled shows for everyone’s safety,” Barracuda Music said on Wednesday in a post online.
+“With confirmation from government officials of a planned terrorist attack at Ernst Happel Stadium, we have no choice but to cancel the three scheduled shows for everyone’s safety,” Barracuda Music said Wednesday in a post online.
 
-Swift’s official website also listed the concerts as canceled. CNN has reached out to Taylor Swift’s representatives for a comment.
+Swift’s official website also listed the concerts as canceled. CNN has reached out to her representatives for comment.
 
 Speaking at a press conference in the capital, police said a 19-year-old Austrian citizen, who they identified as a sympathizer of ISIS, was arrested Wednesday morning in Ternitz, lower Austria, while another arrest was made later in Vienna.
 
-They had become “radicalized by the internet,” with the 19-year-old pledging his allegiance to the leader of ISIS in July, police said.
+The suspects had become “radicalized by the internet,” with the 19-year-old pledging his allegiance to ISIS’ leader in July, police said.
 
-The two suspects had undertaken “concrete preparatory measures” for a terrorist attack after police suspected explosives were stored at the home of the suspect in Ternitz, authorities said.
+Later Wednesday, police said they had made “further detentions” but did not give a number or any other details.
 
-Police also said that chemical substances were secured at the home of the 19-year-old and were being evaluated, the Associated Press reported.
+The suspects had undertaken “concrete preparatory measures” for a terrorist attack after police suspected explosives were stored at the home of the suspect in Ternitz, authorities said.
+
+Police also said chemical substances were secured at the home of the 19-year-old and were being evaluated, the Associated Press reported.
 
 “From the current standpoint of the investigation we assume that the target of the attack were events in the Vienna region,” police said.
 
-Later on Wednesday, police said they had made “further detentions” but did not give a number or any other details.
+In a post on X, Austrian Chancellor Karl Nehammer called the cancellation a “bitter disappointment for all fans in Austria” but said a tragedy had been prevented.
+
+“We live in a time in which violent means are being used to attack our Western way of life,” he said. “Islamist terrorism threatens security and freedom in many Western countries. This is precisely why we will not give up our values ​​​​such as freedom and democracy, but will defend them even more vehemently.”
 
 Barracuda Music said all tickets for the canceled shows will be automatically refunded within the next 10 business days.
 
@@ -32,27 +36,27 @@ Swift’s record-breaking Eras Tour began in Glendale, Arizona on March 18, 2023
 
 ### Heartbroken fans
 
-Cancelling three high profile shows will not have been an easy decision for Viennese authorities given the windfall Swift’s shows bring.
+Canceling three high-profile shows will not have been an easy decision for Viennese authorities given the windfall Swift’s shows bring.
 
-Her tour has made headlines for influencing the economies of the cities and countries that she visits – including boosting spending in the United Kingdom by nearly $1 billion, according to some estimates. It’s a stark illustration of her star power and the accompanying “Swiftonomics” that have accompanied her mammoth tour.
+Her tour has made headlines for boosting the economies of the places that she visits – including generating an estimated $380 million in London, the city’s mayor said in June. It’s a stark illustration of her star power and the accompanying “Swiftonomics” that have accompanied her mammoth tour.
 
 Vienna was scheduled to be the penultimate venue of the European leg, with Swift slated to play five nights at London’s Wembley Stadium next week before moving on to Canada for the tour’s final dates in November and December.
 
 Authorities said they had expected around 65,000 audience members at each of Swift’s Vienna shows, and another 15,000-20,000 fans outside the stadium.
 
-Just a day before the announcement of the Vienna cancelation, Swift posted on Instagram after performing in Warsaw, Poland: “I can’t believe we have 2 cities left on the European leg of The Eras Tour. It’s truly flown by. See you soon Vienna!”
+Just a day before the announcement of the Vienna cancellation, Swift posted on Instagram after performing in Warsaw, Poland: “I can’t believe we have 2 cities left on the European leg of The Eras Tour. It’s truly flown by. See you soon Vienna!”
 
-The cancelation has left fans both shaken and disappointed, including many who had flown in to Vienna for the shows.
+The cancellation has left fans both shaken and disappointed, including many who had traveled to Vienna for the shows.
 
-Vanessa Szombathelyi, 24, had traveled from Ireland to Hungary – where she and her best friend had planned to drive to Vienna for the show. It would have been her first Taylor Swift concert since she first became a fan in 2018, and she’d been excitedly waiting since buying the ticket last summer.
+Vanessa Szombathelyi, 24, flew from Ireland to Hungary – where she and her best friend had planned to drive across the border to Vienna for the show. It would have been her first Swift concert since she first became a fan in 2018, and she’d been excitedly waiting since buying the ticket last summer.
 
-“(I’m) feeling mixed emotions, everything from tears to being angry,” she told CNN on Wednesday, adding that she was “mad and grateful that the two people were caught.”
+“(I’m) feeling mixed emotions, everything from tears to being angry,” she told CNN on Wednesday, adding she was grateful the suspects were arrested.
 
 ### Concerts as attack targets
 
 In recent years, music performances and venues in Europe have become targets for mass attacks by Islamist militants.
 
-In November 2015, ISIS gunmen attacked the Bataclan theater in Paris – part of an assault that hit other targets in the city – killing at least 130 people in total.
+In November 2015, ISIS gunmen attacked the Bataclan theater in Paris – part of an assault that hit other targets in the French capital – killing at least 130 people in total.
 
 And in May 2017, the group claimed responsibility for a suicide bombing at an Ariana Grande concert in Manchester, England, that killed 22 people.
 

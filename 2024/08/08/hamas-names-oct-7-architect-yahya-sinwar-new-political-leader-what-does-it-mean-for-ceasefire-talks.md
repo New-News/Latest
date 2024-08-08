@@ -1,6 +1,6 @@
 # Hamas names Oct. 7 architect Yahya Sinwar new political leader. What does it mean for ceasefire talks?
 
-Published :`2024-08-08 07:14:25`
+Published :`2024-08-08 07:37:07`
 
 ---
 

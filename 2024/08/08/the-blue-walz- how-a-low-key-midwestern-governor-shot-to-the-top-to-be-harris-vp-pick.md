@@ -1,6 +1,6 @@
 # The ‘Blue Walz’: How a low-key Midwestern governor shot to the top to be Harris’ VP pick
 
-Published :`2024-08-08 07:14:27`
+Published :`2024-08-08 07:37:08`
 
 ---
 
