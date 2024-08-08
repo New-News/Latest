@@ -1,6 +1,6 @@
 # Delta lashes out at CrowdStrike for its ‘vastly inadequate’ apology
 
-Published :`2024-08-08 20:36:14`
+Published :`2024-08-08 21:14:20`
 
 ---
 
@@ -25,6 +25,10 @@ Boies said 60% of Delta’s mission-critical systems depended on Microsoft or Cr
 To fix systems brought down by CrowdStrike, computers needed to be restarted, manually, one by one. Delta claimed that after CrowdStrike discovered a way to automate the process, CrowdStrike introduced yet another bug that prevented many of its computers from coming back online.
 
 “CrowdStrike also did not work “tirelessly” to help Delta restore its systems,” Boies said. “CrowdStrike’s offers of assistance during the first 65 hours of the outage simply referred Delta to CrowdStrike’s publicly available remediation website.”
+
+In response, CrowdStrike said in a statement that its CEO, George Kurtz, called Delta board member David DeWalt within four hours after the July 19th outage began, and DeWalt posted on LinkedIn that the tech company “have done an incredible job.”
+
+“Delta continues to push a misleading narrative,” a CrowdStrike spokesperson said in a statement. “CrowdStrike’s and Delta’s teams worked closely together within hours of the incident, with CrowdStrike providing technical support beyond what was available on the website.”
 
 The battle between Delta and the tech companies kicked off late last month when Delta CEO Ed Bastian said in an interview on CNBC that CrowdStrike was willfully negligent in its post-crash conduct: “They haven’t offered us anything,” Bastian said. “Free consulting advice to help us.”
 
