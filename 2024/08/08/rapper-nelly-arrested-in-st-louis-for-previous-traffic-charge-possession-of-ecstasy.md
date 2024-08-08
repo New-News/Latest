@@ -1,6 +1,6 @@
 # Rapper Nelly arrested in St. Louis for previous traffic charge, possession of ecstasy
 
-Published :`2024-08-08 01:09:20`
+Published :`2024-08-08 02:23:57`
 
 ---
 

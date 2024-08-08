@@ -1,6 +1,6 @@
 # Thai court orders election-winning party to dissolve in major blow to kingdom’s popular progressive movement
 
-Published :`2024-08-08 01:09:23`
+Published :`2024-08-08 02:23:59`
 
 ---
 

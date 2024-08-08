@@ -1,10 +1,10 @@
 # Vance reopens line of attack into Walz’s military record as two veterans now vie to be vice president
 
-Published :`2024-08-08 01:09:20`
+Published :`2024-08-08 02:23:57`
 
 ---
 
-Donald Trump’s running mate Ohio Sen. JD Vance stepped up his attacks on Minnesota Gov. Tim Walz’s portrayal of his military career, accusing him without evidence of ducking service in Iraq when he left the Army National Guard and ran for Congress in 2005.
+Donald Trump’s running mate Ohio Sen. JD Vance stepped up his attacks on Minnesota Gov. Tim Walz’s portrayal of his military career, accusing him of ducking service in Iraq when he left the Army National Guard and ran for Congress in 2005.
 
 Vance also accused Walz of falsely claiming he had served in a combat zone while the Democratic vice presidential nominee was in the Army National Guard.
 
@@ -18,7 +18,15 @@ At a campaign stop in Michigan on Wednesday, Vance accused Walz of abandoning hi
 
 “When the United State Marine Corps, when the United States of America asked me to go to Iraq to serve my country, I did it. I did what they asked me to do, and I did it honorably and I’m very proud of that service. When Tim Walz was asked by his country to go to Iraq, you know what he did? He dropped out of the Army and allowed his unit to go without him,” Vance said.
 
-Walz retired from the Army National Guard in May 2005, according to the Minnesota National Guard. Typically, service members need to submit papers several months before they can retire.
+Walz filed paperwork with the Federal Election Commission as a candidate for Congress on February 10, 2005. The next month, after the guard announced a possible deployment to Iraq within two years, Walz’s campaign issued a statement saying he intended to stay in the race.
+
+“I do not yet know if my artillery unit will be part of this mobilization and I am unable to comment further on specifics of the deployment,” Walz said in the March 2005 campaign release.
+
+“As Command Sergeant Major I have a responsibility not only to ready my battalion for Iraq, but also to serve if called on. I am dedicated to serving my country to the best of my ability, whether that is in Washington DC or in Iraq,” he continued, adding: “I don’t want to speculate on what shape my campaign will take if I am deployed, but I have no plans to drop out of the race. I am fortunate to have a strong group of enthusiastic supporters and a very dedicated and intelligent wife. Both will be a major part of my campaign, whether I am in Minnesota or Iraq.”
+
+Walz retired from the Army National Guard in May 2005, according to the Minnesota National Guard. Service members often submit their paperwork for retirement months before their retirement date. It’s unclear when Walz submitted his papers for retirement.
+
+The Harris campaign did not immediately respond when asked about when Walz submitted his retirement paperwork.
 
 A National Guard article on his unit’s deployment states that it received alert orders to deploy to Iraq in July 2005, two months after Walz retired. The unit first mobilized in the fall of 2005 to Camp Shelby Mississippi to prepare for deployment, according to the unit’s history, and then deployed in March 2006 for 22 months, which the Guard said was the longest continuous deployment of any military unit during US operations in Iraq.
 
@@ -56,7 +64,7 @@ Joseph Eustice, a 32-year veteran who led the same battalion as Walz, told the S
 
 ”He was a great soldier,” Eustice said. “When he chose to leave, he had every right to leave.”
 
-This story has been updated with additional developments.
+This story has been updated with additional reporting on the timeline of Walz’s service and information on his unit’s possible deployment to Iraq.
 
 ---
 

@@ -1,6 +1,6 @@
 # Russia says Ukrainian troops crossed into its territory and launched ‘massive attack’
 
-Published :`2024-08-08 01:09:21`
+Published :`2024-08-08 02:23:57`
 
 ---
 
@@ -26,7 +26,7 @@ Border guards were “putting up serious resistance to the advancing enemy troop
 
 CNN is unable to confirm the account, but geolocated video shows that parts of Sudzha have been heavily shelled. Drone footage geolocated by CNN shows some 20 men who appear to have surrendered at the heavily damaged border crossing south-west of Sudzha.
 
-CNN is unable to confirm the identity of those shown in the video. Sternenko, an unofficial Ukrainian social media channel that distributed the video, said it showed a at least 22 Russian soldiers “surrender” in the Kursk region.
+CNN is unable to confirm the identity of those shown in the video. Sternenko, an unofficial Ukrainian social media channel that distributed the video, said it showed at least 22 Russian soldiers “surrender” in the Kursk region.
 
 The acting governor of Russia’s Kursk region, Aleksey Smirnov, says he has “decided to introduce an emergency situation in the Kursk region from August 7th.” He added in a Telegram post that the “operational situation in the border areas remains difficult. To eliminate the consequences of the entry of enemy forces into the territory of the region, I decided to introduce an emergency situation.”
 
