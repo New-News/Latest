@@ -1,6 +1,6 @@
 # Boeing still doesn’t know how a plane missing four bolts was sent to Alaska Airlines
 
-Published :`2024-08-08 19:11:59`
+Published :`2024-08-08 19:38:07`
 
 ---
 

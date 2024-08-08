@@ -1,6 +1,6 @@
 # Potential ‘retaliatory’ attacks at DNC a concern following Trump assassination attempt, federal assessment says
 
-Published :`2024-08-08 19:11:57`
+Published :`2024-08-08 19:38:04`
 
 ---
 
@@ -9,6 +9,8 @@ US security officials are on alert for possible retaliatory attacks against Demo
 The threat assessment — prepared jointly by the FBI, Department of Homeland Security, and other agencies, including local police in Illinois — outlines various potential security concerns surrounding the upcoming Democratic National Convention in Chicago.
 
 “The FBI and DHS remain concerned about the potential for follow-on or retaliatory acts of violence following the 13 July 2024 assassination attempt on (Trump) particularly given that individuals in some online communities have threatened, encouraged, or referenced acts of violence in response to the attempted assassination,” the assessment says, noting agencies have not identified any specific and credible threats.
+
+Despite several conspiracy theories that appeared online after the attack blaming Democrats, there is no evidence the shooter was motivated by politics. A review of public records suggests he may have had divergent political leanings, and registered to vote as a Republican while also making a small donation to a Democratic-leaning group.
 
 While the motive of the gunman who fired on Trump remains a mystery to investigators, the bulletin says “politically and socially divisive topics have prompted violence in the past,” and adds that some extremists “will view political and social tensions as an opportunity to use or promote violence to further their ideological goals.”
 
@@ -33,6 +35,8 @@ Since the October 7 attack, law enforcement has observed an increase in threats 
 As CNN has reported, recent demonstrations across the country against the Biden administration’s support for Israel’s war in Gaza have raised the specter of a replay of the 1968 Democratic convention, which saw violent clashes between Chicago police and anti-Vietnam War protesters.
 
 With the start of the convention just over a week away, law enforcement agencies in Chicago have been holding drills on a wide range of potential scenarios — including violent protests, extracting individuals from hostile crowds, medical emergencies and more.
+
+This story has been updated with additional information.
 
 ---
 

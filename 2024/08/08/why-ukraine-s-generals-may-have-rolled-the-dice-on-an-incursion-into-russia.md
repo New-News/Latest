@@ -1,6 +1,6 @@
 # Why Ukraine’s generals may have rolled the dice on an incursion into Russia
 
-Published :`2024-08-08 19:11:58`
+Published :`2024-08-08 19:38:05`
 
 ---
 

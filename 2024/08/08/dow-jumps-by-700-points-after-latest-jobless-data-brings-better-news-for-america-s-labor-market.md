@@ -1,6 +1,6 @@
 # Dow jumps by 700 points after latest jobless data brings better news for America’s labor market
 
-Published :`2024-08-08 19:11:57`
+Published :`2024-08-08 19:38:05`
 
 ---
 
