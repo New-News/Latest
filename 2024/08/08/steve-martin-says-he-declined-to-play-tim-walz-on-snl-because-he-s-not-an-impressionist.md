@@ -1,6 +1,6 @@
 # Steve Martin says he declined to play Tim Walz on ‘SNL’ because he’s ‘not an impressionist’
 
-Published :`2024-08-08 12:29:55`
+Published :`2024-08-08 12:56:50`
 
 ---
 

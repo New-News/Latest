@@ -1,6 +1,6 @@
 # Taylor Swift shows in Vienna canceled over alleged planned terrorist attack
 
-Published :`2024-08-08 12:29:53`
+Published :`2024-08-08 12:56:49`
 
 ---
 

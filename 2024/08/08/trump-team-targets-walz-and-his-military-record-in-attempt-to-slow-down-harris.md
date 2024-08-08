@@ -1,6 +1,6 @@
 # Trump team targets Walz and his military record in attempt to slow down Harris
 
-Published :`2024-08-08 12:29:53`
+Published :`2024-08-08 12:56:49`
 
 ---
 
@@ -18,9 +18,11 @@ In one moment that delighted her supporters, Harris icily stared down hecklers i
 
 ### The Trump team begins its counter-attack
 
-Trump’s team, meanwhile, tipped its hand on how it plans to halt Harris’ momentum and discredit her new sidekick, whom she delights in highlighting as a coach, a veteran and an archetypal midwestern dad.
+Trump’s team, meanwhile, tipped its hand on how it plans to halt Harris’ momentum and discredit her new sidekick, whom she delights in highlighting as a coach, a veteran and an archetypal Midwestern dad.
 
 The former president has struggled to find a way to respond to the sudden change in his opponent after President Joe Biden bowed to Democratic fears that he was too old to serve a second term. Trump’s claims that Harris is not really Black and his deliberate mangling of her name in juvenile social media posts as “Kamabla” only underscore how he seems adrift.
+
+The Republican nominee will make a new attempt to reset the narrative of the race and to interrupt Harris’ strong start on Thursday. He announced on Truth Social that he’ll hold a press conference at Mar-A-Lago at 2 p.m. ET.
 
 Trump on Wednesday called into his safe space on Fox News from his Florida club to claim he was “thrilled” that Harris had chosen Walz, billing the Democratic team as radical and too far left for America. “This is a ticket that would want this country to go communist immediately, if not sooner,” Trump said. His attacks, however, were mostly unfocused and of only limited effectiveness as he again failed to spell out a clear and concise case against his rival.
 
@@ -33,6 +35,8 @@ Harris showed in the same western Wisconsin city that she understands that the e
 In another front of its emerging offensive against Harris, the Trump campaign cranked up pressure on the vice president to do a major media interview, apparently hoping to goad her into a forum in which she’s historically been more vulnerable than when delivering scripted speeches.
 
 “I think it’s really disgraceful, both for Kamala Harris but also for a lot of the American media that participates in this stuff, to have a person who has been the presumptive nominee of the Democrat Party for 17 days and refuses to take a single question from the American media,” Vance said in Wisconsin.
+
+In this light, Trump’s pledge to hold a news conference on Thursday looks like an attempt to create a contrast with the vice president.
 
 Harris, especially early in her vice presidency, sometimes waffled in interviews and unscripted moments, and the Trump campaign clearly sees this as a potential way to slow her strong start. But with the Democratic National Convention looming in less than two weeks, there seems little incentive yet for the Harris camp to take any risks, especially since Democrats can argue for now at least that the vice president has been spending her time frantically building a new campaign and hurriedly seeking a running mate. But such a position will be hardly sustainable in the longer term, and Harris will come under pressure to demonstrate she’s qualified to serve as president – especially amid increasing challenges to American power abroad.
 

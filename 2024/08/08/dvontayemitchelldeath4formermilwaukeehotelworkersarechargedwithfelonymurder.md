@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell death: 4 former Milwaukee hotel workers are charged with felony murder
 
-Published :`2024-08-08 12:29:56`
+Published :`2024-08-08 12:56:50`
 
 ---
 
@@ -11,6 +11,8 @@ The charges relate to the June 30 death of 43-year-old D’Vontaye Mitchell, who
 Security manager Todd Alan Erickson, front desk agent Devin W. Johnson-Carson, security guard Brandon LaDaniel Turner and bellman Herbert T. Williamson are the defendants, court documents show.
 
 Erickson turned himself in Wednesday, according to court records. CNN has reached out to his attorney for comment.
+
+Johnson-Carson was booked on Thursday, according to jail records.
 
 CNN has also sought comment from the other workers and reached out to prosecutors to see whether they have attorneys.
 
@@ -84,7 +86,7 @@ It’s unclear how long it took police officers to arrive on the scene and what 
 
 This story has been updated with additional information.
 
-CNN’s Rebekah Riess, Emma Tucker, Ray Sanchez and Alisha Ebrahimji contributed to this report.
+CNN’s Rebekah Riess, Emma Tucker, Ray Sanchez, Alisha Ebrahimji and Amy Simonson contributed to this report.
 
 ---
 

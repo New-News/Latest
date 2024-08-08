@@ -1,20 +1,18 @@
 # Alleged Taylor Swift terror plot fits a worrying trend as ISIS targets teens online
 
-Published :`2024-08-08 12:29:54`
+Published :`2024-08-08 12:56:48`
 
 ---
 
-The details emerging of the alleged terror plot aimed at Taylor Swift’s three Vienna concerts are scant, but already adhere to a chilling pattern familiar to European counterterrorism officials.
+What Austrian authorities have revealed about the alleged terror plot aimed at Taylor Swift’s three Vienna concerts adheres to a chilling pattern familiar to European counterterrorism officials.
 
-Austrian police said Wednesday that a 19-year-old man was arrested in Ternitz, about an hour’s drive from where Swift was scheduled to perform Thursday, Friday and Saturday for an expected 65,000 fans each night at the Ernst Happel Stadium.
+The prime suspect is a 19-year-old who was arrested in Ternitz, about an hour’s drive from where Swift was scheduled to perform Thursday, Friday and Saturday for an expected 65,000 fans each night at the Ernst Happel Stadium.
 
-“Chemical substances” possibly linked to bomb-making were discovered in a search of the Austrian citizen’s home, police said, declaring that “specific preparatory measures have been undertaken” to target Swift’s concerts.
+The head of Austria’s domestic intelligence agency, Omar Haijawi-Pirchner, said the suspect’s aim was to “kill himself and a large number of people.” In a raid on the suspect’s home police found chemical explosives, detonators, ISIS propaganda, knives and machetes. He even had a blue light used by police to attach to their cars, which could have helped him drive to the busy scene.
 
-The search of the area around the home led to 60 households being evacuated, local media reported, with police adding it continued into the evening.
+Two other suspects are being questioned: a 17-year-old who recently broke up with his girlfriend and who worked for a company that provides services to the venue, and a 15-year-old boy who prosecutors are still determining if they were directly involved. All are Austrian citizens and have either Turkish, Croatian or North Macedonian backgrounds.
 
-A second suspect was arrested in Vienna that afternoon. Police did not give their age or gender, citing an ongoing investigation that appeared to be widening in scope. “Further detentions have also been carried out,” police said.
-
-Both suspects had been radicalized online, police said, adding the 19-year-old had sworn allegiance to ISIS’ new leader last month.
+The 19 and 17-year-old suspects had been radicalized online, police said, adding the 19-year-old had sworn allegiance to ISIS’ new leader last month.
 
 Police also alluded to the role of social media in both the radicalization of the suspects and alleged planning of the attacks.
 
@@ -63,6 +61,8 @@ A British security source told CNN the so-called “directed terror threat” ha
 European counter-terror officials are also struggling with a fast-morphing terror threat emerging from parts of the former Soviet Union, including Russia’s North Caucasus region and Central Asian states like Tajikistan.
 
 Last month, Austrian counter-terror police said they had detained eight men and a woman for fundraising for ISIS. Laptops, cash, fake passports and a vehicle were confiscated, and authorities said the suspects, originally from Chechnya in the Russian Federation, might have their Austrian residence permits revoked.
+
+This story has been updated with new information on the suspects.
 
 ---
 
