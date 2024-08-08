@@ -1,6 +1,6 @@
 # Delta passengers sue airline over refund refusals after CrowdStrike meltdown
 
-Published :`2024-08-08 22:14:20`
+Published :`2024-08-08 22:37:24`
 
 ---
 

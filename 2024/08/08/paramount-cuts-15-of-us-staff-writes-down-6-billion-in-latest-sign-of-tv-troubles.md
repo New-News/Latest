@@ -1,6 +1,6 @@
 # Paramount cuts 15% of US staff, writes down $6 billion in latest sign of TV troubles
 
-Published :`2024-08-08 22:14:17`
+Published :`2024-08-08 22:37:21`
 
 ---
 
@@ -25,6 +25,14 @@ In recent days, Axios announced it would lay off 10% of its staff, or around 50 
 “This is a painful but necessary move to tighten our strategic focus and shift investment to our core growth areas. We’re making some difficult changes to adapt fast to a rapidly changing media landscape,” Axios chief executive Jim VandeHei wrote in a memo to staff obtained by CNN, calling it “the most difficult moment for media in our lifetime.”
 
 Also this week, the venerable TV trade magazine Broadcasting+Cable, which was founded in 1931, announced it would shutter over what its parent company described as a “rapid transformation” of the industry.
+
+As profits in the television business have eroded away, Paramount has been hit particularly hard. The iconic company, which owns a slate of cable networks including Nickelodeon, Comedy Central and MTV, has seen its valuation plunge amid the turmoil, with shares of Paramount falling nearly 80% in the last five years.
+
+Still, there have been a few bright spots in recent days.
+
+Paramount said its streaming service Paramount+ posted a $26 million profit after losing $424 million during the same period last year and said it expects subscriber growth in the second half of the year.
+
+Warner Bros. Discovery reported its HBO, Max and Discovery+ streaming services added 3.6 million new subscribers in the latest quarter as it continues to expand around the world, for a total of 103.3 million global subscribers.
 
 ---
 

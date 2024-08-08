@@ -1,6 +1,6 @@
 # OpenAI worries people may become emotionally reliant on its new ChatGPT voice mode
 
-Published :`2024-08-08 22:14:17`
+Published :`2024-08-08 22:37:21`
 
 ---
 

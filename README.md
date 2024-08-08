@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-08 22:14:20`
+#### Latest Update : `2024-08-08 22:37:24`
 
 ## Latest News Grabbing 
 
 ---
+
+- [US, Qatar and Egypt call on Israel and Hamas to resume talks in Cairo in mid August](https://new-news.github.io/Latest/2024/08/08/us-qatar-and-egypt-call-on-israel-and-hamas-to-resume-talks-in-cairo-in-mid-august 'US, Qatar and Egypt call on Israel and Hamas to resume talks in Cairo in mid August')
 
 - [Trump and Harris agree to debate on ABC on September 10, network says](https://new-news.github.io/Latest/2024/08/08/trump-and-harris-agree-to-debate-on-abc-on-september-10-network-says 'Trump and Harris agree to debate on ABC on September 10, network says')
 
@@ -19,8 +21,6 @@
 - [OpenAI worries people may become emotionally reliant on its new ChatGPT voice mode](https://new-news.github.io/Latest/2024/08/08/openai-worries-people-may-become-emotionally-reliant-on-its-new-chatgpt-voice-mode 'OpenAI worries people may become emotionally reliant on its new ChatGPT voice mode')
 
 - [Childhood vaccinations will have prevented more than 500 million illnesses and 1 million deaths in US since 1994, CDC report says](https://new-news.github.io/Latest/2024/08/08/childhood-vaccinations-will-have-prevented-more-than-500-million-illnesses-and-1-million-deaths-in-us-since-1994-cdc-report-says 'Childhood vaccinations will have prevented more than 500 million illnesses and 1 million deaths in US since 1994, CDC report says')
-
-- [US, Qatar and Egypt call on Israel and Hamas to resume talks in Cairo in mid August](https://new-news.github.io/Latest/2024/08/08/us-qatar-and-egypt-call-on-israel-and-hamas-to-resume-talks-in-cairo-in-mid-august 'US, Qatar and Egypt call on Israel and Hamas to resume talks in Cairo in mid August')
 
 - [Debby weakens to a tropical depression, threatening more flooding and tornadoes in North Carolina](https://new-news.github.io/Latest/2024/08/08/debby-weakens-to-a-tropical-depression-threatening-more-flooding-and-tornadoes-in-north-carolina 'Debby weakens to a tropical depression, threatening more flooding and tornadoes in North Carolina')
 
