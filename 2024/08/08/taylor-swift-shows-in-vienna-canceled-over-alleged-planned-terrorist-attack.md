@@ -1,6 +1,6 @@
 # Taylor Swift shows in Vienna canceled over alleged planned terrorist attack
 
-Published :`2024-08-08 11:13:34`
+Published :`2024-08-08 11:37:03`
 
 ---
 
@@ -14,17 +14,23 @@ Swift was scheduled to play three shows in the European city from Thursday to Sa
 
 Swift’s official website also listed the concerts as canceled. CNN has reached out to her representatives for comment.
 
-Speaking at a press conference in the capital, police said a 19-year-old Austrian citizen, who they identified as a sympathizer of ISIS, was arrested Wednesday morning in Ternitz, lower Austria, while another arrest was made later in Vienna.
+International intelligence agencies helped Austrian authorities uncover the alleged plot, said the country’s Interior Minister Gerhard Karner, after police said the suspects were “radicalized by the internet.”
 
-The suspects had become “radicalized by the internet,” with the 19-year-old pledging his allegiance to ISIS’ leader in July, police said.
+Three teenage suspects – aged 19, 17 and 15 – were questioned in connection with the alleged terror plot, according to the country’s director general for public security.
 
-Later Wednesday, police said they had made “further detentions” but did not give a number or any other details.
+Those arrested were in contact with other individuals who knew about the plans, Franz Ruf said at a press conference in the capital.
 
-The suspects had undertaken “concrete preparatory measures” for a terrorist attack after police suspected explosives were stored at the home of the suspect in Ternitz, authorities said.
+The two older suspects had exhibited noticeable changes in behavior before their arrests.
 
-Police also said chemical substances were secured at the home of the 19-year-old and were being evaluated, the Associated Press reported.
+The 19-year-old quit his job on July 25, saying he had “something big” planned, Ruf said, adding that he planned to detonate a device in the perimeter of the concert venue. Meanwhile, the 17-year-old, who was arrested in Vienna on Wednesday afternoon, recently broken up with his girlfriend.
 
-“From the current standpoint of the investigation we assume that the target of the attack were events in the Vienna region,” police said.
+No-one else is being sought in direct connection with the plot, added Ruf.
+
+### Chemicals and explosive devices uncovered
+
+Austrian investigators unearthed chemicals at the house of the main suspect. Police earlier announced that suspects had taken “concrete preparatory measures” for a terror attack.
+
+Explosive devices and detonators were found at the home of the 19-year-old, as well as extensive ISIS propaganda material, 21,000 euros in counterfeit money, machetes, knives and anabolic steroids, Ruf said in the presser.
 
 In a post on X, Austrian Chancellor Karl Nehammer called the cancellation a “bitter disappointment for all fans in Austria” but said a tragedy had been prevented.
 
