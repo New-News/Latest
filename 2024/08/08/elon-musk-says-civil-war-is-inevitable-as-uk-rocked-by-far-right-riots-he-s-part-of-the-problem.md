@@ -1,6 +1,6 @@
 # Elon Musk says ‘civil war is inevitable’ as UK rocked by far-right riots. He’s part of the problem
 
-Published :`2024-08-08 11:37:10`
+Published :`2024-08-08 12:30:00`
 
 ---
 

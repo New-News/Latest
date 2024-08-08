@@ -1,6 +1,6 @@
 # Boeing’s new CEO is already making an overdue change his first day on the job
 
-Published :`2024-08-08 11:37:03`
+Published :`2024-08-08 12:29:53`
 
 ---
 
@@ -8,7 +8,11 @@ Today is Kelly Ortberg’s first day as CEO of Boeing. He’s already winning pr
 
 Ortberg has decided he will work out of Boeing’s offices in Seattle, which had been the company’s home for its first 85 years before it moved its corporate headquarters to Chicago in 2001.
 
-Boeing had no statement for why he decided to work 2,300 miles from the company’s current corporate offices in Arlington, Virginia. But his decision was confirmed by a person familiar with his plans.
+The new CEO said in a memo to staff Thursday that he decided to work 2,300 miles from the company’s current corporate offices in Arlington, Virginia, to help restore trust in the company’s commercial aircraft business.
+
+“Because what we do is complex, I firmly believe that we need to get closer to the production lines and development programs across the company,” Ortberg said in the letter. “I plan to be based in Seattle so that I can be close to the commercial airplane programs.”
+
+Ortberg said he’d be on the factory floor in Renton, Washington, Thursday, where the company makes its troubled 737 Max line of planes.
 
 Boeing critics say moving headquarters away from its factories in the Puget Sound area more than 20 years ago underscored the company’s focus on financial results instead of production processes.
 
@@ -29,6 +33,10 @@ In January a door plug blew off the side of an Alaska Airlines flight as it appr
 It faces a series of other federal probes, including one by the National Transportation Safety Board, which just concluded two days of public hearings on the Alaska Air incident. Boeing executives admitted there they still don’t know how the plane in the door plug blowout left Boeing’s Renton, Washington factory without the four bolts needed to keep the door plug in place.
 
 “We don’t know and neither do they, and that’s a problem,” NTSB Chair Jennifer Homendy told reporters during the hearing.
+
+Ortberg, in his letter, acknowledged Boeing needs to do better.
+
+“While we clearly have a lot of work to do in restoring trust, I’m confident that working together, we will return the company to be the industry leader we all expect,” he said.
 
 ---
 

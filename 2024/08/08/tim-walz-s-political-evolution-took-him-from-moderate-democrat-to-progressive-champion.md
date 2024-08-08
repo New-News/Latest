@@ -1,10 +1,10 @@
 # Tim Walz’s political evolution took him from moderate Democrat to progressive champion
 
-Published :`2024-08-08 11:37:04`
+Published :`2024-08-08 12:29:54`
 
 ---
 
-In 2023, Tim Walz declared time for bargaining, light cajoling and compromise was over.
+In 2023, Tim Walz declared the time for bargaining, light cajoling and compromise was over.
 
 After four years of divided government, Minnesota voters had handed Democrats control of the state House, Senate and, for Walz, reelection to the governor’s mansion. After the “enormous headwinds and complicated politics” of his first term in office, he argued his party had been given “a new mandate for action.”
 
