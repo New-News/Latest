@@ -1,6 +1,6 @@
 # Taylor Swift fans express heartbreak, fear and relief after terror threat stops shows
 
-Published :`2024-08-08 05:37:13`
+Published :`2024-08-08 06:22:23`
 
 ---
 
@@ -46,9 +46,9 @@ Still, he understood the decision, adding: “I would rather not go to a show th
 
 His close friends and brother were also supposed to be in Vienna, so he was glad for their safety, too. With no show to attend, they were now scrambling to change their plans, he said.
 
-Some fans came from as far away as China – with one Swiftie who had arrived in Belgium en route to Vienna venting their frustration on Chinese social media.
+Some fans came from as far away as China. Qin Lu, a student from eastern Zhejiang province who was making her first overseas trip, said she spent nearly $2,000 on travel and a concert ticket.
 
-“I get that safety comes first,” the fan said. “But after years of waiting, I was just three days away from meeting Taylor, and now it’s all canceled. I’m absolutely devastated.”
+“I was completely stunned when I first saw the news,” she said. “But now I feel lucky – safety has to come first, after all.”
 
 ---
 
