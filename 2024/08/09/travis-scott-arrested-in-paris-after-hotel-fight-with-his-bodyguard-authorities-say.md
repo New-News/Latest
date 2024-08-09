@@ -1,6 +1,6 @@
 # Travis Scott arrested in Paris after hotel fight with his bodyguard, authorities say
 
-Published :`2024-08-09 12:56:40`
+Published :`2024-08-09 13:20:23`
 
 ---
 

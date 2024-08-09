@@ -1,6 +1,6 @@
 # California governor tells local officials to reduce homelessness or he will cut funds
 
-Published :`2024-08-09 12:56:41`
+Published :`2024-08-09 13:20:24`
 
 ---
 

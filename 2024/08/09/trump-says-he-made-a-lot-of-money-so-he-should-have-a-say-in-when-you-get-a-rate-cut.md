@@ -1,6 +1,6 @@
 # Trump says he ‘made a lot of money’ so he should have a say in when you get a rate cut
 
-Published :`2024-08-09 12:56:40`
+Published :`2024-08-09 13:20:24`
 
 ---
 

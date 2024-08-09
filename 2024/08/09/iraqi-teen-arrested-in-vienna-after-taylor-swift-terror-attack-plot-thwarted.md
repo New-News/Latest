@@ -1,6 +1,6 @@
 # Iraqi teen arrested in Vienna after Taylor Swift terror attack plot thwarted
 
-Published :`2024-08-09 12:56:40`
+Published :`2024-08-09 13:20:23`
 
 ---
 

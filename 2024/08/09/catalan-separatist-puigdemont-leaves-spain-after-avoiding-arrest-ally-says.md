@@ -1,6 +1,6 @@
 # Catalan separatist Puigdemont leaves Spain after avoiding arrest, ally says
 
-Published :`2024-08-09 12:56:40`
+Published :`2024-08-09 13:20:23`
 
 ---
 
