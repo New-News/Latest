@@ -1,6 +1,6 @@
 # 3 Columbia deans resign after being removed earlier this summer for ‘very troubling’ antisemitic text messages
 
-Published :`2024-08-09 05:15:23`
+Published :`2024-08-09 05:37:18`
 
 ---
 

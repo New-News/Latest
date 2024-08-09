@@ -1,6 +1,6 @@
 # Deadlier strain of mpox spreads to more countries, raising officials’ alarm
 
-Published :`2024-08-09 05:15:26`
+Published :`2024-08-09 05:37:21`
 
 ---
 
