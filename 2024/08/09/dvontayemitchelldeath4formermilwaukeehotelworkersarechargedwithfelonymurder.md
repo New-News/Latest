@@ -1,6 +1,6 @@
 # D’Vontaye Mitchell death: 4 former Milwaukee hotel workers are charged with felony murder
 
-Published :`2024-08-09 01:10:17`
+Published :`2024-08-09 02:25:10`
 
 ---
 
@@ -12,9 +12,11 @@ Security manager Todd Alan Erickson, front desk agent Devin W. Johnson-Carson, 
 
 Erickson turned himself in Wednesday and made his first court appearance Thursday, according to court records. He was held on a $50,000 bond, and a preliminary hearing is set for August 19, the records show. CNN has reached out to his attorney for comment.
 
+Turned turned himself in Thursday and made his first court appearance later that morning, according to court records. He was held on a $30,000 bond, the records show, and a preliminary hearing is set for August 19. Turner’s attorney, Matt Last, expressed disappointment in the decision to charge Turner. “However, we are confident he will be cleared of any wrongdoing,” Last said.
+
 Johnson-Carson was booked on Thursday, according to jail records.
 
-CNN has also sought comment from the other workers and reached out to prosecutors to see whether they have attorneys.
+CNN has also sought comment from Johnson-Carson and Williamson, and reached out to prosecutors to see whether they have attorneys.
 
 After Hyatt called for the employees involved in the incident with Mitchell to be terminated and criminally charged, Aimbridge Hospitality, which operates the hotel, announced it had fired several associates. Aimbridge terminated the four people charged in Mitchell’s death, according to a source familiar with the situation.
 

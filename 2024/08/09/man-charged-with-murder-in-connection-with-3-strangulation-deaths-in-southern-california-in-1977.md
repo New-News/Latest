@@ -1,6 +1,6 @@
 # Man charged with murder in connection with 3 strangulation deaths in Southern California in 1977
 
-Published :`2024-08-09 01:10:17`
+Published :`2024-08-09 02:25:11`
 
 ---
 

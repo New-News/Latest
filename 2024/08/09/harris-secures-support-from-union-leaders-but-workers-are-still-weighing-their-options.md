@@ -1,6 +1,6 @@
 # Harris secures support from union leaders. But workers are still weighing their options.
 
-Published :`2024-08-09 01:10:17`
+Published :`2024-08-09 02:25:10`
 
 ---
 
@@ -49,6 +49,8 @@ And some of that anger remains. A Facebook post by IBEW promoting Walz joining
 Labor groups conduct their own internal polling to gauge the views of their members and what messages will be most effective. Those polls may show a more fractured base than the near-unanimous endorsements would suggest.
 
 “I expect some data toward the end of the month, especially after the (Democratic National) Convention,” Regan of the AFL-CIO told CNN. “It will be really interesting to see.”
+
+Fain projected confidence later Thursday during an interview with CNN’s Erica Hill, insisting that an “overwhelming majority” of union members will vote for Harris and Walz in November.
 
 ### Teamsters’ decision looms
 
