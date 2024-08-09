@@ -1,6 +1,6 @@
 # Video shows bodies on burnt-out Russian trucks in Kursk region as Ukrainian cross-border assaults rage
 
-Published :`2024-08-09 16:40:35`
+Published :`2024-08-09 17:14:19`
 
 ---
 

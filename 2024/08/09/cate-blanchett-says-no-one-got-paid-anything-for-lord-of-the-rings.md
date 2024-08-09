@@ -1,6 +1,6 @@
 # Cate Blanchett says ‘no one got paid anything’ for ‘Lord of the Rings’
 
-Published :`2024-08-09 16:40:38`
+Published :`2024-08-09 17:14:22`
 
 ---
 

@@ -1,6 +1,6 @@
 # Europe was on the brink of a night train revolution. Here’s what actually happened
 
-Published :`2024-08-09 16:40:35`
+Published :`2024-08-09 17:14:19`
 
 ---
 

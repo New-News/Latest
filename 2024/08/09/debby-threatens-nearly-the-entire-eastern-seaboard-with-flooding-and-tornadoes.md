@@ -1,20 +1,22 @@
 # Debby threatens nearly the entire eastern seaboard with flooding and tornadoes
 
-Published :`2024-08-09 16:40:35`
+Published :`2024-08-09 17:14:18`
 
 ---
 
-Debby’s heavy rain, flooding and tornado threats spanned hundreds of miles of the eastern United States Friday as it raced north toward the Northeast.
+Debby’s heavy rain, flooding and tornado threats spanned hundreds of miles of the eastern United States Friday as it raced north through the Northeast.
 
-Debby lost its tropical status Friday morning but was still a potent storm, triggering tornado and flood warnings for Washington, DC, and a flash flood emergency and water rescues in South Carolina.
+Debby lost its tropical status Friday morning but was still a potent storm, triggering tornado and flood warnings for Washington, DC, and rare flash flood emergencies in three states.
 
-The system had sustained winds of 35 mph with stronger gusts Friday morning and was racing through the Northeast after hovering over the Carolinas for days, creating dangerous flood conditions.
+The system had sustained winds of 35 mph with stronger gusts late Friday morning and was racing through the Northeast after hovering over the Carolinas for days, creating dangerous flood conditions.
 
 Track the storm: Debby’s path
 
 At least seven people have died in the Southeast since Debby crashed into Florida as a Category 1 storm on Monday. Its torrential downpours and heavy winds have shredded homes, flooded neighborhoods and trapped people in cars, homes and boats – and sweltering heat across the region this weekend could make recovery efforts more difficult.
 
 Here’s the latest:
+
+• Three flash flood emergencies at once: Debby’s torrential rainfall triggered life-threatening flooding situations at the Pennsylvania-New York border Friday afternoon. A flash flood emergency, the most severe flood alert, was issued for southern New York’s Steuben County and another was issued shortly after for the nearby cities of Whitesville and Andover. Another was issued in the northern Pennsylvania town of Westfield. All of these areas were dealing with dangerous flooding, according to the National Weather Service.
 
 • Tornado and flash flood warnings for DC: Several tornado warnings were issued for the Washington, DC, area including one near Reagan National Airport just after 8:20 a.m. The warning was cancelled less than 20 minutes later, but underscored how quickly Debby’s threats ramp up. Multiple flash flood warnings were issued for the greater area with rain falling at extreme rates of more than 1 inch every 20 minutes. Torrential rain quickly ponded on roadways and caused issues for public transportation in the area. Multiple lines of the district’s Metrorail service were experiencing delays due to flooding.
 
