@@ -1,6 +1,6 @@
 # Childhood vaccinations will have prevented more than 500 million illnesses and 1 million deaths in US since 1994, CDC report says
 
-Published :`2024-08-09 13:20:25`
+Published :`2024-08-09 13:36:09`
 
 ---
 

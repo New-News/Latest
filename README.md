@@ -1,10 +1,12 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-09 13:20:27`
+#### Latest Update : `2024-08-09 13:36:14`
 
 ## Latest News Grabbing 
 
 ---
+
+- [Debby threatens nearly the entire eastern seaboard with flooding and tornadoes](https://new-news.github.io/Latest/2024/08/09/debby-threatens-nearly-the-entire-eastern-seaboard-with-flooding-and-tornadoes 'Debby threatens nearly the entire eastern seaboard with flooding and tornadoes')
 
 - [Tourist is caught carving initials into 2,000-year-old home at Pompeii](https://new-news.github.io/Latest/2024/08/09/tourist-is-caught-carving-initials-into-2-000-year-old-home-at-pompeii 'Tourist is caught carving initials into 2,000-year-old home at Pompeii')
 
@@ -15,8 +17,6 @@
 - [Ancient pot of gold unearthed in Turkey hints at ‘gravest misfortune,’ researchers say](https://new-news.github.io/Latest/2024/08/09/ancient-pot-of-gold-unearthed-in-turkey-hints-at-gravest-misfortune--researchers-say 'Ancient pot of gold unearthed in Turkey hints at ‘gravest misfortune,’ researchers say')
 
 - [Travis Scott arrested in Paris after hotel fight with his bodyguard, authorities say](https://new-news.github.io/Latest/2024/08/09/travis-scott-arrested-in-paris-after-hotel-fight-with-his-bodyguard-authorities-say 'Travis Scott arrested in Paris after hotel fight with his bodyguard, authorities say')
-
-- [Debby threatens nearly the entire eastern seaboard with flooding and tornadoes](https://new-news.github.io/Latest/2024/08/09/debby-threatens-nearly-the-entire-eastern-seaboard-with-flooding-and-tornadoes 'Debby threatens nearly the entire eastern seaboard with flooding and tornadoes')
 
 - [Prompted by mass shooting, 72-hour wait period and other new gun laws go into effect in Maine](https://new-news.github.io/Latest/2024/08/09/prompted-by-mass-shooting-72-hour-wait-period-and-other-new-gun-laws-go-into-effect-in-maine 'Prompted by mass shooting, 72-hour wait period and other new gun laws go into effect in Maine')
 

@@ -1,6 +1,6 @@
 # Debby threatens nearly the entire eastern seaboard with flooding and tornadoes
 
-Published :`2024-08-09 13:20:23`
+Published :`2024-08-09 13:36:05`
 
 ---
 
@@ -16,7 +16,7 @@ At least seven people have died in the Southeast since Debby crashed into Florid
 
 Here’s the latest:
 
-• Tornado and flash flood warnings for DC: A tornado warning was issued for Washington, DC, near Reagan National Airport just after 8:20 a.m. Multiple flash flood warnings were issued for the greater area with rain falling at extreme rates of more than 1 inch every 20 minutes.
+• Tornado and flash flood warnings for DC: Several tornado warnings were issued for the Washington, DC, area including one near Reagan National Airport just after 8:20 a.m. The warning was cancelled less than 20 minutes later, but underscored how quickly Debby’s threats ramp up. Multiple flash flood warnings were issued for the greater area with rain falling at extreme rates of more than 1 inch every 20 minutes. Torrential rain quickly ponded on roadways and caused issues for public transportation in the area. Multiple lines of the district’s Metrorail service were experiencing delays due to flooding.
 
 • Water rescues and a flood emergency: Debby fed gushing rain over parts of South Carolina overnight, prompting dozens of water rescues north of Charleston, according to local officials. At least 26 water rescues occurred in Berkeley County as of Friday morning, emergency management spokesperson Jenna-Lee Walls told CNN. Most were around Moncks Corner, about 30 miles north of Charleston, where a rare flash flood emergency was issued. The area received almost 9 inches of rain in six hours, with 2 to 3 feet of fast-moving water on roads, the National Weather Service said. No serious injuries were reported. Roadways in and around the area remained seriously flooded Friday morning.
 
