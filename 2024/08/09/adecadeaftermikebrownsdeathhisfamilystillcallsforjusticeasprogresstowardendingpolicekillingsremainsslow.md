@@ -1,6 +1,6 @@
 # A decade after Mike Brown’s death, his family still calls for justice as progress toward ending police killings remains slow
 
-Published :`2024-08-09 11:36:17`
+Published :`2024-08-09 12:29:44`
 
 ---
 
@@ -26,7 +26,7 @@ The march is meant to be a call to action to continue the fight against police e
 
 ### Say their names
 
-Before Michael Brown, there was Eric Garner. And before Eric there was Trayvon Martin. Each name is added to an inauspicious roll call of the Black men and women killed at the hands of police that stretches back generations.
+Before Michael Brown, there was Eric Garner. Each name is added to an inauspicious roll call of the Black men and women killed at the hands of police that stretches back generations.
 
 Sonya Massey’s name was added to that list in July. She’s among the more than 1,100 people who have been shot and killed by police in the last 12 months alone, according to a database of fatal police encounters created and maintained by the Washington Post.
 

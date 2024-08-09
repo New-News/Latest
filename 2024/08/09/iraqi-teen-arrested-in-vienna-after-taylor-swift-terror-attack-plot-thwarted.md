@@ -1,6 +1,6 @@
 # Iraqi teen arrested in Vienna after Taylor Swift terror attack plot thwarted
 
-Published :`2024-08-09 11:36:17`
+Published :`2024-08-09 12:29:44`
 
 ---
 
@@ -20,9 +20,9 @@ The two primary suspects, the 19-year-old and a 17-year-old, are in pre-trial de
 
 The 19-year-old suspect quit his job on July 25, saying he had “something big planned” and that he planned to detonate a device within the concert venue, Franz Ruf, Austria’s director general for public security, said Thursday.
 
-Explosive devices and detonators were found at the home of the 19-year-old, as well as extensive ISIS propaganda material, 21,000 euros in counterfeit money, machetes, knives and anabolic steroids, Ruf said.
+Explosive devices and detonators were found at the home of the 19-year-old, as well as extensive ISIS propaganda material, 21,000 euros in counterfeit money, machetes, knives and anabolic steroids, Ruf said. The 17-year-old had recently broken up with his girlfriend.
 
-Meanwhile, the 17-year-old had recently broken up with his girlfriend.
+A 15-year-old was also held and question but has since been released.
 
 ### Fans ‘heartbroken’
 

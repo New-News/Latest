@@ -1,6 +1,6 @@
 # Elon Musk’s X just sued a nonprofit advertising group out of existence
 
-Published :`2024-08-09 11:36:16`
+Published :`2024-08-09 12:29:44`
 
 ---
 
@@ -8,11 +8,11 @@ A major ad industry group is shutting down, days after Elon Musk-owned X filed a
 
 “GARM is a small, not-for-profit initiative, and recent allegations that unfortunately misconstrue its purpose and activities have caused a distraction and significantly drained its resources and finances,” the group said in a statement Friday. “GARM therefore is making the difficult decision to discontinue its activities.”
 
-The group, Global Alliance for Responsible Media, also known as GARM, is a voluntary ad-industry initiative run by the World Federation of Advertisers that aims to help brands avoid having their advertisements appear alongside illegal or harmful content.
+The group, Global Alliance for Responsible Media, also known as GARM, is a voluntary ad-industry initiative run by the World Federation of Advertisers that aims to help brands avoid having their advertisements appear alongside illegal or harmful content. GARM confirmed it is still planning to defend itself in court.
 
 The end of GARM marks a temporary victory for Musk and X CEO Linda Yaccarino, even though a judge hasn’t made a ruling yet.
 
-“No small group should be able to monopolize what gets monetized. This is an important acknowledgement (sic) and a necessary step in the right direction. I am hopeful that it means ecosystem-wide reform is coming,” Yaccarino posted on X Thursday.
+“No small group should be able to monopolize what gets monetized. This is an important acknowledgement and a necessary step in the right direction. I am hopeful that it means ecosystem-wide reform is coming,” Yaccarino posted on X Thursday.
 
 However, the lawsuit could drive away even more advertisers from X, Nandini Jammi and Claire Atkin, founders of watchdog group Check My Ads Institute wrote in an op-ed Thursday. “Everyone can see that advertising on X is a treacherous business relationship for advertisers,” they said.
 

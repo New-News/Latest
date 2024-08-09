@@ -1,6 +1,6 @@
 # Cate Blanchett wears top made of 102 spoons on the red carpet
 
-Published :`2024-08-09 11:36:22`
+Published :`2024-08-09 12:29:46`
 
 ---
 

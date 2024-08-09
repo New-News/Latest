@@ -1,6 +1,6 @@
 # Mortgage rates plunge to lowest level in more than a year
 
-Published :`2024-08-09 11:36:22`
+Published :`2024-08-09 12:29:46`
 
 ---
 

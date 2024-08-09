@@ -1,6 +1,6 @@
 # Mediators urge Israel and Hamas to accept ‘final’ proposal on ceasefire deal as threat of Iran attack looms
 
-Published :`2024-08-09 11:36:17`
+Published :`2024-08-09 12:29:44`
 
 ---
 
