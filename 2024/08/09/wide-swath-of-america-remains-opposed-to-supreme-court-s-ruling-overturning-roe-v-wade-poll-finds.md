@@ -1,6 +1,6 @@
 # Wide swath of America remains opposed to Supreme Court’s ruling overturning Roe v. Wade, poll finds
 
-Published :`2024-08-09 06:42:24`
+Published :`2024-08-09 07:14:12`
 
 ---
 

@@ -1,6 +1,6 @@
 # Biden’s team lays out four-pillar strategy for lame duck six months
 
-Published :`2024-08-09 06:42:27`
+Published :`2024-08-09 07:14:14`
 
 ---
 

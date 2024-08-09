@@ -1,6 +1,6 @@
 # Liza Minnelli is ‘mad as hell’ and writing new memoir
 
-Published :`2024-08-09 06:42:26`
+Published :`2024-08-09 07:14:14`
 
 ---
 
