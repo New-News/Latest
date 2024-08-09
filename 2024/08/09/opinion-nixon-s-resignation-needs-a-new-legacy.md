@@ -1,0 +1,34 @@
+# Opinion: Nixon’s resignation needs a new legacy
+
+Published :`2024-08-09 01:10:17`
+
+---
+
+On August 9, 1974, President Richard Nixon deviated from his usual health-conscious breakfast of wheat germ, cottage cheese and fruit and instead ordered up an unctuous spread of corned beef hash with a poached egg. Bleary-eyed from lack of sleep — he had spent the night calling old friends and fine-tuning his farewell speech — he decided to indulge one final time. Then he traded his fork for a pen and signed his last document as president, a one-line note that read, “I hereby resign the office of President of the United States.”
+
+After farewell remarks to his staff and an incongruous victory salute to the nation, he ducked into Marine One, then boarded Air Force One. The plane’s call sign changed somewhere over Missouri, signaling that the man aboard was no longer president.
+
+In resigning from the presidency 50 years ago this week, Nixon did more than make history — he created a template for presidential scandal that has stuck in the American mind. Corrupt deeds unfolding in secret and exposed by dogged journalists, “smoking-gun” evidence revealed in dramatic courtroom scenes, bipartisan agreement that the president must go. In the aftermath of Watergate, this became the framework for understanding presidential malfeasance — one that has left the country especially ill-equipped for the presidential wrongdoing that has followed.
+
+It’s easy for many to forget this, but Nixon’s resignation marked the end of a remarkable series of resignations in US politics. Under pressure from repeated investigations into his finances, Supreme Court Justice Abe Fortas resigned in 1969. Four years later, Vice President Spiro Agnew submitted his letter of resignation before heading to a Baltimore courthouse to plead no contest to felony tax evasion. Nixon stepped down less than a year later.
+
+This trio of high-profile resignations seemed to signal a new age of accountability — and a new model for how that accountability was supposed to work. Once their bad deeds had been revealed and their support had disappeared, corrupt officials would bow to public pressure and voluntarily step down, with the threat of impeachment and even incarceration hastening their departures.
+
+But what became the Watergate model should be better understood as the Watergate exception. A decade after Nixon’s resignation, another major scandal was brewing in the White House, as President Ronald Reagan’s administration began a series of secret arms deals in violation of their own embargo, funneling the proceeds to the contras in Nicaragua despite an explicit ban enacted by Congress. As the Iran-Contra scheme came to light, one of its architects, Oliver North, jammed his office shredders trying to destroy as much evidence as possible.
+
+North admitted some of his crimes in front of Congress in nationally televised hearings. An independent counsel appointed ultimately indicted 14 people, including Reagan’s Secretary of Defense, two of his National Security Advisors, and an Assistant Secretary of State, securing 11 convictions. But Iran-Contra is not a story of accountability: neither Reagan nor his successor were fully investigated, and President George H.W. Bush issued a series of pardons at the end of his presidency to six Iran-Contra conspirators, including some still awaiting trial. North would go on to have a long career in right-wing activism, including a talk radio show where he regularly “shredded” callers he disagreed with. Destruction of evidence had become a punchline.
+
+In the 1990s, the tools of accountability that seemed so valuable post-Watergate — especially impeachment and the independent counsel — became weapons against Democratic President Bill Clinton. Despite investigations into Clinton’s financial dealings that went nowhere, leading Republicans found the tools of accountability to be useful cudgels against a president they were determined to remove from office. Clinton survived the investigation and impeachment, but the legitimacy of both impeachment and the independent counsel role were badly damaged.
+
+Yet even as the tools of accountability weakened, Americans’ attachment to the Watergate model remained strong. When Donald Trump became president, references to Nixon and Watergate abounded. And those Americans who sensed early on Trump’s propensity for criminality remained alert for the signs: the exposé, the smoking gun, the bipartisan opposition.
+
+But even before Trump entered office there were signs that the Watergate model wouldn’t hold. The release of the Access Hollywood tape — a secret recording, smoking-gun evidence of Trump’s attitude toward sexual assault, condemnations that crossed party lines. But Trump did not step aside and the party, remaining faithful, ultimately rallied around him, growing only more devoted after he won the presidency. So it should have come as no surprise that he relied on the same dynamics when he was accused of abuses of power while in office. Though both the Ukraine scandal and the insurrection had all the ingredients necessary for Watergate-style accountability, neither impeachment effort forced him out of office, and Republicans remained slavishly loyal to him.
+
+Trump, however, was not the person who broke the system of accountability established by Nixon’s resignation. He was the beneficiary of a generation of right-wing activists who worked steadily to ensure that such a system wouldn’t work the next time around.   Which is why, on the 50th anniversary of Nixon’s resignation, the best thing to do would be to embrace Watergate-era accountability as the exception, and do the hard work of building new systems of political accountability to serve Americans in the future.
+
+That work will require creativity. There were, after all, a raft of new laws put in place after Watergate to provide more accountability for government officials. But since the immediate aftermath of Watergate, there have also been concerted efforts to weaken those channels of accountability; consider, for instance, the expansion of forms of qualified immunity for police and other government agents, the end of the independent counsel statute, the dramatic narrowing of the definition of bribery and now most recently, the creation of broad immunity from criminal prosecution for presidents.
+
+These examples spotlight our current reality, where a special class of government officers can exist largely beyond the reach of accountability — a perverse inversion of the idea of equality before the law. As US voters confront an upcoming election and seek to build American institutions suitable for a multiracial democracy, a new vision of accountability must be a key part of the process.  To get there, Americans must redefine their understanding of Nixon’s resignation and the legacy it did – and did not – leave for the country he governed.
+
+---
+

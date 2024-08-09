@@ -1,0 +1,18 @@
+# Warner Bros. Discovery signals rapid deterioration of television business, sending stock plummeting
+
+Published :`2024-08-09 01:10:18`
+
+---
+
+David Zaslav had a particularly tough day. The Warner Bros. Discovery boss watched Wednesday afternoon as his company’s already anemic stock price plummeted more than 10% in after-hours trading, hitting a dangerous new low of $6.90 after the company reported second quarter earnings. The selloff occurred after WBD posted a $9.1 billion write down on its troubled network assets. It’s a reflection of how quickly the traditional television business is deteriorating and imperiling companies such as WBD, which rely on linear channels for the bulk of their revenue. WBD owns some of the most recognizable cable channels, including CNN, HGTV, TNT, and TBS— all of which have seen worrisome audience decays as cord-cutting slices overall viewership and household reach. For WBD, the rapid decline of the legacy business has been compounded in recent weeks by its very public breakup-turned-legal battle with the NBA — its partner of four decades — after the media giant attempted to use its matching rights to snag Amazon’s newly acquired $1.8 billion per year package of games.
+
+The one bright spot in the legacy television business has been live sports programming, which continues to draw high viewership even as cable cancelations mount. WBD, which is now suing the NBA over its divorce, acknowledged on Wednesday that the potential loss of games starting with the 2025-26 season will have a financial impact on the company.  “The goodwill impairment was triggered in response to the difference between market capitalization and book value, continued softness in the U.S. linear advertising market, and uncertainty related to affiliate and sports rights renewals, including the NBA,” WBD said in its financial summary.  To be fair, WBD is not the only once-high flying legacy media behemoth struggling to find its footing in a shifting landscape upended by the Netflixrevolution. Paramount Global, a one-time titan, has stumbled and found enormous difficulty reorienting its business around streaming. The Shari Redstone-led company, which struck a merger deal last month with David Ellison’s Skydance, has lost 27% of its value this year.  Speaking candidly to investors on the company’s earnings call Wednesday, Zaslav acknowledged the dire reality of the television business.  “It’s fair to say that even two years ago, market valuations and prevailing conditions for legacy media companies were quite different than they are today,” Zaslav said. “And this impairment acknowledges this.”
+
+Zaslav did talk up other parts of the WBD business, describing the company’s Max streaming platform as “doing very, very well” with “tremendous upside.” But even as he offered the warm sentiment, Zaslav conceded the cold reality of “tough conditions in the legacy business.”
+
+The hole WBD now finds itself in has led to enormous chatter that the company will be forced to sell off some of its assets. During Wednesday’s earnings call, chief financial officer Gunnar Wiedenfels said management is “very well aware” of its “responsibility to have a view on whatever strategic options are out there.”  “We’re very clearly focused on evaluating beyond just running the operational business,” Wiedenfels said. “So we’ve said before, you shouldn’t be surprised to see us engaging in whatever M&A processes are going on out there. You shouldn’t be surprised to see us engaging in partnership discussions.”
+
+That said, WBD has shown a reluctance to sell any of its major assets. And whether it can get out of the corner it finds itself in without taking such a step may prove to be difficult.
+
+---
+
