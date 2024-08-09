@@ -1,6 +1,6 @@
 # Smartmatic executives charged by Justice Department in alleged Philippines bribery scheme
 
-Published :`2024-08-09 16:19:07`
+Published :`2024-08-09 16:40:34`
 
 ---
 
@@ -18,7 +18,13 @@ The company added, “No voter fraud has been alleged and Smartmatic is not indi
 
 Even though the charges aren’t about the 2020 election, the new indictment is already making waves in the ongoing lawsuits that Smartmatic brought against conservative outlets that promoted the lie that its software rigged the 2020 US election.
 
-Fox News and Newsmax are facing defamation lawsuits from Smartmatic. Fox declined to comment and Newsmax did not immediately respond to an inquiry.
+Fox News and Newsmax are facing defamation lawsuits from Smartmatic. Fox declined to comment. In a statement Friday, Newsmax said the allegations in the indictment were “simply shocking” and would help its defense against Smartmatic’s defamation case.
+
+“While Mr. Piñate is presumed innocent, media reports from before the 2020 election make clear that Smartmatic has a long, troubling, and questionable history,” the statement said. “Alleged corruption anywhere undermines public confidence in elections and democracy everywhere.”
+
+The far-right network OAN, which in April settled a defamation suit brought by Smartmatic, said in a statement that the indictment raises two key points.
+
+“The press has a right to report the allegations without fear of having to prove their truth at some later time in a defamation suit – but the Smartmatic officials have the right to the presumption of innocence until all the facts are determined and prove otherwise,” the statement said.
 
 Both Fox News and Newsmax deny defaming anyone and maintain that the First Amendment protected their 2020 coverage, when they gave airtime to allies of then-President Donald Trump who falsely claimed that Smartmatic and another voting company manipulated the results.
 
@@ -29,6 +35,8 @@ Lawyers for Fox News and Newsmax have argued that any criminal prosecution again
 Smartmatic’s foreign work, including past activities in Venezuela and the Philippines saga, has long been seen as a vulnerability that could weaken its defamation cases in the US.
 
 The Newsmax-Smartmatic trial is scheduled for next month in Delaware state court, unless there is an outside settlement.
+
+This story has been updated with additional comment.
 
 ---
 

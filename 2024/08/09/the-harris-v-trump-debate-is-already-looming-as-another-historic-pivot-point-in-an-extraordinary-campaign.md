@@ -1,6 +1,6 @@
 # The Harris v. Trump debate is already looming as another historic pivot point in an extraordinary campaign
 
-Published :`2024-08-09 16:19:07`
+Published :`2024-08-09 16:40:35`
 
 ---
 

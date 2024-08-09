@@ -1,6 +1,6 @@
 # Former House Speaker Nancy Pelosi says she still hasn’t spoken to President Biden: ‘He knows I love him’
 
-Published :`2024-08-09 16:19:09`
+Published :`2024-08-09 16:40:36`
 
 ---
 
