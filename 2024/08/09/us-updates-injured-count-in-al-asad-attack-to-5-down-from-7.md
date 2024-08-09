@@ -1,6 +1,6 @@
 # US updates injured count in Al Asad attack to 5, down from 7
 
-Published :`2024-08-09 03:17:26`
+Published :`2024-08-09 03:37:34`
 
 ---
 

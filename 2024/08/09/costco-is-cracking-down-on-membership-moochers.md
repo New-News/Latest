@@ -1,6 +1,6 @@
 # Costco is cracking down on membership moochers
 
-Published :`2024-08-09 03:17:29`
+Published :`2024-08-09 03:37:37`
 
 ---
 

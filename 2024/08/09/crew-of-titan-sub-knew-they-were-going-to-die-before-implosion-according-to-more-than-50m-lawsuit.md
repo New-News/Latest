@@ -1,6 +1,6 @@
 # Crew of Titan sub knew they were going to die before implosion, according to more than $50M lawsuit
 
-Published :`2024-08-09 03:17:27`
+Published :`2024-08-09 03:37:34`
 
 ---
 

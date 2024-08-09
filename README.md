@@ -1,16 +1,16 @@
 # New News Grabber 
 
-#### Latest Update : `2024-08-09 03:17:30`
+#### Latest Update : `2024-08-09 03:37:38`
 
 ## Latest News Grabbing 
 
 ---
 
+- [CrossFit Games athlete dies during competition at Texas lake](https://new-news.github.io/Latest/2024/08/09/crossfit-games-athlete-dies-during-competition-at-texas-lake 'CrossFit Games athlete dies during competition at Texas lake')
+
 - [Trump said he ‘went down’ in helicopter ‘emergency landing’ with former San Francisco mayor, who says it never happened](https://new-news.github.io/Latest/2024/08/09/trump said-he-went-down-in helicopter-emergency-landing-with-former-san-francisco-mayor-who-says-it-never-happened 'Trump said he ‘went down’ in helicopter ‘emergency landing’ with former San Francisco mayor, who says it never happened')
 
 - [‘Furious battles are underway’: Kursk residents call on Putin for help after Ukrainian incursion](https://new-news.github.io/Latest/2024/08/09/furious-battles-are-underway--kursk-residents-call-on-putin-for-help-after-ukrainian-incursion '‘Furious battles are underway’: Kursk residents call on Putin for help after Ukrainian incursion')
-
-- [CrossFit Games athlete dies during competition at Texas lake](https://new-news.github.io/Latest/2024/08/09/crossfit-games-athlete-dies-during-competition-at-texas-lake 'CrossFit Games athlete dies during competition at Texas lake')
 
 - [Harris secures support from union leaders. But workers are still weighing their options.](https://new-news.github.io/Latest/2024/08/09/harris-secures-support-from-union-leaders-but-workers-are-still-weighing-their-options 'Harris secures support from union leaders. But workers are still weighing their options.')
 

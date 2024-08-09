@@ -1,12 +1,12 @@
 # CrossFit Games athlete dies during competition at Texas lake
 
-Published :`2024-08-09 03:17:25`
+Published :`2024-08-09 03:37:33`
 
 ---
 
 An athlete died Thursday during a swimming competition in a Texas lake on the first day of CrossFit Games – a multiday event that attracts global athletes widely regarded as being among the fittest people in the world.
 
-The athlete who died was Serbia native Lakar Dukic, 28, according to records from the Tarrant County medical examiner’s office. A cause of death was not listed as of Thursday afternoon.
+The athlete was Serbia native Lakar Dukic, 28, according to records from the Tarrant County medical examiner’s office. A cause of death was not listed as of Thursday afternoon.
 
 Police stationed at the event in Fort Worth received a call just before 7 a.m. about a competitor who “was last seen in the water and … did not resurface,” and that person eventually was pronounced dead at the scene, Fort Worth police said.
 
