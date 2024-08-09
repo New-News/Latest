@@ -1,6 +1,6 @@
 # Razor-thin solar panels could be ‘ink-jetted’ onto your backpack or phone for cheap clean energy
 
-Published :`2024-08-09 12:29:44`
+Published :`2024-08-09 12:56:42`
 
 ---
 
@@ -30,7 +30,7 @@ Oxford’s researchers say their technology could offer a solution to that probl
 
 “I wouldn’t say we want to eliminate solar farms because obviously we need lots of areas or surfaces to generate sufficient amount of solar energy,” he told CNN.
 
-A persistent problem with perovskites, however, is stability, which has prevented its developers from commercializing the technology. Some coatings in lab settings have dissolved or broken down over shirt periods of time, so are regarded as less durable than today’s solar panels. Scientists are working toward improving its lifespan.
+A persistent problem with perovskites, however, is stability, which has prevented its developers from commercializing the technology. Some coatings in lab settings have dissolved or broken down over short periods of time, so are regarded as less durable than today’s solar panels. Scientists are working toward improving its lifespan.
 
 Henry Snaith, the Oxford team’s lead researcher, said their work has strong commercial potential and could be used in industries like construction and car manufacturing.
 

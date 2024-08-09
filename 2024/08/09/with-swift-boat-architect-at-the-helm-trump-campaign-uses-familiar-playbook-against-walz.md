@@ -1,6 +1,6 @@
 # With ‘Swift Boat’ architect at the helm, Trump campaign uses familiar playbook against Walz
 
-Published :`2024-08-09 12:29:44`
+Published :`2024-08-09 12:56:41`
 
 ---
 
