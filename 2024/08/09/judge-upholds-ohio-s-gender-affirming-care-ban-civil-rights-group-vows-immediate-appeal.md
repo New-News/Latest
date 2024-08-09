@@ -1,6 +1,6 @@
 # Judge upholds Ohio’s gender-affirming care ban; civil rights group vows immediate appeal
 
-Published :`2024-08-09 02:25:13`
+Published :`2024-08-09 02:49:31`
 
 ---
 

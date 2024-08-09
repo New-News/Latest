@@ -1,6 +1,6 @@
 # The tourism message in Maui that ‘has managed to stick around’
 
-Published :`2024-08-09 02:25:12`
+Published :`2024-08-09 02:49:30`
 
 ---
 
