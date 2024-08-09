@@ -1,6 +1,6 @@
 # Razor-thin solar panels could be ‘ink-jetted’ onto your backpack or phone for cheap clean energy
 
-Published :`2024-08-09 08:19:46`
+Published :`2024-08-09 08:39:22`
 
 ---
 
