@@ -1,6 +1,6 @@
 # Debby threatens nearly the entire eastern seaboard with flooding and tornadoes
 
-Published :`2024-08-09 14:14:26`
+Published :`2024-08-09 14:37:16`
 
 ---
 
@@ -20,13 +20,15 @@ Here’s the latest:
 
 • Water rescues and a flood emergency: Debby fed gushing rain over parts of South Carolina overnight, prompting dozens of water rescues north of Charleston, according to local officials. At least 26 water rescues occurred in Berkeley County as of Friday morning, emergency management spokesperson Jenna-Lee Walls told CNN. Most were around Moncks Corner, about 30 miles north of Charleston, where a rare flash flood emergency was issued. The area received almost 9 inches of rain in six hours, with 2 to 3 feet of fast-moving water on roads, the National Weather Service said. No serious injuries were reported. Roadways in and around the area remained seriously flooded Friday morning.
 
+• State of emergency: Frederick County, Virginia, was under a state of emergency Friday morning due to flooding that forced multiple water rescues, officials said. The area is around 60 miles west of Washington, DC, and tucked into the Appalachians.  The elevated terrain makes it more susceptible to higher rainfall totals from Debby.
+
+• Where Debby is headed: The heaviest rainfall on Friday will spread from central Pennsylvania through central New York and into Vermont. Between 2 to 4 inches of rainfall are expected in the area, with some isolated higher amounts possible. Peak rainfall isn’t expected to hit New York City until after the evening commute hours. And by Saturday morning, the rainfall associated with Debby will quickly be exiting northern New England.
+
 • More than 40 million people under flood alerts: Though rainfall totals will be lower Friday compared to earlier this week – when Debby dumped more than a foot of rain on parts of the Southeast – the Northeast has a significant threat of flooding, especially in high-terrain areas. The flood threat is being compounded in much of the region due to underlying wet conditions from a flooding event earlier this week. More than 40 million people are under some level of flood alert, stretching over 900 miles from Georgia to New York and northern New England.
 
 • 26 million people under tornado watch: A tornado watch is in effect until 2 p.m. EDT for more than 26.1 million people in Virginia, Maryland, Delaware, Pennsylvania, New Jersey and New York, according to the Storm Prediction Center. This includes DC, Baltimore and Philadelphia.
 
 • Death toll ticks upward: A 78-year-old woman was found dead Thursday after a tree fell on her trailer in Rockingham, North Carolina, which was under a tornado watch earlier that day, a county sheriff said. Earlier Thursday, a man was found dead in North Carolina’s Wilson County after his home collapsed during a tornado spawned by Debby, a county official said. At least five other storm-related deaths have been reported: Four people in Florida and one in Georgia.
-
-• Where Debby is headed: The heaviest rainfall on Friday will spread from central Pennsylvania through central New York and into Vermont. Between 2 to 4 inches of rainfall are expected in the area, with some isolated higher amounts possible. Peak rainfall isn’t expected to hit New York City until after the evening commute hours. And by Saturday morning, the rainfall associated with Debby will quickly be exiting northern New England.
 
 • Southeast sweats under triple-digit heat: Hazardous heat has been baking the Southeast in Debby’s wake and is expected to continue throughout the weekend, creating potentially miserable conditions for recovery efforts across the region. While high temperatures in the upper 80s and lower 90s are expected, the heat indices – how the body feels under combined heat and humidity – could exceed 110 degrees. The heat index on Friday could hit 112 degrees in Valdosta, Georgia, and approach 110 degrees in Jacksonville, Florida.
 

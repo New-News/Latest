@@ -1,6 +1,6 @@
 # Republicans ask Supreme Court to revive parts of Arizona proof of citizenship voter law
 
-Published :`2024-08-09 14:14:26`
+Published :`2024-08-09 14:37:16`
 
 ---
 

@@ -1,6 +1,6 @@
 # Iran mulls scrapping plans to take revenge on Israel in exchange for a Gaza ceasefire
 
-Published :`2024-08-09 14:14:28`
+Published :`2024-08-09 14:37:18`
 
 ---
 

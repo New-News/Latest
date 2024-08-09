@@ -1,6 +1,6 @@
 # Swifties find solace in song and solidarity after terror threat leads to cancelled shows in Vienna
 
-Published :`2024-08-09 14:14:26`
+Published :`2024-08-09 14:37:16`
 
 ---
 
@@ -30,6 +30,12 @@ Jason Squatriglia, a luxury travel concierge at Embark Beyond, said that he has 
 
 The affected clients, which include a couple in their mid-50s and a mother-daughter duo, spent more than $40,000 in airfare, car services and hotels for their trips, he said. The mother-daughter duo are now planning to attend a concert at London’s Wembley Stadium later this month.
 
+Austrian Airlines, the country’s leading airline, said it had received “a number of enquiries” about refunds from disappointed Swifties who’d booked flights to Vienna for the now-canceled concerts and that it would make an exception to its usual refund policy.
+
+“As this is a very special situation, we offer our passengers a special goodwill solution,” a company spokesperson said Friday.
+
+The airline, which is part of the Lufthansa Group, will provide affected customers with a voucher equal to the cost of their flights to and back from Vienna, valid for one year from the date of issue, the spokesperson said, adding that customers must enclose a copy of their concert ticket in their request. Only those with unused return tickets to the city between August 7 and 11, and who have booked directly with the airline are eligible for the voucher, the spokesperson noted.
+
 Attendants of Swift’s UK concerts are expected to inject a total of £755 million (about $953 million) into the UK economy, according to a Barclays report in May.
 
 It’s unclear what the exact economic impact of the cancellations in Vienna will be. Swift’s economic power, so tangible it has been dubbed “Swiftonomics,” has helped boost local economies as fans spend on transportation, food, themed outfits and accommodations to see the pop singer.
@@ -55,6 +61,8 @@ Social media is flooded with videos, images and stories of generosity and suppor
 Businesses are giving out free goods and services to ticket holders who were affected. On the streets, fans are breaking out into impromptu singalong and trading bracelets, a nod to the Swift concert tradition that was responsible for the empty shelves at your local craft store last year.
 
 A tree on Vienna’s Corneliusgasse — or Cornelia Street, as in the title of a Swift song — had been earmarked by fans as a place to exchange friendship bracelets prior to the shows, and it has now become an epicenter of sorts for Swiftie bonding.
+
+There on Friday, young girls, writing with colored chalk on the pavement, scrawled “we are fearless” in large yellow letters. Groups broke into impromptu sing-alongs of Swift songs.
 
 Everyone at these gatherings, Miller observed, “has a different story for why they’re here, how long they’re here (and) what her music means to them.”
 

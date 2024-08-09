@@ -1,6 +1,6 @@
 # See Trump’s legal and election calendar in 1 chart
 
-Published :`2024-08-09 14:14:28`
+Published :`2024-08-09 14:37:18`
 
 ---
 

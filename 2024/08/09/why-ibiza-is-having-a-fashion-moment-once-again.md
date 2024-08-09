@@ -1,6 +1,6 @@
 # Why Ibiza is having a fashion moment once again
 
-Published :`2024-08-09 14:14:27`
+Published :`2024-08-09 14:37:17`
 
 ---
 
