@@ -1,6 +1,6 @@
 # Daily marijuana use linked to increased risk of deadly head and neck cancers, study finds
 
-Published :`2024-08-09 11:13:28`
+Published :`2024-08-09 11:36:24`
 
 ---
 
