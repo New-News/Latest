@@ -1,6 +1,6 @@
 # Retailers are tricking consumers into spending more with earlier-than-ever Halloween rollout
 
-Published :`2024-08-09 14:37:17`
+Published :`2024-08-09 15:17:32`
 
 ---
 
@@ -10,11 +10,9 @@ Coming right on the heels of last year’s Summer Christmas, welcome to Summerwe
 
 Many big-box retailers are getting into spooky season earlier than ever before, and consumers can’t get enough of it.
 
-Popularized by the Disney TV show “Gravity Falls,” TikTok users are showcasing their Summerween parties with watermelon-carved jack-o’-lanterns, coffin-shaped ice cream sandwiches and skeletons propped up on pool floats.
+Popularized by the animated mystery Disney TV show “Gravity Falls,” TikTok users are showcasing their Summerween parties with watermelon-carved jack-o’-lanterns, coffin-shaped ice cream sandwiches and skeletons propped up on pool floats.
 
-Starbucks jumped on the trend too, releasing its beloved (or hated, depending on the point of view) pumpkin spice latte on Thursday, the earliest it has ever started selling the seasonal beverage.
-
-But all the excitement to get a jump start on Halloween comes as consumers are showing more signs of financial stress. They’re running through their savings and taking on record levels of credit card debt as they contend with high prices and a cooling labor market. As a result, consumers are pulling back on purchases from burgers at McDonald’s to trips to Disney World.
+But all the excitement to get a jump start on Halloween comes as consumers are showing more signs of financial stress. They’re running through their savings and taking on record levels of credit card debt as they contend with high prices and a cooling labor market. As a result, consumers are pulling back on purchases from burgers at McDonald’s to trips to Walt Disney World.
 
 And yet, the tap just keeps flowing and flowing for Halloween, experts say, suggesting consumers have more gas in the tank, at least for some purchases.
 
@@ -34,7 +32,7 @@ Michaels said it started selling Halloween goods in June, the earliest the retai
 
 It underscores how even though consumers may want to cut back on spending, “in the actual moment, such as when Halloween products are marketing early, they may actually splurge instead,” Kelsey Robinson, a senior partner at McKinsey, said.
 
-Meanwhile, Home Depot’s senior merchant overseeing holiday decor, Lance Allen, said over the last two years the retailer started selling Halloween goods online beginning in April “fueled by high demand.” But in stores, it won’t start stocking Halloween merchandise in stores until around Labor Day “to ensure consistency year after year,” Allen said.
+Meanwhile, Home Depot’s senior merchant overseeing holiday decor, Lance Allen, said over the last two years the retailer started selling Halloween goods online beginning in April “fueled by high demand.” But in stores, it won’t start stocking Halloween merchandise until around Labor Day “to ensure consistency year after year,” Allen said.
 
 The spooky holiday, a bright spot for home improvement stores like Home Depot and Lowe’s, comes as they’ve been struggling considerably over the past few years following the Covid renovation boom as more people bought homes. Now with elevated mortgage rates and home prices, fewer people are moving. That’s translating into fewer sales.
 

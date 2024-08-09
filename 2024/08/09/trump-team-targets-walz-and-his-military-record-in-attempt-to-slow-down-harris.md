@@ -1,6 +1,6 @@
 # Trump team targets Walz and his military record in attempt to slow down Harris
 
-Published :`2024-08-09 14:37:19`
+Published :`2024-08-09 15:17:37`
 
 ---
 

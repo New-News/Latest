@@ -1,6 +1,6 @@
 # Debby threatens nearly the entire eastern seaboard with flooding and tornadoes
 
-Published :`2024-08-09 14:37:16`
+Published :`2024-08-09 15:17:31`
 
 ---
 
@@ -8,7 +8,7 @@ Debby’s heavy rain, flooding and tornado threats spanned hundreds of miles of 
 
 Debby lost its tropical status Friday morning but was still a potent storm, triggering tornado and flood warnings for Washington, DC, and a flash flood emergency and water rescues in South Carolina.
 
-The system had sustained winds of 30 mph with stronger gusts early Friday and was racing through the mid-Atlantic and into the Northeast after hovering over the Carolinas for days, creating dangerous flood conditions.
+The system had sustained winds of 35 mph with stronger gusts Friday morning and was racing through the Northeast after hovering over the Carolinas for days, creating dangerous flood conditions.
 
 Track the storm: Debby’s path
 
