@@ -1,6 +1,6 @@
 # New bodycam video shows moment police officer saw Trump shooter just before assassination attempt
 
-Published :`2024-08-09 04:18:31`
+Published :`2024-08-09 04:38:46`
 
 ---
 

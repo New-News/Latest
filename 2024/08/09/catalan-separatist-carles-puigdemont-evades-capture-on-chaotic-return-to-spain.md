@@ -1,6 +1,6 @@
 # Catalan separatist Carles Puigdemont evades capture on chaotic return to Spain
 
-Published :`2024-08-09 04:18:32`
+Published :`2024-08-09 04:38:48`
 
 ---
 
