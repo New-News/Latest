@@ -1,6 +1,6 @@
 # CrossFit Games athlete dies during competition at Texas lake
 
-Published :`2024-08-09 02:49:28`
+Published :`2024-08-09 03:17:25`
 
 ---
 

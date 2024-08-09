@@ -1,6 +1,6 @@
 # Opinion: Nixon’s resignation needs a new legacy
 
-Published :`2024-08-09 02:49:28`
+Published :`2024-08-09 03:17:26`
 
 ---
 

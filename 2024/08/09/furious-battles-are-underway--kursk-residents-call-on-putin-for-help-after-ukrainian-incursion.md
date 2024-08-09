@@ -1,6 +1,6 @@
 # ‘Furious battles are underway’: Kursk residents call on Putin for help after Ukrainian incursion
 
-Published :`2024-08-09 02:49:28`
+Published :`2024-08-09 03:17:25`
 
 ---
 
