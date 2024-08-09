@@ -1,6 +1,6 @@
 # Trump said he ‘went down’ in helicopter ‘emergency landing’ with former San Francisco mayor, who says it never happened
 
-Published :`2024-08-09 10:16:23`
+Published :`2024-08-09 10:38:26`
 
 ---
 

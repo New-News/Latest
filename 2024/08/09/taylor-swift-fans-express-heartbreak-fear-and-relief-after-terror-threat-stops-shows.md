@@ -1,6 +1,6 @@
 # Taylor Swift fans express heartbreak, fear and relief after terror threat stops shows
 
-Published :`2024-08-09 10:16:25`
+Published :`2024-08-09 10:38:28`
 
 ---
 

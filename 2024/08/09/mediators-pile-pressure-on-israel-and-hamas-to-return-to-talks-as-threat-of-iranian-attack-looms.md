@@ -1,6 +1,6 @@
 # Mediators pile pressure on Israel and Hamas to return to talks as threat of Iranian attack looms
 
-Published :`2024-08-09 10:16:23`
+Published :`2024-08-09 10:38:26`
 
 ---
 
@@ -46,7 +46,7 @@ The Wall Street Journal earlier reported the warning to Iran.
 
 Just days before Haniyeh’s killing, the mediators met with Israel’s head of intelligence, Mossad director David Barnea, in Rome to receive Israel’s latest proposal. Barnea left after just a few hours following a strike attributed to Hezbollah in the Israel-occupied Golan Heights that killed a dozen people.
 
-If a meeting happens next week, it would be the first movement on talks that were feared over following Haniyeh’s death, and would resurrect hopes that an agreement may be reached.
+If a meeting happens next week, it would be the first movement on talks that were feared over following Haniyeh’s assassination, and would resurrect hopes that an agreement may be reached.
 
 The Hostage and Missing Families Forum expresses “deepest gratitude” to the US, Qatar, and Egypt for their statement.
 
