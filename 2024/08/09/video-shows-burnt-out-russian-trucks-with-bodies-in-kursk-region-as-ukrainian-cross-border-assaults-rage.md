@@ -1,6 +1,6 @@
 # Video shows burnt-out Russian trucks with bodies in Kursk region as Ukrainian cross-border assaults rage
 
-Published :`2024-08-09 15:17:30`
+Published :`2024-08-09 15:36:43`
 
 ---
 
@@ -10,7 +10,7 @@ In the daytime video – shared by Russian military bloggers and independent out
 
 Some of the trucks are completely burnt out, while others are undamaged but still appear to contain the bodies of military personnel.
 
-The video, which a Russian military blogger says shows the aftermath of a Ukrainian strike Thursday night, comes three days after Kyiv shifted tactics with a surprise incursion into Russian territory, prompting the Kremlin to declare a state of emergency in a region largely untroubled by more than two years of war.
+The video, which a Russian military blogger says shows the aftermath of a Ukrainian strike Thursday night, comes three days after Kyiv shifted tactics with a surprise incursion into Russian territory, prompting the Kremlin to declare a “federal scale” state of emergency on Friday in a region largely untroubled by more than two years of war.
 
 Although pro-Ukrainian groups of Russian nationals have mounted fleeting cross-border assaults on Russia, and Ukraine has repeatedly targeted the border region of Belgorod with airstrikes, this week’s incursion marks the first time that regular Ukrainian and special operations units have entered Russian territory.
 

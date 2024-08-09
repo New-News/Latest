@@ -1,6 +1,6 @@
 # Cover art showing Marvel hero Deadpool’s first appearance could sell for record $7.5 million
 
-Published :`2024-08-09 15:17:32`
+Published :`2024-08-09 15:36:44`
 
 ---
 

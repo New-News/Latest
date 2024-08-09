@@ -1,6 +1,6 @@
 # Paramount cuts 15% of US staff, writes down $6 billion in latest sign of TV troubles
 
-Published :`2024-08-09 15:17:34`
+Published :`2024-08-09 15:36:44`
 
 ---
 

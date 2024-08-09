@@ -1,6 +1,6 @@
 # Exclusive: Do celebrities’ voices matter in elections? New Harvard study finds they do
 
-Published :`2024-08-09 15:17:30`
+Published :`2024-08-09 15:36:43`
 
 ---
 

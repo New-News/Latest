@@ -1,6 +1,6 @@
 # Special counsel asks to delay Trump 2020 election case into September
 
-Published :`2024-08-09 15:17:34`
+Published :`2024-08-09 15:36:44`
 
 ---
 
