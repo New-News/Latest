@@ -1,6 +1,6 @@
 # Iran mulls scrapping plans to take revenge on Israel in exchange for a Gaza ceasefire
 
-Published :`2024-08-09 05:37:18`
+Published :`2024-08-09 06:22:24`
 
 ---
 
@@ -8,7 +8,7 @@ The Middle East, and indeed much of the world, is bracing for Iran to carry out 
 
 It was Wednesday and the world was on edge. Flights across Iran and its neighbors were cancelled amid fears that missiles could fly any moment, triggering a much-feared escalation of Israel’s war in Gaza.
 
-With his country on the brink of triggering a regional war, Iran’s Acting Foreign Minister Ali Bagheri whispered to an aid bending close to catch his words.
+With his country on the brink of triggering a regional war, Iran’s Acting Foreign Minister Ali Bagheri whispered to an aide bending close to catch his words.
 
 Cameroon’s foreign minister sat to Bagheri’s right, Yemen’s to his left, along with a room full of other foreign ministers from Muslim-majority countries, all there to help prevent the situation from spiraling into a wider conflict.
 

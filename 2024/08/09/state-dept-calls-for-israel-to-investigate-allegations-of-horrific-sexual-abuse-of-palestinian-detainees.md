@@ -1,6 +1,6 @@
 # State Dept calls for Israel to investigate allegations of ‘horrific’ sexual abuse of Palestinian detainees
 
-Published :`2024-08-09 05:37:20`
+Published :`2024-08-09 06:22:26`
 
 ---
 

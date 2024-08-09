@@ -1,6 +1,6 @@
 # Tropical Depression Debby to rapidly accelerate into the Northeast, threatening to unleash flooding and tornadoes
 
-Published :`2024-08-09 05:37:17`
+Published :`2024-08-09 06:22:23`
 
 ---
 
@@ -17,6 +17,8 @@ At least seven people have died in the Southeast since Debby crashed into Florid
 Here’s the latest:
 
 • Tornado watch spreads from North Carolina to Maryland: The Storm Prediction Center has issued a tornado watch until 7 a.m. Friday stretching across eastern North Carolina, central and eastern Virginia, eastern West Virginia and Maryland. The area includes the cities of Raleigh, Richmond, Baltimore and Washington, DC.
+
+• Flash flood emergency in South Carolina: The National Weather Service issued a flash flood emergency early Friday for parts of South Carolina’s Berkeley, Charleston and Dorchester counties, noting that high water rescues and “widespread dangerous flash flooding is ongoing” in the city of Moncks Corner. The emergency was set to be in effect until 5:30 a.m. ET. While the bulk of the rainfall associated with Debby had moved to Virginia, a final band of heavy rainfall north of Charleston was trained over the same areas, overwhelming soils and waterways. The band could also bring flooding on its path into North Carolina early Friday.
 
 • Death toll ticks upward: A 78-year-old woman was found dead Thursday after a tree fell on her trailer in Rockingham, North Carolina, which was under a tornado watch earlier that day, a county sheriff said. Earlier Thursday, a man was found dead in North Carolina’s Wilson County after his home collapsed during a tornado spawned by Debby, a county official said. At least five other storm-related deaths have been reported: Four people in Florida and one in Georgia.
 
