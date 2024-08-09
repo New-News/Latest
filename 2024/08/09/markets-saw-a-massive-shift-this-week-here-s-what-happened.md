@@ -1,6 +1,6 @@
 # Markets saw a massive shift this week. Here’s what happened
 
-Published :`2024-08-09 17:14:19`
+Published :`2024-08-09 17:36:24`
 
 ---
 

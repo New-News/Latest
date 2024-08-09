@@ -1,6 +1,6 @@
 # Opinion: America keeps telling itself the wrong story about Nixon’s resignation
 
-Published :`2024-08-09 17:14:19`
+Published :`2024-08-09 17:36:24`
 
 ---
 
