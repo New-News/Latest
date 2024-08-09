@@ -1,6 +1,6 @@
 # Belgian publisher removes opinion column that described an urge to stab ‘every Jew’ over Gaza
 
-Published :`2024-08-09 15:36:44`
+Published :`2024-08-09 16:19:08`
 
 ---
 

@@ -1,6 +1,6 @@
 # Google and X lag peers in addressing non-consensual explicit images, lawmakers say
 
-Published :`2024-08-09 15:36:43`
+Published :`2024-08-09 16:19:07`
 
 ---
 
@@ -16,7 +16,7 @@ Friday’s letter, shared exclusively with CNN, is addressed to the chief execut
 
 It urges them to join the National Center for Missing and Exploited Children’s “Take it Down” program, which helps people remove nude or sexually explicit images or videos of children from online platforms, as well as the Revenge Porn Helpline’s “StopNCII” initiative, which helps adults remove explicit images that were shared online without their consent. Both programs let users create a unique numerical code for an image they want to remove, which participating platforms can then easily use to search their sites and remove the image.
 
-“By increasing participation in these programs, companies can take actionable steps to stop the life-altering impact that the (non-consensual intimate imagery) has on the life, career and family of those affected,” the letter states. The letter was spearheaded by Democratic Sen. Jeanne Shaheen and Republican Sen. Rick Scott, and co-signed by eight other senators.
+“By increasing participation in these programs, companies can take actionable steps to stop the life-altering impact that the (non-consensual intimate imagery) has on the life, career and family of those affected,” the letter states. The letter was spearheaded by Democratic Sen. Jeanne Shaheen and Republican Sen. Rick Scott, and co-signed by ten other senators.
 
 Most of the companies named in the letter have policies against the creation or sharing of non-consensual, explicit images, and in some cases offer their own ways for users to report or request the removal of such content. Google also recently announced that aim to keep such content from appearing near the top of search results.
 

@@ -1,10 +1,10 @@
 # San Diego Zoo’s new giant pandas to make their public debut
 
-Published :`2024-08-09 15:36:45`
+Published :`2024-08-09 16:19:11`
 
 ---
 
-San Diego’s newest giant pandas are set to make their public debut Thursday in the San Diego Zoo’s reimagined Panda Ridge habitat.
+San Diego’s newest giant pandas made their public debut Thursday in the San Diego Zoo’s reimagined Panda Ridge habitat.
 
 The pair, Yun Chuan and Xin Bao, are the first giant pandas to enter the United States in 21 years, according to the zoo.
 

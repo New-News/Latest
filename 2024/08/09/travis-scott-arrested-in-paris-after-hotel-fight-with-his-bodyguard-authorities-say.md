@@ -1,6 +1,6 @@
 # Travis Scott arrested in Paris after hotel fight with his bodyguard, authorities say
 
-Published :`2024-08-09 15:36:43`
+Published :`2024-08-09 16:19:07`
 
 ---
 
@@ -14,7 +14,7 @@ He was arrested for “violence against a security guard,” the Paris prosecuto
 
 The security guard had tried to break up a fight between the rapper and his bodyguard, according to a spokesman with the prosecutor, who added that an investigation had been opened.
 
-CNN has reached out to Scott’s representatives for comment.
+“We are in direct communication with the local Parisian authorities to swiftly resolve this matter and will provide updates when appropriate,” a representative for Scott told CNN in a statement.
 
 Scott, one of the preeminent rappers of his generation and whose legal name is Jacques Bermon Webster, had wrapped up the European leg of his Circus Maximus tour only days earlier in Lisbon, Portugal.
 

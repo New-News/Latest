@@ -1,6 +1,6 @@
 # Prompted by mass shooting, 72-hour wait period and other new gun laws go into effect in Maine
 
-Published :`2024-08-09 15:36:43`
+Published :`2024-08-09 16:19:07`
 
 ---
 
