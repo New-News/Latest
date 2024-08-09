@@ -1,6 +1,6 @@
 # US death rate dropped 6% in 2023, with Covid-19 falling to 10th leading cause of death, CDC says
 
-Published :`2024-08-09 07:14:13`
+Published :`2024-08-09 07:36:09`
 
 ---
 
