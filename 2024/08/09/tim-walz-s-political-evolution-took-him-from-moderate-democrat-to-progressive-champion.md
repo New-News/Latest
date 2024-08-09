@@ -1,6 +1,6 @@
 # Tim Walz’s political evolution took him from moderate Democrat to progressive champion
 
-Published :`2024-08-09 09:36:26`
+Published :`2024-08-09 10:16:25`
 
 ---
 

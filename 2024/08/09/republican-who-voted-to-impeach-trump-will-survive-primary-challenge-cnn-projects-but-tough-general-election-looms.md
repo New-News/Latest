@@ -1,6 +1,6 @@
 # Republican who voted to impeach Trump will survive primary challenge, CNN projects, but tough general election looms
 
-Published :`2024-08-09 09:36:25`
+Published :`2024-08-09 10:16:24`
 
 ---
 

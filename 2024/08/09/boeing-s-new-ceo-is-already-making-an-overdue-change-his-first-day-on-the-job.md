@@ -1,6 +1,6 @@
 # Boeing’s new CEO is already making an overdue change his first day on the job
 
-Published :`2024-08-09 09:36:26`
+Published :`2024-08-09 10:16:25`
 
 ---
 
