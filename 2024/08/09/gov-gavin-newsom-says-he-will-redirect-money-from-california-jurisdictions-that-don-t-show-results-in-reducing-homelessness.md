@@ -1,6 +1,6 @@
 # Gov. Gavin Newsom says he will redirect money from California jurisdictions that don’t show results in reducing homelessness
 
-Published :`2024-08-09 10:38:26`
+Published :`2024-08-09 11:13:22`
 
 ---
 
