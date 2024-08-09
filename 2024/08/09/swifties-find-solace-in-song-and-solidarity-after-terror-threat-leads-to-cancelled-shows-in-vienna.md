@@ -1,6 +1,6 @@
 # Swifties find solace in song and solidarity after terror threat leads to cancelled shows in Vienna
 
-Published :`2024-08-09 13:36:05`
+Published :`2024-08-09 14:14:26`
 
 ---
 

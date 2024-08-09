@@ -1,12 +1,16 @@
 # Childhood vaccinations will have prevented more than 500 million illnesses and 1 million deaths in US since 1994, CDC report says
 
-Published :`2024-08-09 13:36:09`
+Published :`2024-08-09 14:14:27`
 
 ---
 
 Routine childhood vaccinations will have prevented hundreds of millions of illnesses, tens of millions of hospitalizations and more than 1 million deaths among people born between 1994 and 2023, according to the US Centers for Disease Control and Prevention.
 
 A new report, published Thursday by the CDC, analyzed the benefits of routine childhood immunizations in the United States through the CDC’s Vaccines for Children Program, which launched in 1994. The research also found that the vaccinations saved the country billions of dollars.
+
+The study “shows the substantial impact of vaccines on peoples’ lives and the impressive return on the investment in vaccines and immunization services,” Fangjun Zhou, lead author of the paper and a scientist at the National Center for Immunization and Respiratory Diseases, said in an email.
+
+“The substantial benefits of childhood vaccinations have been well known for a long time. One new contribution of this study is that, overall, these benefits continue even as newer vaccines have been added to the childhood schedule,” Zhou added. “Staying up to date with recommended childhood vaccines is one of the best ways to prevent disease, reduce the burden on the health care system and in many cases also reduce health care costs.”
 
 The researchers, from the National Center for Immunization and Respiratory Diseases, examined and quantified the health benefits and economic impact of routine immunizations among children in the United States born between 1994 and last year.
 

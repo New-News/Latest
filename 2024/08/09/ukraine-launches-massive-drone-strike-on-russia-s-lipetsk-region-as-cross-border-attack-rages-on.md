@@ -1,6 +1,6 @@
 # Ukraine launches ‘massive’ drone strike on Russia’s Lipetsk region, as cross-border attack rages on
 
-Published :`2024-08-09 13:36:06`
+Published :`2024-08-09 14:14:26`
 
 ---
 
@@ -27,6 +27,10 @@ The reports show that Ukraine’s assault on Russia is not letting up. Although 
 The intention, according to US and Ukrainian officials, is partly to divert Russian forces away from other parts of the eastern front – from which they have been able to bombard Ukraine’s Kharkiv region – and partly to disrupt and demoralize Russian forces. US officials do not believe Ukraine intends to hold Russian territory for the long term.
 
 On Thursday, Kursk residents wrote on Telegram that “huge, furious battles are underway,” and recorded a video address to Russian President Vladimir Putin asking for his help.
+
+Russia has, however, continued to strike back, targeting a supermarket in the eastern Ukrainian town of Kostiantynivka in Donetsk region with a Kh-38 missile on Friday, according to local officials. At least nine people were killed and a further 26 injured in the strike, they said.
+
+“Russia will be held accountable for this terror, and we will do our best to ensure that the world continues to stand with Ukraine in supporting our defense and saving the lives of our people,” Zelensky wrote in a post on social media.
 
 ### Russia ‘a legitimate target’ for Ukraine
 

@@ -1,20 +1,20 @@
 # D’Vontaye Mitchell death: 4 former Milwaukee hotel workers are charged with felony murder
 
-Published :`2024-08-09 13:36:08`
+Published :`2024-08-09 14:14:26`
 
 ---
 
 Four former hotel workers were charged Tuesday with felony murder in connection with the June death of a Black man who authorities say was pinned to the ground outside a downtown Milwaukee hotel in an encounter partially captured on video, court documents show.
 
-The charges relate to the June 30 death of 43-year-old D’Vontaye Mitchell, who was held down for about eight to nine minutes outside the Hyatt Regency, according to the charging documents. Arrest warrants have been issued for the four charged in the case, the office of Milwaukee County District Attorney John Chisholm said Tuesday.
+The charges relate to the June 30 death of 43-year-old D’Vontaye Mitchell, who was held down for about eight to nine minutes outside the Hyatt Regency, according to the charging documents. All four were in custody by Friday morning, jail records show.
 
 Security manager Todd Alan Erickson, front desk agent Devin W. Johnson-Carson, security guard Brandon LaDaniel Turner and bellman Herbert T. Williamson are the defendants, court documents show.
 
 Erickson turned himself in Wednesday and made his first court appearance Thursday, according to court records. He was held on a $50,000 bond, and a preliminary hearing is set for August 19, the records show. CNN has reached out to his attorney for comment.
 
-Turned turned himself in Thursday and made his first court appearance later that morning, according to court records. He was held on a $30,000 bond, the records show, and a preliminary hearing is set for August 19. Turner’s attorney, Matt Last, expressed disappointment in the decision to charge Turner. “However, we are confident he will be cleared of any wrongdoing,” Last said.
+Turner turned himself in Thursday and made his first court appearance later that morning, according to court records. He was held on a $30,000 bond, the records show, and a preliminary hearing is set for August 19. Turner’s attorney, Matt Last, expressed disappointment in the decision to charge Turner. “However, we are confident he will be cleared of any wrongdoing,” Last said.
 
-Johnson-Carson was booked on Thursday, according to jail records.
+Johnson-Carson was booked on Thursday, according to jail records, which also show Williamson in custody.
 
 CNN has also sought comment from Johnson-Carson and Williamson, and reached out to prosecutors to see whether they have attorneys.
 
@@ -30,9 +30,9 @@ While the four defendants tackled Mitchell to the ground outside the hotel, one 
 
 The four defendants then used “various means of force” to hold Mitchell in place while he was on the ground, “including pushing down on (Mitchell’s) back, shoulders and arms,” and including one defendant appearing to strike Mitchell with a collapsable baton, court documents say.
 
-“These charges are based on an extensive review of the evidence collected by the Milwaukee Police Department, the autopsy conducted and the report produced by the Milwaukee County medical examiner’s office, and information received from members of the community,” the DA’s office said in a statement accompanying the release of criminal complaints.
+“These charges are based on an extensive review of the evidence collected by the Milwaukee Police Department, the autopsy conducted and the report produced by the Milwaukee County medical examiner’s office, and information received from members of the community,” said the office of Milwaukee County District Attorney John Chisholm in a statement accompanying the release of criminal complaints.
 
-Williamson, the bellman who was charged, was asked by his superior to help hold down Mitchell and was “terrified I was going to lose my job if I didn’t get involved,” he told CNN on Wednesday. He plans to turn himself in to police as soon as he hires a lawyer, he said.
+Williamson, the bellman who was charged, was asked by his superior to help hold down Mitchell and was “terrified I was going to lose my job if I didn’t get involved,” he told CNN on Wednesday.
 
 “All I know is that I’m being wrongfully charged,” Williamson said. “The only thing I want to express to the family (of D’Vontaye Mitchell) is I deeply apologize. I didn’t know he was going to lose his life. I really hate that I got involved in the situation.”
 
@@ -62,7 +62,7 @@ Mitchell’s behavior throughout the video is erratic and he physically resists 
 
 “But DM does not instigate any violence or display any obviously aggressive or threatening behavior while on the hotel premises,” the detective wrote.
 
-During the eight to nine minutes he was being held down, Mitchell tried to get free and the defendants used “various means of force” – such as pushing down on his back – to keep him down. At one point Erickson appears to hit Mitchell with a collapsible baton, the complaint says.
+During the eight to nine minutes he was being held down, Mitchell tried to get free and the defendants used “various means of force” – such as pushing down on his back – to keep him down. At one point, Erickson appears to hit Mitchell with a collapsible baton, the complaint says.
 
 “Towards the end of” the period he was restrained, “DM has stopped showing movement or resistance or other signs of life,” the complaint says.
 
@@ -76,11 +76,11 @@ According to the complaint, the assistant medical examiner who performed the aut
 
 ### ‘I’m sorry,’ Mitchell says, according to video
 
-Part of that video posted to social media shows security guards and others pinning Mitchell to the ground. Mitchell grunts and pleads, repeatedly saying, “Please,” and “I’m sorry,” shows the video, which has been public for weeks.
+Part of that video posted to social media shows security guards and others pinning Mitchell to the ground. Mitchell grunts and pleads, repeatedly saying, “Please,” and “I’m sorry,” on the video, which has been public for weeks.
 
 One of the people, who appears to be White, can be heard saying, “Stay down,” and “Stop fighting,” as the others, who appear to be people of color, hold Mitchell down, the video shows. The same guard is heard calling out to witnesses, “This is what happens when you go into the ladies room.”
 
-Mitchell family attorney Sulton at a Friday news conference played several videos from the encounter, including security camera footage that revealed a view from inside the Hyatt as employees were removing Mitchell from the building.
+Mitchell family attorney Sulton at a news conference on August 2 played several videos from the encounter, including security camera footage that revealed a view from inside the Hyatt as employees were removing Mitchell from the building.
 
 The footage shows Mitchell being dragged across the floor inside the lobby and, from another angle outside, employees holding him down on the ground. The video shows one security guard punching Mitchell, who had been slammed to the ground, in the head, Sulton said last week.
 
