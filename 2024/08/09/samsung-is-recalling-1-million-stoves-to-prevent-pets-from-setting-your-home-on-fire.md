@@ -1,6 +1,6 @@
 # Samsung is recalling 1 million stoves to prevent pets from setting your home on fire
 
-Published :`2024-08-09 04:38:48`
+Published :`2024-08-09 05:15:25`
 
 ---
 
