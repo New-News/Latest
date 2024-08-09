@@ -1,6 +1,6 @@
 # Alleged Taylor Swift terror plot fits a worrying trend as ISIS targets teens online
 
-Published :`2024-08-09 07:36:10`
+Published :`2024-08-09 08:19:48`
 
 ---
 

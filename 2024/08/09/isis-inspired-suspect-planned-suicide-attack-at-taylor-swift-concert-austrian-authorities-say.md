@@ -1,6 +1,6 @@
 # ISIS-inspired suspect planned suicide attack at Taylor Swift concert, Austrian authorities say
 
-Published :`2024-08-09 07:36:09`
+Published :`2024-08-09 08:19:47`
 
 ---
 
